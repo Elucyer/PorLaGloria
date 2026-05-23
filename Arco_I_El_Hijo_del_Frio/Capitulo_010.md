@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 7 — Lo que Ospina sabe (Medellín, 2015)
+### Capítulo 10 — Lo que Ospina sabe (Medellín, 2015)
 
 ---
 

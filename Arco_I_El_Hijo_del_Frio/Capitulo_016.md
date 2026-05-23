@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 10C — Lo que el colegio no sabe (Medellín, julio–agosto de 2016)
+### Capítulo 16 — Lo que el colegio no sabe (Medellín, julio–agosto de 2016)
 
 ---
 

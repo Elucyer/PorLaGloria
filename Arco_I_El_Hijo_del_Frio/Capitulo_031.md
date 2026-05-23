@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 13 — La despedida de Ospina (Medellín, noviembre–diciembre de 2017)
+### Capítulo 31 — La despedida de Ospina (Medellín, noviembre–diciembre de 2017)
 
 ---
 

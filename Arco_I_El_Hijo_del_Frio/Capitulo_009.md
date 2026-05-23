@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 4B — Lo que no entienden (Medellín, 2015)
+### Capítulo 9 — Lo que no entienden (Medellín, 2015)
 
 ---
 

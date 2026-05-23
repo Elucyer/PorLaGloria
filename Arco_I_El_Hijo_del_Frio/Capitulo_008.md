@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 6 — El número (Medellín, enero de 2015)
+### Capítulo 8 — El número (Medellín, enero de 2015)
 
 ---
 

@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 10 — Manzana Postobón (Medellín, enero–junio de 2016)
+### Capítulo 13 — Manzana Postobón (Medellín, enero–junio de 2016)
 
 ---
 

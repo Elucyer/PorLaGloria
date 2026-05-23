@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 12 — El Tour de l'Avenir (Francia, agosto–septiembre de 2017)
+### Capítulo 29 — El Tour de l'Avenir (Francia, agosto–septiembre de 2017)
 
 ---
 

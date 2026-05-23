@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 11B — El hombre de la tablet (Colombia–Francia, agosto–septiembre de 2017)
+### Capítulo 28 — El hombre de la tablet (Colombia–Francia, agosto–septiembre de 2017)
 
 ---
 

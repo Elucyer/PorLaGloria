@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 8 — El récord del Boquerón (Medellín, diciembre de 2015)
+### Capítulo 11 — El récord del Boquerón (Medellín, diciembre de 2015)
 
 ---
 

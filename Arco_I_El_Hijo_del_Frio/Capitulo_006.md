@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 4 — El rey de los puertos (Medellín, 2013)
+### Capítulo 6 — El rey de los puertos (Medellín, 2013)
 
 ---
 
