@@ -26,15 +26,15 @@ Lo que sí estaba era Ferney Ríos, que había seguido creciendo como contrarrel
 
 Ospina lo miró.
 
-—No te lo digo para bajarte el ánimo. Te lo digo para que entiendas la carrera. Si corrés pensando que sos el favorito y Ríos te ataca en el contrarreloj del día seis con diferencia, vas a gastar energía que no tenés en una persecución que quizás no podés ganar.
+—No te lo digo para bajarte el ánimo. Te lo digo para que entiendas la carrera. Si corrés pensando que sos el favorito y Ríos te saca un minuto veinte en la contrarreloj del día seis, vas a gastar energía que no tenés persiguiendo tiempo en la montaña.
 
 —¿Qué hacemos entonces?
 
-—Lo mismo que el año pasado, pero al revés: vos estás marcando a Ríos. Él era el que te estudiaba en el RCN. Ahora vos estudiás a Ríos.
+—Lo mismo que el año pasado, pero al revés: vos estás estudiando a Ríos. Él era el que te estudiaba en el RCN. Ahora invertís los papeles.
 
 —Conozco a Ríos. Lo corrí en el RCN y en la Clásica del Café.
 
-—Conocer y estudiar no es lo mismo —dijo Ospina—. Lo que sabés de Ríos es de una clásica de un día y de una vuelta de dos. Esto es ocho etapas. Vas a ver cosas en el día seis que no existen en el día uno.
+—Conocer y estudiar no es lo mismo —dijo Ospina—. Lo que sabés de Ríos es de una clásica de un día y de una vuelta de dos etapas. Esto es ocho etapas. Vas a ver cosas en el día seis que no existen en el día uno.
 
 Santi anotó: *No el favorito. El que estudia al favorito.*
 
@@ -42,7 +42,7 @@ Santi anotó: *No el favorito. El que estudia al favorito.*
 
 La Vuelta de la Juventud arrancó de Armenia el primer jueves de abril.
 
-Ocho etapas por el Eje Cafetero, el Cauca y el Valle del Cauca, con tres llegadas en alto: el Alto de Miraflores en la cuarta etapa, la contrarreloj de Buga en la sexta, y el Alto del Vino como etapa reina en la séptima. La climatología de la región en abril: calor húmedo en los valles, frío seco en las cimas, lluvia posible en cualquier punto del recorrido.
+Ocho etapas por el Eje Cafetero, el Cauca y el Valle del Cauca, con tres llegadas en alto: el Alto de Miraflores en la cuarta etapa, la contrarreloj de Buga en la sexta, y el Alto del Vino como etapa reina en la séptima. La climatología de la región en abril: calor húmedo en los valles —Armenia, Buga, Palmira—, frío seco en las cimas, lluvia posible en cualquier punto del recorrido y en cualquier momento, la clase de lluvia que en el Eje Cafetero no avisa.
 
 Las tres primeras etapas fueron de transición.
 
@@ -54,7 +54,13 @@ Donde exactamente dejaba de ser cómodo y empezaba a ser difícil. Cuánto aguan
 
 Encontró la respuesta en la primera llegada en alto.
 
-El Alto de Miraflores, cuarta etapa. En el kilómetro doce del ascenso, Ríos llevaba el ritmo desde la cabeza del grupo reducido —once corredores, entre ellos Santi— y en ese kilómetro la cadencia bajó dos pedaladas por minuto. No era visible a simple vista. Santi lo sintió porque estaba en la rueda y conocía ese tipo de señal: el cuerpo pidiendo un segundo para reorganizarse.
+---
+
+El Alto de Miraflores, cuarta etapa.
+
+Treinta y dos kilómetros desde Manizales hacia el nororiente, con los últimos quince al seis y medio continuo. La vegetación del Eje Cafetero: guadua y helechos en las partes bajas, luego el pino plantado en los flancos medios, luego el bosque de niebla en la cima donde las nubes se sentaban y no se iban.
+
+En el kilómetro doce del ascenso, con once corredores en el grupo delantero, Ríos llevaba el ritmo desde la cabeza y en ese kilómetro la cadencia bajó dos pedaladas por minuto. No era visible a simple vista. Santi lo sintió porque estaba en la segunda posición —la rueda de Ríos— y conocía ese tipo de señal: el cuerpo pidiendo un segundo para reorganizarse.
 
 Atacó.
 
@@ -62,7 +68,7 @@ No de manera explota-el-pelotón —no tenía intención de ganar la etapa, Mej�
 
 Ríos respondió en cuatro segundos.
 
-Eso era la información que necesitaba: que la reacción era rápida pero no instantánea, que había ventana, que en un puerto más largo esa ventana podía convertirse en diferencia.
+Cuatro. Eso era la información que necesitaba: que la reacción era rápida pero no instantánea, que había ventana, que en un puerto más largo esa ventana podía convertirse en diferencia.
 
 Ganó la etapa de todos modos, sin proponérselo, porque cuando miró atrás en el kilómetro catorce Ríos estaba a ocho metros y los demás a más.
 
@@ -90,37 +96,270 @@ Veintiocho kilómetros en terreno llano con viento cruzado del sur, condiciones 
 
 *Contrarreloj: el agujero sigue ahí*, escribió Santi esa noche. *Pero más pequeño que en diciembre. Treinta y siete segundos más pequeño.*
 
-El año anterior, en la Clásica del Café, la diferencia con Ríos había sido de un minuto cuarenta y siete. Ahora era un minuto treinta y dos. Quince segundos de mejora en cuatro meses de trabajo específico. La dirección era correcta. La velocidad del cambio también.
+El año anterior, en la Clásica del Café, la diferencia con Ríos había sido de un minuto cuarenta y siete. Ahora era un minuto treinta y dos. Quince segundos de mejora en cuatro meses de trabajo específico. La dirección era correcta.
 
 Pero en el Puerto de Boyacá, en agosto, la contrarreloj no existía. Lo que existía era la montaña.
 
+*Cuatro meses*, escribió debajo.
+
 ---
 
-La etapa reina fue el Alto del Vino, en la séptima etapa.
+La séptima etapa — el Alto del Vino — salió de Buga un sábado a las ocho de la mañana.
 
-Treinta y seis kilómetros desde Buga, con los últimos dieciocho al seis y al siete continuo, sin respiro, el tipo de pendiente que no destroza las piernas porque sea muy dura sino porque no deja recuperar nunca.
+Buga amaneció caliente y con el olor a caña de azúcar que la rodeaba por todos lados: los cañaverales del Valle del Cauca llegaban hasta las afueras del pueblo y el primer olor del día era ese, azucarado y un poco pesado, el olor de la agroindustria que definía el paisaje de esa región de Colombia como los cafetales definían el Eje y los cultivos de papa definían Boyacá. El Valle del Cauca era así: generoso en lo verde pero con un verde de industria, organizado, sin la exuberancia caótica de Antioquia.
 
-En el kilómetro doce del ascenso, con siete corredores en el grupo delantero, Santi aplicó lo que había aprendido en el Miraflores: esperó a que Ríos llegara a su umbral —lo reconocía ya por los signos, la cadencia, la respiración, la posición del torso— y en lugar de atacar en ese momento esperó treinta segundos más, hasta el momento en que Ríos intentaba recuperarse.
+La etapa tenía treinta y seis kilómetros en total con el Alto del Vino como única meta: llegada en alto, sin descenso posterior, directamente a la cima. Los últimos dieciocho kilómetros del recorrido eran la subida al Alto del Vino propiamente, con pendiente media del seis y medio y rampas máximas al diez en los últimos cuatro kilómetros. El recorrido completo incluía dieciocho kilómetros de aproximación desde Buga por una carretera que cruzaba la zona plana del Valle antes de empezar a subir hacia la cordillera Central.
 
-Atacó entonces.
+El estado de la general en la mañana de la séptima etapa:
 
-Ríos tardó siete segundos en responder.
+1. Corredor del Valle a 0 segundos
+2. Ferney Ríos a 18 segundos
+3. Corredor de Caldas a 34 segundos
+4. Santi a 46 segundos
 
-En siete segundos, al ritmo que llevaban, se construían diez metros.
+Cuarenta y seis segundos. La diferencia con el líder era recuperable en la montaña. La diferencia con Ríos —que era el único que le preocupaba— era de veintiocho segundos. Veintiocho segundos en dieciocho kilómetros de subida era menos de dos segundos por kilómetro: matemáticamente cómodo, estratégicamente exigente.
 
-Santi abrió diez metros. Los mantuvo. En el kilómetro catorce los abrió a veinte. En el kilómetro dieciséis a cuarenta.
+En la reunión del equipo, Mejía dibujó el perfil:
 
-Ríos no lo alcanzó.
+—Los primeros dieciocho kilómetros son de aproximación por el llano. El pelotón va a rodar tranquilo ahí —nadie ataca en el llano cuando la llegada es en alto. La carrera empieza cuando llegamos a la base del Alto del Vino. —Marcó el kilómetro dieciocho—. Base a setecientos veinte metros. Cima a mil novecientos cincuenta. Dieciocho kilómetros de subida. Seis y medio de media, diez en los últimos cuatro. —Pausa—. El corredor del Valle no sube. En los primeros tres kilómetros del ascenso se va a soltar. No lo marques. Marcás a Ríos.
 
-Ganó la etapa reina con cincuenta y tres segundos sobre Ríos y recuperó todo lo perdido en el contrarreloj más doce segundos adicionales.
+—¿El plan para Ríos?
 
-Ganó la Vuelta de la Juventud de Colombia.
+—Lo que estudiaste en el Miraflores. Ríos es disciplinado: va a llevar ritmo para desgastar al resto y esperar a que tú cedas en algún momento. No vas a ceder. Cuando llegue al umbral, esperás treinta segundos y atacás.
+
+—¿Por qué treinta?
+
+—Porque cuando un corredor llega a su umbral y lo mantiene un tiempo, la respuesta al siguiente ataque tarda más que la respuesta normal. Los treinta segundos son el tiempo que necesita para sentir que aguanta. Cuando lo sienta, ya no tiene margen real para responder.
+
+Santi anotó: *Treinta segundos después del umbral.*
+
+---
+
+La salida neutralizada por las calles de Buga fue tranquila.
+
+El pelotón de setenta y ocho corredores rodó por la avenida principal —las tiendas cerradas todavía a esa hora, el mercado apenas abriendo, unos pocos aficionados en las aceras con vasos de tinto— y luego tomó la carretera hacia el sur donde los cañaverales flanqueaban el asfalto como paredes verdes. A esa hora el calor todavía era tolerable —veintiséis grados, no los treinta y dos del mediodía— y el viento era suave y venía del norte, lo que significaba que en los dieciocho kilómetros de aproximación el pelotón iba a rodar con un empuje ligero a favor.
+
+Santi se ubicó en la posición doce. Lo suficientemente adelante para no gastar energía defendiendo posición en los movimientos del pelotón, lo suficientemente atrás para no ser visible.
+
+Ríos estaba en la posición ocho. Santi lo podía ver: la camiseta azul y roja del Cundinamarca, la postura alta en el manubrio que tenían los cronometrados, el tipo de posición que es eficiente en el llano y que en la montaña hay que adaptar.
+
+En los primeros cinco kilómetros de aproximación un corredor del Valle atacó —un escapado que todos dejaron ir porque no había peligro: no era montañero, la diferencia iba a desaparecer en la base del alto. El pelotón lo dejó abrir dos minutos y luego rodó tranquilo, sin perseguir. Dieciocho kilómetros de llano para llegar a la carrera.
+
+---
+
+La base del Alto del Vino llegó con un cambio de paisaje que en Colombia siempre es inmediato: los cañaverales del Valle del Cauca dieron paso a los primeros cafetales en los flancos de la cordillera, y los cafetales a los platanales que aquí subían hasta los mil metros, y más arriba empezaba el bosque andino con su musgo y sus helechos y esa neblina baja que en los cerros del Cauca aparece a media mañana y no siempre desaparece al mediodía.
+
+El corredor escapado fue alcanzado exactamente en la base de la subida, en el kilómetro dieciocho, cuando la carretera dejó de ser llana y la primera rampa al cuatro por ciento anunció lo que venía. El pelotón lo absorbió sin violencia y en los primeros trescientos metros de ascenso la cadena de movimientos empezó: los sprinters y los rodadores que en el llano eran poderosos se fueron hacia atrás como si la gravedad los reclamara de vuelta, y los escaladores flotaron hacia adelante con esa ligereza específica de los corredores delgados que la montaña libera en lugar de oprimir.
+
+El grupo de cabeza en el kilómetro veintiuno —tres kilómetros de subida efectiva— era de veintidós corredores.
+
+El corredor líder del Valle cedió en el kilómetro veintitrés, exactamente como Mejía había dicho. No fue espectacular: simplemente el ritmo del grupo fue el que fue y él no pudo mantenerse y se quedó dos metros atrás, luego cuatro, luego los cuatro se convirtieron en veinte y los veinte en el anonimato del pelotón detrás. Santi lo vio por la esquina del ojo y no hizo nada. El líder de la carrera ya no era el problema.
+
+El problema era el segundo puesto de la general.
+
+El problema era Ríos.
+
+---
+
+Ferney Ríos corrió los primeros cinco kilómetros del Alto del Vino desde la posición cuatro, detrás de su gregario —un corredor del Cundinamarca que controlaba el ritmo con intención: no demasiado rápido, no demasiado lento, el ritmo exacto que mantiene al grupo unido y previene ataques intempestivos. Era un plan inteligente. Obligaba a los demás a reaccionar en lugar de actuar.
+
+Santi estaba en la posición seis, a dos ruedas de Ríos.
+
+Lo miraba. No constantemente —mirarlo constantemente es una señal que el rival lee— sino con ese sistema de lecturas intermitentes que Ospina le había enseñado: cada treinta segundos, una lectura de tres segundos. Cadencia. Torso. Respiración.
+
+En el kilómetro veinticuatro Ríos estaba en ochenta y dos revoluciones por minuto. En el kilómetro veinticinco en ochenta. En el veintiséis en setenta y ocho.
+
+Bajando.
+
+No era una caída de colapso —era la caída gradual de quien está manejando el esfuerzo, quien ha calculado cuánto puede dar en cada momento y no quiere sobrepasar ese cálculo. Eso también era información: Ríos estaba siendo disciplinado. Disciplinado significaba que no iba a explotar de sorpresa. Significaba que cuando llegara al umbral iba a estar cerca del límite pero no cruzado, y que su respuesta al ataque, cuando llegara, iba a ser la respuesta de alguien que todavía tiene algo.
+
+El grupo de veintidós era ahora de doce.
+
+La reducción había ocurrido sin que nadie la anunciara: cuatro kilómetros de seis y medio por ciento, las cuentas cobradas a los que en el llano eran buenos pero no suficientes para este terreno, y diez corredores menos que seguirían hacia la cima por su propio recorrido.
+
+Doce.
+
+El corredor del Caldas —tercero en la general— estaba en la posición tres. Ríos en la cuatro con su gregario todavía presente. El corredor de Antioquia que era el favorito de su equipo en la posición siete. Y Santi en la sexta, viendo todo, contando todo.
+
+---
+
+El kilómetro veintisiete con el primer cambio de pendiente del Alto del Vino: del seis y medio al ocho durante seiscientos metros. El grupo respondió a la rampa con ese ajuste que hacen los grupos en montaña cuando la carretera sube: los que tienen piernas aceleran ligeramente de forma involuntaria, los que están al límite sienten el aumento como un aviso.
+
+El corredor de Caldas cedió.
+
+Quedaron nueve.
+
+El gregario de Ríos, todavía presente en la posición dos, marcó el ritmo en el ocho por ciento con una eficiencia que Santi reconoció como trabajo de calidad: no estaba acelerando para destruir, estaba controlando para proteger. Le quedaban dos o tres kilómetros de trabajo antes de abrirse.
+
+Santi contó posiciones: el gregario de Ríos, Ríos, un corredor de Santander, un chico del Nariño, el corredor de Antioquia, Santi, y tres más detrás.
+
+Ocho. En nueve kilómetros de llegada.
+
+Mejía en el auricular: —Kilómetro veintisiete. ¿Cómo están las piernas?
+
+—Bien.
+
+—¿Ríos?
+
+—Controlado. Su gregario todavía presente.
+
+—Espera al gregario. Cuando el gregario se abra, estudia el momento.
+
+—Sí.
+
+---
+
+El kilómetro veintiocho volvió al seis y medio. El veinticinco. El kilómetro treinta con el segundo cambio de pendiente: al siete por ciento.
+
+El gregario de Ríos —cuatro kilómetros de trabajo, quinientos de desnivel acumulado— dio su última palada al ritmo en el kilómetro treinta y se abrió hacia el costado de la carretera con la resignación digna de los gregarios que han cumplido su trabajo. Pasó por la posición de Santi yendo hacia atrás y los dos se miraron un segundo sin decir nada, ese segundo que en las carreras sub-23 colombianas tiene el peso de años de pelotones compartidos y conocidos en común.
+
+Quedaban ocho corredores sin el gregario.
+
+Ríos tomó la cabeza.
+
+---
+
+Ríos en la cabeza marcando su propio ritmo era diferente a Ríos con el gregario protegiéndolo. En la cabeza el corredor es visible: no hay rueda en la que esconderse, no hay nadie que administre el esfuerzo. El cuerpo se expone. La respiración se expone. La cadencia se expone.
+
+Santi pasó a la segunda posición.
+
+Miró la espalda de Ríos y lo que vio era esto: ochenta y un revoluciones por minuto. Torso ligeramente más alto que antes —un milímetro o dos que en la fatiga muscular representan el ajuste involuntario cuando la espalda baja empieza a protestar. Respiración en dos tiempos —dentro en un tiempo, afuera en uno— que es el patrón del corredor que está en el umbral pero lo está manejando. Todavía no al límite. Cerca.
+
+El kilómetro treinta y uno al siete.
+
+El treinta y dos al siete y medio.
+
+El grupo de ocho se convirtió en seis cuando la rampa llegó al ocho en el kilómetro treinta y dos: dos corredores de equipos departamentales que habían resistido más de lo esperado cedieron sin drama y se quedaron en la carretera con la expresión de quien ha dado todo lo que tenía y lo sabe.
+
+Seis.
+
+Ríos. Un corredor de Antioquia. Santi. Un chico del Huila. Y dos más cuya identidad Santi ya no procesaba —procesaba a Ríos.
+
+---
+
+El kilómetro treinta y tres tenía una recta de trescientos metros desde donde la cima del Alto del Vino era visible por primera vez: una antena de repetidor en lo alto de la montaña, blanca y discreta, que a esa hora tenía niebla en la base y el sol en la punta. Cinco kilómetros. Cuatro si la cima estaba donde parecía. La niebla que empezaba a formarse en los flancos del cerro significaba que el último kilómetro iba a ser más frío y más húmedo que todo lo anterior.
+
+Santi miró a Ríos.
+
+Setenta y nueve revoluciones por minuto.
+
+Setenta y ocho.
+
+El umbral.
+
+El cuerpo de Ríos había llegado exactamente al límite que Santi había identificado en el Miraflores: la cadencia bajaba dos unidades, el torso se apretaba levemente, la respiración hacía ese pequeño ajuste que no es agotamiento pero que es la antesala del agotamiento. Ríos lo estaba manejando. Ríos era disciplinado. Pero el umbral estaba ahí.
+
+Santi contó.
+
+Uno.
+
+Cinco segundos.
+
+Diez.
+
+Quince.
+
+Ríos mantuvo el ritmo. No bajó más. Setenta y ocho. Aguantando.
+
+Veinte.
+
+Veinticinco.
+
+En el segundo veinticinco la cadencia de Ríos subió levemente —setenta y nueve— el ajuste de quien ha decidido que aguanta. Que no va a ceder. Que puede con esto.
+
+Treinta.
+
+Santi atacó.
+
+---
+
+El ataque en el kilómetro treinta y tres fue el ataque más limpio que Santi había ejecutado en lo que llevaba de temporada.
+
+No fue un ataque de explosión —fue una aceleración progresiva y constante que aprovechó exactamente los treinta segundos en que Ríos había estado en el umbral gastando energía para mantenerse ahí, para luego encontrarse con una demanda extra justo cuando la reserva empezaba a escasear.
+
+Cinco metros en cuatro segundos.
+
+Diez metros en ocho.
+
+Detrás, el sonido del grupo respondiendo. Santi no miró. Contó: en el ataque del Miraflores, Ríos había tardado cuatro segundos en responder. Ahora estaba en el segundo siete y no había respuesta.
+
+Ocho segundos.
+
+Diez.
+
+En el segundo doce, la respuesta de Ríos.
+
+Tardó el doble que en el Miraflores.
+
+Los diez metros se quedaron en diez metros durante cinco segundos. Ríos cerraba. Cerraba. Nueve metros y medio. Nueve. Ocho.
+
+Luego el cierre se detuvo.
+
+Ocho metros durante diez segundos. Ríos no podía cerrar más.
+
+Luego nueve. Luego diez. Luego doce.
+
+---
+
+Santi abrió la diferencia con la serenidad del corredor que ha ejecutado exactamente el plan que tenía y que sabe que si las piernas responden el resultado ya es inevitable. No fue euforia —la euforia en los puertos mata: eleva el ritmo cardíaco dos pulsaciones de más y dos pulsaciones de más en el kilómetro treinta y tres de un alto de treinta y seis son el margen entre terminar y explotar. Fue un estado de ejecución: el cuerpo haciendo lo que el plan había dicho, los músculos respondiendo a la demanda sin pedir negociación.
+
+Trescientos setenta vatios. Ochenta y dos revoluciones por minuto. Ciento setenta y cuatro pulsaciones.
+
+El kilómetro treinta y cuatro al ocho.
+
+El treinta y cinco al diez.
+
+La niebla llegó exactamente en el treinta y cinco —una pared de humedad fría que el cuerpo absorbió de golpe después de cuatro kilómetros de calor de esfuerzo. El maillot mojado en dos segundos. Los dedos en los manubrios con ese frío específico de la niebla andina que no es el frío seco del altiplano sino el frío húmedo de la nube que se asienta. El asfalto más oscuro.
+
+El cuerpo no se perturbó. El cuerpo había aprendido a ignorar el clima cuando la carrera pedía lo que la carrera pedía.
+
+El kilómetro treinta y seis al nueve.
+
+Mejía en el auricular: —Ríos a veintisiete metros. Veintidós segundos. Necesitas treinta y uno para la general.
+
+Veintidós segundos. Un kilómetro.
+
+Santi cambió al piñón doce. Ochenta y seis revoluciones. Trescientos ochenta vatios. La cima visible en la niebla a quinientos metros: la antena que había visto desde la recta del treinta y tres, ahora cercana y ya sin el sol de antes, envuelta en la nube que la tarde había subido desde el Valle.
+
+El letrero de meta a trescientos metros.
+
+Doscientos.
+
+El público —cincuenta o sesenta personas, los aficionados del Valle del Cauca que habían llegado en chiva y en camioneta a la cima para ver la etapa reina— aplaudió cuando lo vio aparecer desde la niebla. Era ese tipo de aplauso que los espectadores de montaña dan cuando el corredor llega solo, cuando saben que viene de ganar una batalla que no vieron pero de la que ven el resultado.
+
+Cien metros.
+
+La línea.
+
+---
+
+Cruzó en silencio.
+
+No había grito, no había celebración. Solo la línea cruzada y el cuerpo empezando a bajar de las cuatro horas de esfuerzo con esa lentitud particular que tienen los descensos del esfuerzo máximo —graduales, un poco dolorosos al principio cuando el ácido se disuelve, luego esa sensación de vaciamiento que es lo más parecido al alivio que el cuerpo conoce después de un trabajo así.
+
+Se detuvo. Mantuvo los pies en los pedales. La niebla alrededor. El frío.
+
+Mejía llegó al margen de la meta con el tiempo en la libreta:
+
+—Cincuenta y tres segundos sobre Ríos. General: primero, treinta y cinco segundos sobre el segundo.
+
+Primero.
+
+Treinta y cinco segundos.
+
+Santi lo procesó sin decir nada. Tomó el bidón que Mejía le extendió. Bebió. El agua fría después del esfuerzo tenía ese sabor que no es exactamente dulce ni exactamente salado sino algo entre los dos, la hidratación que el cuerpo recibe como una respuesta a una pregunta que llevaba noventa minutos esperando ser contestada.
+
+Ríos cruzó la meta cincuenta y tres segundos después con la cara de quien ha corrido al límite y no encontró más. Se detuvo. Los dos se miraron desde la distancia de veinte metros que los separaban sin que nadie los pusiera en posición todavía.
+
+No había mucho que decirse. La carrera lo había dicho.
 
 ---
 
 El podio fue en Manizales, la ciudad donde el año anterior había terminado cuarto.
 
-El mismo escenario, la misma arquitectura de tablones y lonas del organizador, pero desde el escalón más alto. Al lado, en el segundo, Ríos tenía la expresión de quien ha corrido bien y no ha podido más y lo sabe. Los dos se dieron la mano antes de que los organizadores los pusieran en posición.
+El mismo escenario, la misma arquitectura de tablones y lonas del organizador, pero desde el escalón más alto. Al lado, en el segundo, Ríos tenía la expresión de quien ha corrido bien y no ha podido más y lo sabe.
+
+Los dos se dieron la mano antes de que los organizadores los pusieran en posición.
 
 —Buena carrera —dijo Ríos.
 
@@ -140,9 +379,22 @@ Ríos asintió.
 
 —En la Porvenir.
 
-Pero en la Porvenir no era Ríos el problema. Los dos lo sabían. Lo que no dijeron, porque no hacía falta decirlo, era que en la Porvenir estaba Arroyave, que era una categoría distinta de rival, que lo que Santi acababa de hacer al Ríos en el Alto del Vino era una señal prometedora pero no una garantía.
+Pero en la Porvenir no era Ríos el problema. Los dos lo sabían. Lo que no dijeron, porque no hacía falta decirlo, era que en la Porvenir estaba Arroyave, que era una categoría distinta de rival, que lo que Santi acababa de hacer a Ríos en el Alto del Vino era una señal prometedora pero no una garantía.
 
-Esa noche, en el bus de vuelta, escribió: *Juventud 2017: primero. Arroyave no estaba. La pregunta real es agosto.*
+---
 
-Luego escribió debajo: *Cuatro meses*.
+Esa noche, en el bus de vuelta, escribió en la libreta: *Juventud 2017: primero. Arroyave no estaba. La pregunta real es agosto.*
 
+Luego escribió debajo: *Cuatro meses.*
+
+Luego, después de un largo rato mirando los cafetales oscuros por la ventana del bus, escribió una tercera cosa:
+
+*Lo que aprendí hoy: el umbral del rival no es el momento de atacar. El momento de atacar es cuando el rival cree que aguantó el umbral. Porque entonces ya gastó en dos frentes: en aguantar y en creer que aguantó.*
+
+Cerró la libreta.
+
+Fuera, Colombia pasaba en la oscuridad —los cafetales del Quindío, los potreros del Valle, las luces de los pueblos que a esa hora todavía tenían gente en los parques. El bus rodaba hacia Medellín y Santi miraba sin ver, con la cabeza en agosto, en el Puerto de Boyacá, en los treinta y dos kilómetros que en cuatro meses iban a decir si lo que había aprendido en el Alto del Vino era suficiente para lo que venía.
+
+No lo sabía todavía.
+
+Eso era parte de la respuesta.

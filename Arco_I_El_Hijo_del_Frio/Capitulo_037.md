@@ -106,6 +106,10 @@ El día libre fue extraño.
 
 El equipo hizo el reconocimiento en autobús por la mañana —Duchêne señalando desde la ventanilla los puntos clave del recorrido del prólogo, los mecánicos tomando notas, Verstraeten y los dos cronometrados del equipo prestando atención con esa concentración profesional de quien sabe que un punto de reconocimiento puede valer diez segundos—. Santi miraba también, aunque sus diez segundos en el prólogo eran irrelevantes en el contexto de tres semanas de carrera.
 
+Lo que sí le importó fue el tramo bajo la muralla.
+
+El recorrido del prólogo pasaba por una calle al pie de la muralla de la Ciudad Vieja —unos trescientos metros donde la piedra caliza se levantaba a la derecha y proyectaba una sombra larga sobre el asfalto. Era el kilómetro siete de nueve. El punto donde la velocidad en la contrarreloj sería de aproximadamente setenta kilómetros por hora en descenso suave. Santi lo anotó: *km 7 — bajo la muralla — posición de ataque, no de frenado.*
+
 Por la tarde, libre.
 
 Tom propuso ir al Muro de las Lamentaciones.
@@ -136,20 +140,28 @@ Tom compró un falafel en un puesto de la calle y lo comió caminando, salpicand
 
 Santi no comía nada. Tenía el estómago cerrado —no de nervios exactamente sino de esa concentración que a veces se apoderaba de él antes de las cosas grandes y que su cuerpo manejaba reduciendo todo lo que no era esencial.
 
-Mañana empezaba el Giro de Italia.
+Esta noche era la presentación de equipos.
 
-En Jerusalén.
+Veintidós equipos. Ciento setenta y seis corredores. El Giro de Italia presentándose al mundo en la explanada frente a las murallas de Jerusalén, con los focos y la música y los patrocinadores y las cámaras de televisión de treinta países.
+
+Y entre esos ciento setenta y seis: Santi Reyes Cardona, dieciocho años, San José de la Montaña, Antioquia.
 
 Su padre estaba en Medellín esperando resultados de más exámenes.
 
-Y Santi Reyes, dieciocho años, San José de la Montaña, iba a pedalear mañana bajo la misma muralla donde había dejado un papel doblado con tres palabras.
+Y él estaba aquí.
+
+Las dos cosas —las dos más importantes de su vida en ese momento— existían al mismo tiempo en el mismo cuerpo, y él todavía no había aprendido del todo a llevarlas juntas sin que una aplastara a la otra. Pero estaba aprendiendo.
+
+La muralla iluminada en la noche. El papel doblado en la grieta de dos mil años.
 
 *Papá. El Giro.*
 
-Como si las dos cosas —las dos más importantes de su vida en este momento— pudieran vivir en el mismo espacio sin que una aplastara a la otra.
+Volvió al hotel.
 
-Esa noche durmió ocho horas.
+Se duchó. Se vistió con el kit de presentación del equipo —el jersey de gala del Élan Cycliste, el mismo azul marino con la franja blanca y los detalles dorados, pero esta vez sin las marcas del esfuerzo, sin el sudor y el polvo de la carretera, limpio y planchado como algo que todavía no ha sido usado para lo que fue hecho.
 
-Como si el cuerpo supiera que lo que venía requería estar completamente descansado.
+Se miró en el espejo del baño durante cinco segundos.
 
-Como si el cuerpo, una vez más, supiera algo que la mente todavía estaba aprendiendo.
+Luego bajó a reunirse con el equipo.
+
+Afuera, Jerusalén esperaba.
