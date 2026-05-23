@@ -117,7 +117,7 @@ El estado de la general en la mañana de la séptima etapa:
 3. Corredor de Caldas a 34 segundos
 4. Santi a 46 segundos
 
-Cuarenta y seis segundos. La diferencia con el líder era recuperable en la montaña. La diferencia con Ríos —que era el único que le preocupaba— era de veintiocho segundos. Veintiocho segundos en dieciocho kilómetros de subida era menos de dos segundos por kilómetro: matemáticamente cómodo, estratégicamente exigente.
+Cuarenta y seis segundos. La diferencia con el líder era recuperable en la montaña. La diferencia con Ríos —que era el único que le preocupaba— era de dieciocho segundos. Veintiocho segundos en dieciocho kilómetros de subida era menos de dos segundos por kilómetro: matemáticamente cómodo, estratégicamente exigente.
 
 En la reunión del equipo, Mejía dibujó el perfil:
 
