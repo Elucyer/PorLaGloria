@@ -86,7 +86,7 @@ Santi lo anotó.
 
 El ocho de febrero cumplió diecisiete años.
 
-No hubo celebración grande —nunca la había habido en los cumpleaños de Santi, que era uno de esos cumpleaños de invierno que en Medellín caían en el período lluvioso y que su padre siempre marcaba con una cena en la casa, pollo y arroz con coco que era lo que Hernando sabía cocinar bien, y el intento de conversación que tenían los dos cuando estaban solos y el tema era personal.
+No hubo celebración grande —nunca la había habido en los cumpleaños de Santi, que en Medellín caía en el período lluvioso de febrero, y que su padre siempre marcaba con una cena en la casa, pollo y arroz con coco que era lo que Hernando sabía cocinar bien, y el intento de conversación que tenían los dos cuando estaban solos y el tema era personal.
 
 Ese año la cena fue igual. Pero la conversación fue diferente.
 

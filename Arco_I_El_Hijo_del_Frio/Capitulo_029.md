@@ -32,7 +32,9 @@ Ospina hizo una pausa.
 
 ---
 
-Llegaron a Lyon un martes por la tarde, con siete horas de vuelo encima y el desfase horario instalándose como un huésped que no avisa. El equipo Colombia —seis corredores, dos directores, un médico y una mecánica— se hospedó en un hotel de tres estrellas en las afueras de la ciudad donde los pasillos olían a desinfectante y las camas eran más duras de lo que parecían.
+Llegaron a Loudéac un martes por la tarde, con siete horas de vuelo encima y el desfase horario instalándose como un huésped que no avisa. El equipo Colombia —seis corredores, dos directores, un médico y una mecánica— se hospedó en un hotel de tres estrellas en las afueras de la ciudad donde los pasillos olían a desinfectante y las camas eran más duras de lo que parecían.
+
+Loudéac era Bretaña: una ciudad pequeña en el interior de la región, rodeada de campos que no se parecían a ningún campo que Santi hubiera visto. El verde era diferente —más oscuro, más húmedo, sin el rojo de la tierra antioqueña bajo los pastos. El cielo estaba bajo, con nubes que no amenazaban lluvia sino que simplemente eran parte del paisaje, como si en Bretaña el cielo y la tierra hubieran llegado a un acuerdo de convivencia sin que el sol necesitara intervenir.
 
 Santi no durmió bien la primera noche. No por el desfase sino por la ventana: abrió las persianas a las tres de la madrugada y vio Francia —los tejados de pizarra gris, la calle mojada por una lluvia que había caído sin que él la oyera, un semáforo parpadeando en amarillo para nadie— y el lugar donde estaba se le presentó con una concreción que el viaje en avión había mantenido abstracta. Estaba en Francia. A más de nueve mil kilómetros de Medellín. A más de nueve mil kilómetros de su padre que esa noche estaba en el apartamento de Floresta durmiendo —o no durmiendo, porque Hernando Reyes tampoco dormía bien las noches en que Santi hacía algo importante.
 
@@ -42,18 +44,22 @@ Durmió cuatro horas.
 
 ---
 
-La primera etapa del Tour de l'Avenir era un prólogo de cuatro kilómetros y medio por las calles de Lyon. Santi la corrió en doce minutos y cuarenta y ocho segundos, tiempo que lo dejó en el puesto cuarenta y tres de sesenta y un participantes. No era un crono —esa era la disciplina donde tenía más que aprender— y el resultado no importaba en sí mismo. Lo que importaba era lo que sintió: que a cuatro kilómetros de velocidad máxima en una ciudad europea, con el público en las vallas y los altavoces transmitiendo los tiempos y los fotógrafos en las curvas, el ciclismo seguía siendo el ciclismo. El mismo esfuerzo. La misma conversación entre el cuerpo y la voluntad.
+La primera etapa del Tour de l'Avenir era un circuito de ciento treinta y cuatro kilómetros alrededor de Loudéac, con salida y llegada en la misma ciudad. Una etapa para sprinters, para equipos que controlaban el pelotón y dictaban el ritmo de la carrera desde la cabeza. Santi la corrió en el pelotón, en posición media, con las instrucciones del director: *quedáte quieto, observá, no gastés nada que no sea necesario*.
 
-Eso lo tranquilizó más que cualquier resultado.
+El pelotón europeo era diferente al colombiano desde el primer kilómetro.
+
+No más duro —diferente. La manera en que los equipos bloqueaban las posiciones, la velocidad con que absorbían las fugas, la presión constante en los llanos que no daba margen de recuperación real: todo tenía una eficiencia que en Colombia Santi había intuido sin haberla vivido. Aquí los equipos con sprinters llevaban a los suyos protegidos durante ciento veinte kilómetros y los soltaban en los últimos catorce con la precisión de quien ha ensayado cada movimiento. Santi llegó a la meta en el pelotón, sin haberse movido de donde le habían pedido, y supo que había aprendido algo que no podía anotar en la libreta.
 
 ---
 
 Ospina tenía razón sobre la velocidad en los llanos.
 
-La segunda etapa —ciento cuarenta y dos kilómetros por la llanura entre Roanne y Mâcon, con un perfil que en el papel parecía llano pero que en la carretera tenía esos repechos breves y continuos que los franceses llaman *faux plat* y que son la trampa perfecta para los escaladores que no han aprendido a pedalear en llano con eficiencia— la corrió pegado a las ruedas del medio del pelotón, intentando sobrevivir. El pelotón europeo en los llanos se movía a cuarenta y cinco kilómetros por hora de media, con ráfagas a cincuenta cuando los equipos con sprinters empezaban a controlar para el final. Santi, que en Colombia corría los llanos a treinta y ocho de media, procesó la diferencia en el primer kilómetro: aquí los llanos eran una carrera diferente.
+Las etapas dos y tres —por el interior de Bretaña, entre Inzinzac-Lochrist y Bignan, luego entre Missillac y Châteaubriant— tenían perfiles que en el papel parecían llanos y en la carretera tenían esos repechos breves y continuos que los franceses llaman *faux plat* y que son la trampa perfecta para los escaladores que no han aprendido a pedalear en llano con eficiencia. El pelotón europeo se movía a cuarenta y cinco de media en esas carreteras bretonas, con ráfagas a cincuenta cuando los trenes de los equipos con sprinters empujaban. Santi, que en Colombia corría los llanos a treinta y ocho de media, procesó la diferencia en el primer kilómetro de la segunda etapa y no volvió a subestimarla.
 
-Llegó a meta en el grupo principal. Solo.
+Las etapas cuatro, cinco y seis bajaron hacia el Valle del Loira —ciento sesenta y seis kilómetros de Derval a Saumur, luego a Amboise, luego a Saint-Amand-Montrond— con un calor diferente al de Bretaña, más seco, el calor del interior de Francia en agosto que no tenía la humedad del Atlántico. En esas etapas Santi terminó siempre en el pelotón. Ni atacó ni fue atacado. Observó, ahorró, aprendió el ritmo de una carrera de nueve días que todavía tenía lo importante por delante.
 
-Eso era suficiente por ahora.
+Al final de la sexta etapa estaba decimocuarto en la clasificación general, a tres minutos del líder general: Egan Bernal, su compañero de equipo, que llevaba la camiseta de líder desde la primera llegada en alto y la llevaba con la comodidad de quien ya no se sorprende de que las cosas vayan bien.
 
-La carretera plana había dicho lo suyo. Lo que quedaba —los Alpes, los puertos, la etapa reina— lo diría todo lo demás.
+Los Alpes arrancaban mañana.
+
+La carretera plana había dicho lo suyo. Lo que quedaba lo diría todo lo demás.

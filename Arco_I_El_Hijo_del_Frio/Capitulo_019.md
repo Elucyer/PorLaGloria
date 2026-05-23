@@ -102,7 +102,7 @@ Lo que garantizaba era que si no los trabajabas, la distancia crecía.
 
 Volvió a Medellín el veintisiete de diciembre.
 
-Su padre lo fue a buscar a la terminal —no era un viaje largo, dos horas desde San José, pero Hernando siempre iba a buscarlos, era uno de los gestos fijos que tenía y que Santi había aprendido a leer como afecto porque su padre expresaba el afecto en gestos fijos, no en palabras—. En el carro, de vuelta al apartamento, estuvieron callados un rato antes de que Hernando dijera:
+Su padre lo fue a buscar a la terminal —no era un viaje largo, dos horas desde San José, pero Hernando siempre iba a buscarlos, era uno de los gestos fijos que tenía y que Santi había aprendido a leer como afecto porque su padre expresaba el afecto en gestos fijos, no en palabras—. Su madre no había ido porque tenía guardia esa tarde, pero cuando llegaron al apartamento ella ya estaba, con la mesa puesta y esa eficiencia suya de quien organiza el espacio antes de que los demás lleguen a desorganizarlo. En el carro, de vuelta al apartamento, estuvieron callados un rato antes de que Hernando dijera:
 
 —Arenas me llamó.
 

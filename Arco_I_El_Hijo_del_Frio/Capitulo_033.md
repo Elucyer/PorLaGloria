@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 19 — Los adoquines (Flandes, enero–febrero de 2018)
+### Capítulo 33 — Los adoquines (Flandes, enero–febrero de 2018)
 
 ---
 

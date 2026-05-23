@@ -36,7 +36,11 @@ Santi asintió. Pero la parte de él que subía el Alto de Minas en la oscuridad
 
 La primera etapa fue un circuito por las carreteras planas del oriente antioqueño, entre Guarne y El Retiro, con un final en alto en la subida a La Unión: ocho kilómetros de asfalto tendido pero constante, sin rampas explosivas, el tipo de final donde no gana el más fuerte sino el más listo.
 
-Santi siguió las instrucciones de Ospina durante los primeros treinta y dos kilómetros. Se quedó en el pelotón, en una posición de quinto o sexto fila, estudiando. Vio cómo el equipo de Bello tenía tres hombres en la cabeza controlando el ritmo. Vio al corredor del Indeportes Antioquia —un chico rubio y grande, de dieciséis años, con las piernas de un rodador— intentar tres ataques en los llanos que el pelotón absorbió sin esfuerzo. Vio cómo Camilo, que conocía el final, fue subiendo posiciones a medida que se acercaban al inicio de la subida.
+El kilómetro diecinueve le reveló algo que no estaba en ningún plan de entrenamiento: la llanta trasera se desinfló con un sonido seco y sin aviso, en un tramo de asfalto deteriorado entre El Retiro y el inicio de la subida. Santi bajó, colocó la bicicleta boca arriba, cambió el neumático con las manos que todavía no conocían bien la urgencia de ese movimiento. Cuarenta y siete segundos. Más tarde, revisando los cronómetros, supo que cuarenta y siete segundos era exactamente el tiempo que necesitaría para recuperar las posiciones que había perdido esperando en el arcén. No las recuperó todas. Pero casi.
+
+Desde el arcén, mientras sus compañeros del pelotón pasaban a la velocidad que no le esperaba nadie, un hombre con libreta en la mano y expresión de quien está procesando algo lo vio hacer el cambio. No dijo nada. Solo anotó.
+
+Santi siguió las instrucciones de Ospina durante los primeros treinta y dos kilómetros restantes. Se quedó en el pelotón, en una posición de quinto o sexto fila, estudiando. Vio cómo el equipo de Bello tenía tres hombres en la cabeza controlando el ritmo. Vio al corredor del Indeportes Antioquia —un chico rubio y grande, de dieciséis años, con las piernas de un rodador— intentar tres ataques en los llanos que el pelotón absorbió sin esfuerzo. Vio cómo Camilo, que conocía el final, fue subiendo posiciones a medida que se acercaban al inicio de la subida.
 
 En el kilómetro treinta y tres, cuando la carretera empezó a levantarse hacia La Unión, Santi subió también.
 

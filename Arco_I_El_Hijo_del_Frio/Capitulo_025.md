@@ -138,7 +138,19 @@ El tinto se había enfriado. Ninguno de los dos lo había notado.
 
 El jueves a las siete de la mañana, el bus del equipo salió del norte de Medellín hacia Boyacá.
 
-Santi fue al asiento del fondo. La bicicleta en el portabicicletas. La bolsa de ropa en el maletero. La libreta en el bolsillo de la chaqueta.
+Su madre lo había levantado a las cinco y media con el café ya hecho —ella siempre se levantaba antes, era uno de esos hechos del apartamento de Floresta tan constante como la mata de heliconias en el balcón— y lo había visto desayunar sin decirle nada especial, que era la manera en que ella lo mandaba a las cosas importantes: sin discurso, sin drama, con el café caliente y el pan con mantequilla y la certeza silenciosa de que estaba listo.
+
+En la puerta le había ajustado el cierre de la mochila que él no había terminado de cerrar bien.
+
+—Andá con cuidado —dijo.
+
+—Sí.
+
+—Y ganás.
+
+No era una instrucción. Era una declaración del mismo tipo que las que hacía su padre, solo que Carmen Reyes las decía en voz alta.
+
+Santi fue al asiento del fondo del bus. La bicicleta en el portabicicletas. La bolsa de ropa en el maletero. La libreta en el bolsillo de la chaqueta.
 
 Mientras el bus salía de la ciudad por la autopista Norte y el valle de Medellín quedaba atrás —el río Aburrá, los cerros del costado oriental, la ciudad que se achicaba en el espejo retrovisor— Santi abrió la libreta en la última página escrita.
 
