@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 10A — El Clásico RCN juvenil (Antioquia–Caldas, julio de 2016)
+### Capítulo 14 — El Clásico RCN juvenil (Antioquia–Caldas, julio de 2016)
 
 ---
 

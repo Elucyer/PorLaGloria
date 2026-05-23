@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 11 — La Vuelta del Porvenir (Colombia, agosto de 2017)
+### Capítulo 27 — La Vuelta del Porvenir (Colombia, agosto de 2017)
 
 ---
 

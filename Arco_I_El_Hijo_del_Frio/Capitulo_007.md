@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 5 — Lo que enseña la caída (Antioquia, 2013–2014)
+### Capítulo 7 — Lo que enseña la caída (Antioquia, 2013–2014)
 
 ---
 

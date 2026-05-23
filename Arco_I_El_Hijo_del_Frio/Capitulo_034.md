@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 20 — Simon Clarke (Flandes, febrero de 2018)
+### Capítulo 34 — Simon Clarke (Flandes, febrero de 2018)
 
 ---
 
@@ -12,7 +12,7 @@ A mediados de febrero, con el frío de Flandes en su punto más comprometido —
 
 Santi y Clarke salieron juntos.
 
-No fue planificado. Clarke estaba en el taller revisando su bicicleta cuando Santi llegó, y Clarke dijo "¿a qué hora salís?" y Santi dijo "en diez minutos" y Clarke dijo "yo también" y eso fue todo. Los dos hombres, siete años de diferencia, dos continentes de diferencia, pedaleando hacia el norte por la carretera de Deinze en el silencio cómodo de los corredores que ya no necesitan hablar para compartir un ritmo.
+No fue planificado. Clarke estaba en el taller revisando su bicicleta cuando Santi llegó, y Clarke dijo "¿a qué hora salís?" y Santi dijo "en diez minutos" y Clarke dijo "yo también" y eso fue todo. Los dos hombres, catorce años de diferencia, dos continentes de diferencia, pedaleando hacia el norte por la carretera de Deinze en el silencio cómodo de los corredores que ya no necesitan hablar para compartir un ritmo.
 
 ---
 

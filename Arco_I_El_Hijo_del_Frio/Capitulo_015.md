@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 10B — El Alto de Minas por Caldas (etapa reina del Clásico RCN, julio de 2016)
+### Capítulo 15 — El Alto de Minas por Caldas (etapa reina del Clásico RCN, julio de 2016)
 
 ---
 

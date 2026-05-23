@@ -58,7 +58,7 @@ Ospina lo había advertido la semana anterior.
 
 —Con paciencia. Y haciendo que la marca cueste más energía que la que te cuesta a vos.
 
-Santi aprendió eso en la segunda etapa, cuando intentó atacar en el kilómetro treinta del Alto de Palmas y los dos del Manizales respondieron de inmediato, pegados a su rueda, sin dejar espacio. Los llevó durante tres kilómetros a un ritmo que ninguno de los tres podía sostener por mucho tiempo —un ritmo calculado para que ellos pagaran más que él, para que la marca costara— y en el kilómetro treinta y tres uno de los dos cedió. El otro aguantó hasta el kilómetro treinta y seis.
+Santi aprendió eso en la tercera etapa, cuando intentó atacar en el kilómetro treinta del Alto de Palmas y los dos del Manizales respondieron de inmediato, pegados a su rueda, sin dejar espacio. Los llevó durante tres kilómetros a un ritmo que ninguno de los tres podía sostener por mucho tiempo —un ritmo calculado para que ellos pagaran más que él, para que la marca costara— y en el kilómetro treinta y tres uno de los dos cedió. El otro aguantó hasta el kilómetro treinta y seis.
 
 Ganó la etapa con cuarenta y ocho segundos.
 
@@ -72,6 +72,8 @@ No solo una etapa —una carrera. Cuatro días, cuatro etapas, clasificación ge
 
 Su padre lo guardó en el teléfono. No lo dijo. Santi lo supo porque cuando llegó al apartamento esa noche, Hernando estaba sentado en la sala con el teléfono en la mano y cuando Santi entró lo puso boca abajo en la mesa con un movimiento que pretendía ser casual y no lo era.
 
+Su madre salió de la cocina con el delantal puesto y lo abrazó antes de que él pudiera decir nada —el abrazo de siempre, corto y firme, el que ella tenía para las llegadas importantes— y luego volvió a la cocina porque había algo en el fogón que no podía esperar.
+
 —¿Cómo están las piernas? —preguntó Hernando.
 
 —Bien —dijo Santi.
@@ -82,11 +84,13 @@ Su padre lo guardó en el teléfono. No lo dijo. Santi lo supo porque cuando lle
 
 Hernando asintió. Volvió a ver la televisión.
 
+Desde la cocina llegó el olor del arroz con coco que su madre había aprendido a hacer exactamente como a su padre le gustaba.
+
 Era la manera de su padre de decir todo lo que no iba a decir con palabras: que lo había visto, que estaba orgulloso, que la carrera importaba y que las piernas importaban más todavía.
 
 Santi se fue al cuarto.
 
-Antes de dormirse escribió en la libreta, con la misma letra que usaba para los datos de entrenamiento: *Primera carrera ganada. Porvenir Antioqueño, sub-23. Cuatro etapas. Bogotá en octubre.*
+Antes de dormirse escribió en la libreta, con la misma letra que usaba para los datos de entrenamiento: *Primera carrera ganada. Porvenir Antioqueño, sub-23. Cuatro etapas. Juventud en octubre, Manizales.*
 
 Debajo añadió: *Arroyave*.
 

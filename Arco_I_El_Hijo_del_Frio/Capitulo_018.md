@@ -64,7 +64,7 @@ Santi anotó eso en la libreta. No el resultado. La lógica.
 
 Noviembre fue el mes de los exámenes finales del colegio.
 
-El Salesiano terminaba en la primera semana de diciembre —las pruebas de Estado para los que iban a la universidad en noviembre, la ceremonia de grado en la segunda semana de diciembre— y mientras Santi hacía el rodaje de recuperación y planificaba con Ospina el bloque de invierno, el pasillo del cuarto piso del colegio tenía ese ambiente de último año que mezcla el alivio de terminar con la ansiedad de lo que viene después.
+El Salesiano terminaba en la primera semana de diciembre —las pruebas de Estado para los que iban a la universidad en noviembre, la ceremonia de grado en la segunda semana de diciembre— y mientras Santi hacía el rodaje de recuperación y planificaba con Ospina el bloque de base, el pasillo del cuarto piso del colegio tenía ese ambiente de último año que mezcla el alivio de terminar con la ansiedad de lo que viene después.
 
 Julián estudiaba para el ICFES con una intensidad que Santi reconocía porque era la misma que él mismo aplicaba a los puertos.
 

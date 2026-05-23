@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 15 — Mallorca (marzo de 2018)
+### Capítulo 35 — Mallorca (marzo de 2018)
 
 ---
 
@@ -34,11 +34,11 @@ Santi leyó el mensaje. Lo archivó en la carpeta de su teléfono donde guardaba
 
 ---
 
-En Mallorca conoció a Simon Clarke.
+En Mallorca, la conversación con Simon Clarke cambió de carácter.
 
-Simon no era del equipo —corría para un equipo australiano y estaba también en concentración en la isla— pero compartían hotel y coincidieron en el desayuno el tercer día. Simon tenía treinta y un años, once temporadas de profesional en el cuerpo, y esa manera de hablar de la bicicleta que tienen los veteranos: sin adornos, con precisión, sin el entusiasmo de quien todavía descubre cosas pero tampoco con el cansancio de quien ya no le quedan cosas por descubrir.
+Desde el primer día en Waregem habían coincidido en los entrenamientos, en las reuniones de equipo, en los desayunos del cuartel, pero la convivencia de los primeros dos meses había sido funcional más que íntima: Simon tenía doce años más, dos décadas de carreteras europeas, y esa manera de moverse por un cuartel de equipo que tienen los veteranos cuando ya no necesitan probar nada a nadie. Santi había aprendido a leerlo sin palabras, que era la manera en que Clarke operaba. En Mallorca, con los entrenamientos más largos y las tardes más vacías, empezaron a hablar.
 
-Se reconocieron sin presentación previa —la ropa del equipo, los cuerpos que cualquier ciclista puede leer a primera vista, la manera de poner el casco en la silla.
+El tercer día de concentración coincidieron en el desayuno del hotel antes de la sesión de la mañana. Clarke tenía treinta y dos años en ese momento, once temporadas de profesional en el cuerpo, y esa manera de hablar de la bicicleta que tienen los veteranos: sin adornos, con precisión, sin el entusiasmo de quien todavía descubre cosas pero tampoco con el cansancio de quien ya no le quedan cosas por descubrir.
 
 —Primera temporada —dijo Simon, no como pregunta.
 

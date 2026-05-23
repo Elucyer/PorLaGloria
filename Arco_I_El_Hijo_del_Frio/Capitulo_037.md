@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 17 — Jerusalén (Israel, 2 de mayo de 2018)
+### Capítulo 37 — Jerusalén (Israel, 2 de mayo de 2018)
 
 ---
 

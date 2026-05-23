@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 3C — La Colnago (Floresta, noviembre de 2012)
+### Capítulo 5 — La Colnago (Floresta, noviembre de 2012)
 
 ---
 

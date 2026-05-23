@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 14 — Bélgica (enero–febrero de 2018)
+### Capítulo 32 — Bélgica (enero–febrero de 2018)
 
 ---
 

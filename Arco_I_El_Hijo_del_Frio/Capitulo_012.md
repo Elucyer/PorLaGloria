@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 9 — Lo que el padre sabe (Medellín, 2015–2016)
+### Capítulo 12 — Lo que el padre sabe (Medellín, 2015–2016)
 
 ---
 

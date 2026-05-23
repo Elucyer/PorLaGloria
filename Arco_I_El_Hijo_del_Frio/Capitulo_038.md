@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 18 — El prólogo (Jerusalén, 4 de mayo de 2018)
+### Capítulo 38 — El prólogo (Jerusalén, 4 de mayo de 2018)
 
 ---
 

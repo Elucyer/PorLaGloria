@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 16 — La llamada (Bélgica, abril de 2018)
+### Capítulo 36 — La llamada (Bélgica, abril de 2018)
 
 ---
 

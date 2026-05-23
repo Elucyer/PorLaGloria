@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 8 — El récord del Boquerón (Medellín, diciembre de 2015)
+### Capítulo 11 — El récord del Boquerón (Medellín, diciembre de 2015)
 
 ---
 
@@ -60,7 +60,7 @@ Ospina miró el cronómetro.
 
 Los primeros tres kilómetros, Santi los subió calculado.
 
-No lento —nadie sube el Boquerón lento y espera llegar arriba— sino medido, con la potencia controlada en la zona que Ospina y Mejía habían definido como sostenible para cuarenta minutos de esfuerzo. Era la trampa clásica del récord: el impulso de salir fuerte al principio, ganar tiempo en los primeros kilómetros cuando las piernas están frescas, y pagar esa deuda en los tramos finales cuando el cuerpo ya no tiene con qué. Santi lo sabía. Lo había hecho en agosto, había llegado al kilómetro ocho con las piernas respondiendo a medias, y el tiempo de ese día —cuarenta y tres con cincuenta— le había enseñado la lección con más eficacia que cualquier explicación de Ospina.
+No lento —nadie sube el Boquerón lento y espera llegar arriba— sino medido, con la potencia controlada en la zona que Ospina había definido como sostenible para cuarenta minutos de esfuerzo. Era la trampa clásica del récord: el impulso de salir fuerte al principio, ganar tiempo en los primeros kilómetros cuando las piernas están frescas, y pagar esa deuda en los tramos finales cuando el cuerpo ya no tiene con qué. Santi lo sabía. Lo había hecho en agosto, había llegado al kilómetro ocho con las piernas respondiendo a medias, y el tiempo de ese día —cuarenta y tres con cincuenta— le había enseñado la lección con más eficacia que cualquier explicación de Ospina.
 
 Hoy no.
 

@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 3B — Los puertos (Bello / Santa Elena, marzo–abril de 2012)
+### Capítulo 4 — Los puertos (Bello / Santa Elena, marzo–abril de 2012)
 
 ---
 
