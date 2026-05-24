@@ -186,7 +186,7 @@ En esa foto —que Santi vería años después en distintos contextos, en artíc
 
 Voló de vuelta a Colombia el veintinueve de agosto.
 
-Torres lo acompañó hasta el aeropuerto de Lyon, donde los caminos del equipo se separaban: Torres tomaba un vuelo a Madrid, Bernal volaba directo a Bogotá con el vuelo del Giro, Morales se quedaba en Francia dos días más porque tenía familia. Santi y Cardona volaban juntos hasta Bogotá.
+Torres lo acompañó hasta el aeropuerto de Lyon, donde los caminos del equipo se separaban: Torres tomaba un vuelo a Madrid, Bernal tomaba un vuelo directo a Bogotá —la federación ya le tenía el tiquete, al campeón del Avenir no se le deja buscar conexiones—, Morales se quedaba en Francia dos días más porque tenía familia. Santi y Cardona volaban juntos hasta Bogotá.
 
 En el vuelo de Lyon a París —cuarenta minutos, el tiempo justo para que no valiera dormirse— Cardona sacó el teléfono y le mostró a Santi los mensajes que le habían llegado en las últimas veinticuatro horas: su familia en Pasto, sus amigos, el director de su equipo de base, la federación de Nariño. El ciclismo colombiano en su ecosistema completo, reaccionando al resultado de uno de los suyos como lo hace siempre: con una velocidad y un calor que no tienen equivalente en ningún otro deporte del país.
 
@@ -198,9 +198,7 @@ Ciento cuarenta y tres mensajes de WhatsApp. Veintisiete llamadas perdidas. Tres
 
 Respondió los tres de su padre primero.
 
-—Tercero —dijo Hernando Reyes cuando Santi le explicó el resultado final, aunque ya lo sabía.
-
-—Tercero.
+—Tercero —dijo cuando su padre contestó.
 
 El silencio de su padre tenía una cualidad específica esa tarde —no el silencio de quien está calculando ni el de quien está conteniendo algo, sino el de quien está simplemente ahí, presente, acompañando en la distancia con el peso propio de la presencia.
 
