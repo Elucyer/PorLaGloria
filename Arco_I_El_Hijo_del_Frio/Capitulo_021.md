@@ -117,7 +117,7 @@ El estado de la general en la mañana de la séptima etapa:
 3. Corredor de Caldas a 34 segundos
 4. Santi a 46 segundos
 
-Cuarenta y seis segundos. La diferencia con el líder era recuperable en la montaña. La diferencia con Ríos —que era el único que le preocupaba— era de veintiocho segundos. Veintiocho segundos en dieciocho kilómetros de subida era menos de dos segundos por kilómetro: matemáticamente cómodo, estratégicamente exigente.
+Cuarenta y seis segundos. La diferencia con el líder era recuperable en la montaña. La diferencia con Ríos —que era el único que le preocupaba— era de dieciocho segundos. Veintiocho segundos en dieciocho kilómetros de subida era menos de dos segundos por kilómetro: matemáticamente cómodo, estratégicamente exigente.
 
 En la reunión del equipo, Mejía dibujó el perfil:
 
@@ -209,7 +209,7 @@ Mejía en el auricular: —Kilómetro veintisiete. ¿Cómo están las piernas?
 
 ---
 
-El kilómetro veintiocho volvió al seis y medio. El veinticinco. El kilómetro treinta con el segundo cambio de pendiente: al siete por ciento.
+El kilómetro veintiocho volvió al seis y medio. El kilómetro treinta con el segundo cambio de pendiente: al siete por ciento.
 
 El gregario de Ríos —cuatro kilómetros de trabajo, quinientos de desnivel acumulado— dio su última palada al ritmo en el kilómetro treinta y se abrió hacia el costado de la carretera con la resignación digna de los gregarios que han cumplido su trabajo. Pasó por la posición de Santi yendo hacia atrás y los dos se miraron un segundo sin decir nada, ese segundo que en las carreras sub-23 colombianas tiene el peso de años de pelotones compartidos y conocidos en común.
 
