@@ -1,145 +1,133 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 35 — Mallorca (marzo de 2018)
+### Capítulo 35 — Simon Clarke (Flandes, febrero de 2018)
 
 ---
 
-El primer día que Santi sintió que era ciclista europeo fue en Mallorca, en una subida al Puig Major.
+El sábado era el día largo.
 
-Llevaba seis semanas en Bélgica. Seis semanas de Flandes gris y frío y plano, de entrenamiento en carreteras que no subían, de adaptación progresiva a un ritmo de vida que era distinto al de Medellín en todo: la hora de las comidas, la temperatura de las duchas, el silencio de las noches de Waregem que era diferente al silencio de Floresta que era diferente al silencio de San José de la Montaña. Había aprendido a pedir café en flamenco. Había aprendido que Tom hablaba rápido pero si le pedías que repitiera no se ofendía. Había aprendido que Marek cocinaba borscht los domingos y que el olor llenaba el apartamento de una manera que no era desagradable pero tampoco era esperada.
+En el programa de Duchêne, el sábado era el día de cinco o seis horas en carretera —trabajo de fondo, resistencia, kilómetros acumulados a ritmo controlado. No había intervalos ni series ni datos de potencia que rendir. Solo kilómetros. La manera antigua de construir un motor.
 
-La concentración de marzo en Mallorca fue diez días. Sol, carreteras limpias, paisaje mediterráneo que en los colores y en la luz tenía algo que Santi no sabía que había extrañado: el color vivo, el contraste, la sensación de que el mundo era más que gris y adoquines.
+A mediados de febrero, con el frío de Flandes en su punto más comprometido —cuatro grados, viento del nordeste, cielos de un blanco que no parecía nube sino simplemente la ausencia del azul— Duchêne había propuesto salidas en grupo de dos o tres corredores en lugar de toda la plantilla junta. "Más gestión del frío, menos tiempo esperando en los semáforos."
 
-Y montañas.
+Santi y Clarke salieron juntos.
 
-El Puig Major —el punto más alto de la sierra de Tramuntana, con sus mil doscientos veintiún metros sobre el nivel del mar— no era el Stelvio ni el Galibier ni ninguno de los gigantes que estaban en el horizonte de mayo. Era un puerto de isla, moderado en pendiente, con vistas al Mediterráneo que a cierta altura se volvían tan azules que parecían pintadas. Pero era una subida real en una carretera real, y en la subida real el cuerpo de Santi encontró lo que seis semanas en Flandes le había quitado: la gravedad trabajando a su favor.
-
-Subió el Puig Major en el segundo entrenamiento del campo, un martes de cielo sin nubes.
-
-Lo subió solo —Duchêne había dado el grupo libre para explorar la isla— y lo subió sin datos, sin referencias de tiempo, solo siguiendo lo que el cuerpo pedía. Y lo que el cuerpo pedía era atacar. No atacar a alguien —no había nadie. Atacar el puerto, la pendiente, la distancia entre donde estaba y donde terminaba la subida.
-
-Llegó a la cima en veintidós minutos y cuarenta segundos.
-
-No sabía si era un tiempo bueno o malo para ese puerto —no conocía los tiempos de referencia, no había buscado datos antes de subir. Lo supo después, cuando Duchêne le preguntó y revisó en su base de datos: el mejor tiempo del equipo en ese tramo era de veintitrés minutos con cuatro segundos.
-
-Lo había batido. Su primera vez en el puerto.
-
-Duchêne no dijo nada de eso en el momento. Anotó en su tablet. Continuó con la reunión técnica de la tarde.
-
-Esa noche le mandó un mensaje a Santi:
-
-*22:40 Puig Major. Primera vez. Buena señal para mayo.*
-
-Santi leyó el mensaje. Lo archivó en la carpeta de su teléfono donde guardaba los mensajes que quería releer.
+No fue planificado. Clarke estaba en el taller revisando su bicicleta cuando Santi llegó, y Clarke dijo "¿a qué hora salís?" y Santi dijo "en diez minutos" y Clarke dijo "yo también" y eso fue todo. Los dos hombres, catorce años de diferencia, dos continentes de diferencia, pedaleando hacia el norte por la carretera de Deinze en el silencio cómodo de los corredores que ya no necesitan hablar para compartir un ritmo.
 
 ---
 
-En Mallorca, la conversación con Simon Clarke cambió de carácter.
+La primera hora la hicieron sin hablar mucho.
 
-Desde el primer día en Waregem habían coincidido en los entrenamientos, en las reuniones de equipo, en los desayunos del cuartel, pero la convivencia de los primeros dos meses había sido funcional más que íntima: Simon tenía doce años más, dos décadas de carreteras europeas, y esa manera de moverse por un cuartel de equipo que tienen los veteranos cuando ya no necesitan probar nada a nadie. Santi había aprendido a leerlo sin palabras, que era la manera en que Clarke operaba. En Mallorca, con los entrenamientos más largos y las tardes más vacías, empezaron a hablar.
+Santi había aprendido que Clarke era un hombre de silencios funcionales —no incómodos, no hostiles, sino simplemente el silencio de alguien que no habla cuando no tiene nada que decir y que cuando habla dice algo que vale la pena escuchar. En las reuniones de equipo Clarke tomaba notas y preguntaba una o dos cosas al final, precisas y técnicas. En los entrenamientos pedaleaba con esa regularidad de máquina bien calibrada que Santi había empezado a estudiar como se estudia una técnica que no se domina.
 
-El tercer día de concentración coincidieron en el desayuno del hotel antes de la sesión de la mañana. Clarke tenía treinta y dos años en ese momento, once temporadas de profesional en el cuerpo, y esa manera de hablar de la bicicleta que tienen los veteranos: sin adornos, con precisión, sin el entusiasmo de quien todavía descubre cosas pero tampoco con el cansancio de quien ya no le quedan cosas por descubrir.
+A los sesenta kilómetros pararon en un café de carretera —una cosa pequeña con cortinas de encaje en la ventana y una estufa de leña en la esquina— y pidieron café y agua. El hombre detrás del mostrador les habló en flamenco y Clarke respondió con el holandés irregular que había aprendido en cuatro temporadas en equipos belgas.
 
-—Primera temporada —dijo Simon, no como pregunta.
+—¿Hablás holandés? —preguntó Santi.
 
-—Sí —dijo Santi.
+—Lo suficiente para pedir café y para entender cuando alguien me insulta en carretera.
 
-—¿Giro?
+—¿Te insultan en carretera?
 
-—Sí.
+—En las clásicas, cuando vas despacio en una parte donde no se puede adelantar. —Clarke tomó el café—. Los belgas son apasionados del ciclismo. La pasión incluye el derecho a opinar sobre tu ritmo.
 
-—¿Rol?
+Santi bebió el agua. El calor de la estufa le llegaba desde la esquina con esa agresividad agradable de las cosas calientes cuando el cuerpo lleva horas bajo el frío.
 
-—Todavía no sé.
+—¿Cómo fue tu primer Giro? —preguntó.
 
-Simon asintió. Untó mermelada en la tostada con la deliberación de alguien que hace muchas cosas en automático y esta no era una de ellas.
+Clarke consideró la pregunta con la misma seriedad con que consideraba todas las preguntas que tenían que ver con carreras.
 
-—El Giro el primer año es una experiencia —dijo—. La primera semana vas a querer morirte. No por las etapas —las primeras etapas son relativamente manejables. Sino por el ritmo de vida: el bus, el hotel, el bus, la carrera, el hotel, el bus. Tres semanas de eso es un organismo diferente al que entrenas.
+—Dos mil nueve. Tenía veintitrés años. Corrí para el equipo, llegué en el puesto sesenta y dos, y tardé tres días en poder bajar escaleras normalmente cuando terminó.
 
-—¿Cómo se prepara eso?
+—¿Solo eso?
 
-—No se prepara. Se vive y se sobrevive y al año siguiente ya sabes lo que te espera.
+—Solo eso de anécdota simpática. —Pausa—. Lo que importa es lo que entendí. Que el Giro no es una carrera de tres semanas. Es tres carreras de una semana cada una, y la habilidad que necesitás en la primera semana no es la misma que en la segunda ni en la tercera.
 
-—¿Y el ciclismo en sí?
+—¿Cuál es la diferencia?
 
-Simon lo miró.
+—La primera semana: supervivencia. No caerse, no perder tiempo, conservar energía. El pelotón está nervioso, hay caídas, los equipos se posicionan. Tus piernas están bien pero la cabeza todavía está calibrando la escala. Nada de lo que hiciste antes en tu carrera te prepara para estar en el pelotón del Giro de Italia el primer día. Tenés que encontrarlo en el momento.
 
-—¿Cuántos años tienes?
+—¿Y la segunda?
 
-—Dieciocho.
+—La segunda semana la montaña empieza a hablar. Empezás a saber quién va a pelear y quién solo está sobreviviendo. Aquí es donde los corredores de tu tipo —los escaladores— empiezan a tener valor. Pero también es cuando el cansancio acumulado empieza a mentir. El cuerpo dice que puede pero el estado real de las piernas es otro. Aprender a leer esa diferencia es la mitad del trabajo.
 
-Una pausa.
+—¿Y la tercera?
 
-—En el pelotón del Giro hay corredores que tienen el doble. Que llevan más años corriendo Grand Tours que tú años en la tierra. Eso no significa que te van a ganar —significa que van a ver cosas que tú no ves todavía, y que van a usar esas cosas. La diferencia entre un corredor joven con talento y un corredor veterano sin él es que el veterano conoce todos los trucos y el joven solo conoce sus propias piernas.
+Clarke miró el café.
 
-—¿Y el que tiene las dos cosas?
+—La tercera semana es otra cosa. En la tercera semana ya todos han gastado más de lo que pensaban. Los grandes equipos ya saben quién puede ganar y quién no. Las fugas ya no son de aventura sino de cálculo. Y los corredores que quedan en cabeza son los que en algún momento de la segunda semana tomaron una decisión correcta sin saber que era la correcta.
 
-Simon sonrió.
+—¿Qué tipo de decisión?
 
-—El que tiene las dos cosas es el que gana Grand Tours.
-
-—Yo voy a ganar Grand Tours.
-
-No fue arrogancia. Fue una declaración del tipo que se hace cuando uno realmente cree lo que está diciendo y no tiene motivo para fingir modestia que no siente.
-
-Simon lo miró durante un momento.
-
-—Ya lo sé —dijo—. Por eso te lo estoy explicando.
+—Cuándo atacar. Cuándo no. Cuándo seguir una fuga y cuándo dejarla ir. Cuándo hablar con el director y cuándo ignorarlo. —Clarke dejó el vaso—. En el Giro hay cien decisiones por etapa y la mayoría son automáticas. Pero hay dos o tres por semana que no son automáticas. Esas son las que deciden si terminás entre los veinte primeros o entre los cincuenta.
 
 ---
 
-Los últimos tres días de Mallorca, Duchêne organizó dos simulacros de carrera: salida en grupo, control de posiciones en pelotón, trabajo de equipo en los puertos. Era el primer entrenamiento verdaderamente colectivo —no series individuales sino un equipo moviéndose como tal, con los gregarios controlando el ritmo, el líder conservando energía, y los roles definidos por las instrucciones de Duchêne desde el carro de apoyo.
+Salieron del café y continuaron hacia el norte.
 
-El líder provisional del equipo para el Giro era un belga de veintiocho años llamado Pieter Verstraeten, buen corredor con un palmarés decente en carreras de segunda división europea —había ganado el Tour de Wallonie en 2016 y tenía podios en la Volta a Catalunya— pero que en los Grandes Tours nunca había pasado del puesto veinte en la general.
+La segunda hora la hicieron con más conversación —no sobre ciclismo sino sobre otras cosas: la comida belga, que Clarke defendía con el entusiasmo del converso y Santi encontraba excesiva en grasa; el idioma flamenco, que Clarke decía que era alemán hablado por alguien que aprendió solo; el canal que cruzaban cada veinte kilómetros, que en invierno tenía el color del acero viejo.
 
-El rol de Santi para el Giro era explícito: gregario de montaña. Proteger a Verstraeten en los primeros kilómetros de los puertos, entregarle el bidón en los momentos difíciles, y cuando el trabajo estuviera hecho, ir a la suya si quedaban fuerzas.
+En un punto de la carretera el viento cambió de dirección y vino del oeste, de lado, y el pelotón imaginario de los dos se rompió porque el viento de lado en Flandes es el que separa a los que saben de los que no saben. Clarke lo resolvió moviéndose tres metros a la derecha, buscando el ángulo donde la rueda del otro protegía un poco. Santi lo siguió.
 
-Santi aceptó el rol.
+—En las clásicas —dijo Clarke, sin perder el ritmo—, el viento es el tercer corredor. No se ve, no aparece en los datos, pero decide más resultados que la potencia.
 
-Pero en el segundo simulacro, en la subida final de la jornada —doce kilómetros de subida real, no el Puig Major sino un puerto sin nombre en el interior de la isla— cuando Verstraeten marcó el ritmo para los últimos cuatro kilómetros y el grupo se fragmentó, Santi se encontró a dos metros del carro de Duchêne en lugar de detrás de Verstraeten.
+—¿Cómo se aprende a leerlo?
 
-Duchêne bajó la ventanilla.
+—Mirando los árboles. Las banderas. La dirección de la lluvia cuando llueve. El sonido. —Pausa—. Y equivocándote. La primera vez que te quedás descolgado en un echelón por no haberte movido a tiempo lo entendés de una manera que ninguna explicación da.
 
-—¿Qué haces aquí?
+—¿A mí me va a pasar eso?
 
-—El trabajo del kilómetro ocho al doce ya lo hice. Ahora estoy a la suya.
+—Probablemente. —Clarke lo dijo sin crueldad—. Pero al vos ya tenés algo que yo no tenía a tu edad.
 
-—Verstraeten todavía necesita apoyo.
+—¿Qué?
 
-—Verstraeten tiene suficiente para los últimos dos kilómetros. Si gasto lo que me queda siguiéndole la rueda, al Giro llego con menos.
+—Sabés por qué estás aquí.
 
-Duchêne lo miró.
+Santi lo miró. Clarke seguía mirando la carretera.
 
-—¿Estás seguro de que tiene suficiente?
+—Yo llegué al ciclismo profesional porque era lo que hacía bien y no se me ocurrió otra cosa —dijo Clarke—. Corrí diez años antes de entender que lo que me movía no era ganar sino que era el proceso. El trabajo. La manera en que el cuerpo y la cabeza se organizan para hacer algo difícil. —Pausa—. Vos ya sabés eso. Se nota en cómo entrenás. No entrenás para el resultado. Entrenás para el trabajo.
 
-—Su frecuencia cardíaca en el kilómetro nueve bajó tres pulsaciones. Está gestionando, no aguantando.
+Santi pensó en su padre. En las mañanas en San José, la niebla, el frío, los kilómetros sin nombre. En que Hernando Reyes nunca había ganado nada importante y sin embargo había pasado toda su vida en eso.
 
-El carro siguió rodando en paralelo con la subida. Duchêne no dijo nada durante treinta segundos.
+—Lo aprendí de alguien que no llegó a ningún lado —dijo.
 
-—Ve —dijo.
+Clarke asintió, como si eso explicara algo que había estado procesando.
 
-Santi aceleró.
+—Los mejores maestros suelen ser esos —dijo.
 
-Llegó a la cima cuarenta y ocho segundos antes que Verstraeten.
+---
 
-Esa noche en la cena, Duchêne se sentó a su lado —algo inusual, porque el director solía sentarse con los corredores veteranos. Le sirvió un poco de vino sin preguntar y dijo:
+Los últimos cuarenta kilómetros los hicieron en silencio.
 
-—Tienes instinto. Eso es bueno.
+No por falta de qué decir sino porque habían llegado a ese punto del entrenamiento largo donde el cuerpo consume la energía que queda y el hablar se convierte en un gasto que no tiene sentido. Las piernas seguían. El ritmo era el mismo. El frío de Flandes seguía siendo el frío de Flandes.
 
-—Gracias.
+A cinco kilómetros del cuartel general, Clarke aceleró ligeramente.
 
-—Pero el instinto sin disciplina es peligroso en un equipo. En el Giro, cuando yo digo quédate con el líder, te quedas con el líder. Aunque creas que él no te necesita.
+No mucho —tres o cuatro kilómetros por hora, suficiente para activar los últimos minutos del entrenamiento, para llegar con el cuerpo caliente en lugar de enfriado. Santi siguió. Los dos corredores elevaron el ritmo en la recta final hacia Waregem sin hablar de ello, sin acordarlo, de la manera en que los corredores acuerdan las cosas que no necesitan palabras.
 
-—¿Y si tengo razón?
+Llegaron al cuartel.
 
-—Y si tienes razón y igual respetas la instrucción, aprendo a confiar en tu criterio. Si haces lo que quieres sin preguntar, no puedo confiar en nada.
+Clarke desmontó, apoyó la bicicleta en la pared, se quitó el casco.
 
-Santi tomó el vino. Era seco y tenía un sabor que todavía no sabía clasificar —no era el aguardiente de su padre ni el vino dulce que su madre tomaba en Navidad. Era otra cosa. Adquirida.
+—Una cosa —dijo.
 
-—De acuerdo —dijo.
+Santi lo miró.
 
-—Bien. —Duchêne levantó el vaso—. Al Giro.
+—En el Giro, cuando llegues al Stelvio —en la tercera semana, cuando ya no queda nada fácil—, acordate de esto. —Señaló la carretera que habían dejado atrás, la llanura gris de Flandes, los campos vacíos—. Acordate que subiste esto en febrero. Que el frío y la lluvia y los adoquines y todo lo que fue incómodo ya lo tenés en las piernas. El Stelvio es solo una subida. Larga, alta, difícil. Pero solo una subida.
 
-—Al Giro —dijo Santi.
+Santi miró la carretera.
 
-Y chocaron los vasos con el sonido limpio del cristal, y afuera el Mediterráneo estaba oscuro y tranquilo, y en el horizonte que ninguno de los dos podía ver desde la terraza del restaurante, Italia esperaba.
+Solo una subida.
+
+—Gracias —dijo.
+
+Clarke levantó una mano —el gesto mínimo de alguien que no necesita más ceremonia— y entró al cuartel.
+
+Santi se quedó un momento afuera, con el casco todavía puesto, mirando la tarde gris de Flandes que empezaba a oscurecer hacia las cinco.
+
+El Stelvio.
+
+Dos mil setecientos cincuenta y ocho metros. Veinticuatro kilómetros de subida desde Bormio. Lo había leído en el dossier provisional del equipo. Lo tenía marcado en el calendario como lo que era: la etapa que definiría su primera Grand Tour.
+
+No sabía todavía todo lo que el Stelvio le iba a pedir.
+
+Entró al cuartel.

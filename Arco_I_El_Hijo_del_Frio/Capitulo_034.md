@@ -1,133 +1,151 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 34 — Simon Clarke (Flandes, febrero de 2018)
+### Capítulo 34 — Los adoquines (Flandes, enero–febrero de 2018)
 
 ---
 
-El sábado era el día largo.
+La lluvia en Flandes no caía. Estaba.
 
-En el programa de Duchêne, el sábado era el día de cinco o seis horas en carretera —trabajo de fondo, resistencia, kilómetros acumulados a ritmo controlado. No había intervalos ni series ni datos de potencia que rendir. Solo kilómetros. La manera antigua de construir un motor.
+Era una presencia horizontal, fina y constante, que no hacía el ruido dramático de los aguaceros antioqueños sino que simplemente ocupaba el aire como si el aire fuera en parte agua y en parte otra cosa y la diferencia no importara. Santi salió al primer entrenamiento de equipo un miércoles de finales de enero con el maillot de invierno, los guantes largos y los cubrezapatillas nuevos que había comprado en la tienda de ciclismo de Waregem el día anterior, y en el kilómetro tres ya tenía la espalda mojada.
 
-A mediados de febrero, con el frío de Flandes en su punto más comprometido —cuatro grados, viento del nordeste, cielos de un blanco que no parecía nube sino simplemente la ausencia del azul— Duchêne había propuesto salidas en grupo de dos o tres corredores en lugar de toda la plantilla junta. "Más gestión del frío, menos tiempo esperando en los semáforos."
+No por la lluvia. Por el spray de la rueda del corredor de adelante.
 
-Santi y Clarke salieron juntos.
+Las carreteras de Flandes mojadas proyectan el agua hacia arriba y hacia atrás con una eficiencia que ningún guardabarro resuelve del todo, y el resultado es que en los primeros treinta minutos de cualquier entrenamiento de invierno en Bélgica el corredor de atrás recibe en la cara y en el pecho el resumen líquido de todo lo que la carretera ha acumulado: agua de lluvia, tierra, el aceite que los camiones dejan en las curvas, algo que no tiene nombre pero que sabe a siglos de uso.
 
-No fue planificado. Clarke estaba en el taller revisando su bicicleta cuando Santi llegó, y Clarke dijo "¿a qué hora salís?" y Santi dijo "en diez minutos" y Clarke dijo "yo también" y eso fue todo. Los dos hombres, catorce años de diferencia, dos continentes de diferencia, pedaleando hacia el norte por la carretera de Deinze en el silencio cómodo de los corredores que ya no necesitan hablar para compartir un ritmo.
+Santi escupió.
 
----
-
-La primera hora la hicieron sin hablar mucho.
-
-Santi había aprendido que Clarke era un hombre de silencios funcionales —no incómodos, no hostiles, sino simplemente el silencio de alguien que no habla cuando no tiene nada que decir y que cuando habla dice algo que vale la pena escuchar. En las reuniones de equipo Clarke tomaba notas y preguntaba una o dos cosas al final, precisas y técnicas. En los entrenamientos pedaleaba con esa regularidad de máquina bien calibrada que Santi había empezado a estudiar como se estudia una técnica que no se domina.
-
-A los sesenta kilómetros pararon en un café de carretera —una cosa pequeña con cortinas de encaje en la ventana y una estufa de leña en la esquina— y pidieron café y agua. El hombre detrás del mostrador les habló en flamenco y Clarke respondió con el holandés irregular que había aprendido en cuatro temporadas en equipos belgas.
-
-—¿Hablás holandés? —preguntó Santi.
-
-—Lo suficiente para pedir café y para entender cuando alguien me insulta en carretera.
-
-—¿Te insultan en carretera?
-
-—En las clásicas, cuando vas despacio en una parte donde no se puede adelantar. —Clarke tomó el café—. Los belgas son apasionados del ciclismo. La pasión incluye el derecho a opinar sobre tu ritmo.
-
-Santi bebió el agua. El calor de la estufa le llegaba desde la esquina con esa agresividad agradable de las cosas calientes cuando el cuerpo lleva horas bajo el frío.
-
-—¿Cómo fue tu primer Giro? —preguntó.
-
-Clarke consideró la pregunta con la misma seriedad con que consideraba todas las preguntas que tenían que ver con carreras.
-
-—Dos mil nueve. Tenía veintitrés años. Corrí para el equipo, llegué en el puesto sesenta y dos, y tardé tres días en poder bajar escaleras normalmente cuando terminó.
-
-—¿Solo eso?
-
-—Solo eso de anécdota simpática. —Pausa—. Lo que importa es lo que entendí. Que el Giro no es una carrera de tres semanas. Es tres carreras de una semana cada una, y la habilidad que necesitás en la primera semana no es la misma que en la segunda ni en la tercera.
-
-—¿Cuál es la diferencia?
-
-—La primera semana: supervivencia. No caerse, no perder tiempo, conservar energía. El pelotón está nervioso, hay caídas, los equipos se posicionan. Tus piernas están bien pero la cabeza todavía está calibrando la escala. Nada de lo que hiciste antes en tu carrera te prepara para estar en el pelotón del Giro de Italia el primer día. Tenés que encontrarlo en el momento.
-
-—¿Y la segunda?
-
-—La segunda semana la montaña empieza a hablar. Empezás a saber quién va a pelear y quién solo está sobreviviendo. Aquí es donde los corredores de tu tipo —los escaladores— empiezan a tener valor. Pero también es cuando el cansancio acumulado empieza a mentir. El cuerpo dice que puede pero el estado real de las piernas es otro. Aprender a leer esa diferencia es la mitad del trabajo.
-
-—¿Y la tercera?
-
-Clarke miró el café.
-
-—La tercera semana es otra cosa. En la tercera semana ya todos han gastado más de lo que pensaban. Los grandes equipos ya saben quién puede ganar y quién no. Las fugas ya no son de aventura sino de cálculo. Y los corredores que quedan en cabeza son los que en algún momento de la segunda semana tomaron una decisión correcta sin saber que era la correcta.
-
-—¿Qué tipo de decisión?
-
-—Cuándo atacar. Cuándo no. Cuándo seguir una fuga y cuándo dejarla ir. Cuándo hablar con el director y cuándo ignorarlo. —Clarke dejó el vaso—. En el Giro hay cien decisiones por etapa y la mayoría son automáticas. Pero hay dos o tres por semana que no son automáticas. Esas son las que deciden si terminás entre los veinte primeros o entre los cincuenta.
+—Bienvenido a Flandes —dijo la voz de Simon Clarke desde atrás.
 
 ---
 
-Salieron del café y continuaron hacia el norte.
+Clarke tenía treinta y dos años y había corrido el Giro, el Tour y la Vuelta. Tenía la cara de alguien que ha pasado muchas horas bajo el viento de montaña y bajo el sol de verano y bajo la lluvia de Flandes, y el cuerpo largo y eficiente de los rodadores australianos que aprenden a pedalear en carreteras largas y planas porque en Australia las montañas son para el fin de semana y los kilómetros son para todos los días.
 
-La segunda hora la hicieron con más conversación —no sobre ciclismo sino sobre otras cosas: la comida belga, que Clarke defendía con el entusiasmo del converso y Santi encontraba excesiva en grasa; el idioma flamenco, que Clarke decía que era alemán hablado por alguien que aprendió solo; el canal que cruzaban cada veinte kilómetros, que en invierno tenía el color del acero viejo.
+Era el corredor más experimentado del Élan Cycliste por ocho años y dos Grand Tours de diferencia.
 
-En un punto de la carretera el viento cambió de dirección y vino del oeste, de lado, y el pelotón imaginario de los dos se rompió porque el viento de lado en Flandes es el que separa a los que saben de los que no saben. Clarke lo resolvió moviéndose tres metros a la derecha, buscando el ángulo donde la rueda del otro protegía un poco. Santi lo siguió.
+El miércoles de enero Duchêne había anunciado en la reunión de equipo que la salida sería por el circuito del Waregem Koerse —la clásica local que se corría en septiembre y que los ciclistas del equipo conocían metro a metro. Sesenta kilómetros de reconocimiento, ritmo tranquilo, sin datos de potencia.
 
-—En las clásicas —dijo Clarke, sin perder el ritmo—, el viento es el tercer corredor. No se ve, no aparece en los datos, pero decide más resultados que la potencia.
+—El objetivo de hoy —dijo Duchêne— es que los nuevos conozcan el terreno. Nada más.
 
-—¿Cómo se aprende a leerlo?
+Los nuevos eran tres: Santi, Marek el polaco, y un chico de veintidós años del Limburg que se llamaba Pieter y que nunca había corrido fuera de Bélgica pero que en los pavés se movía como si hubiera nacido encima de ellos.
 
-—Mirando los árboles. Las banderas. La dirección de la lluvia cuando llueve. El sonido. —Pausa—. Y equivocándote. La primera vez que te quedás descolgado en un echelón por no haberte movido a tiempo lo entendés de una manera que ninguna explicación da.
+---
 
-—¿A mí me va a pasar eso?
+Los pavés llegaron en el kilómetro doce.
 
-—Probablemente. —Clarke lo dijo sin crueldad—. Pero al vos ya tenés algo que yo no tenía a tu edad.
+No los había visto venir. La carretera de asfalto se cortó sin aviso y apareció debajo de las ruedas algo que Santi tardó un segundo en procesar: adoquines de granito, oscuros por la lluvia, separados por juntas donde crecía algo parecido al musgo, dispuestos en líneas ligeramente irregulares que la bicicleta leía como vibración constante, como si el suelo se negara a ser completamente quieto.
+
+El primer sector duraba cuatrocientos metros.
+
+Los cuatrocientos metros más incómodos que Santi había experimentado sobre una bicicleta.
+
+No era el dolor —era la energía que la vibración absorbía de las manos, de los brazos, de la espalda, ese gasto invisible que no aparece en los datos de potencia pero que al final del día te deja más cansado de lo que explican los vatios. Santi apretó el manillar. Soltó. Volvió a apretar. Ninguna de las dos opciones funcionaba bien.
+
+Clarke, a su lado, pedaleaba con los codos flexionados y las manos apenas apoyadas en el manillar, absorbiendo la vibración con el cuerpo en lugar de combatirla.
+
+—Suelta —dijo Clarke.
 
 —¿Qué?
 
-—Sabés por qué estás aquí.
+—Las manos. Suelta. Si aguantas el manillar la vibración sube por los brazos hasta los hombros y te destroza en dos horas. Si sueltas, el cuerpo absorbe. La bici hace lo que quiere un poco, pero las piernas siguen funcionando.
 
-Santi lo miró. Clarke seguía mirando la carretera.
+Santi soltó.
 
-—Yo llegué al ciclismo profesional porque era lo que hacía bien y no se me ocurrió otra cosa —dijo Clarke—. Corrí diez años antes de entender que lo que me movía no era ganar sino que era el proceso. El trabajo. La manera en que el cuerpo y la cabeza se organizan para hacer algo difícil. —Pausa—. Vos ya sabés eso. Se nota en cómo entrenás. No entrenás para el resultado. Entrenás para el trabajo.
+La bicicleta empezó a moverse de manera que en otro contexto habría sido alarmante. Pero las piernas seguían empujando con el mismo ritmo y el cuerpo encontró de a poco el equilibrio entre control y abandono que los adoquines pedían.
 
-Santi pensó en su padre. En las mañanas en San José, la niebla, el frío, los kilómetros sin nombre. En que Hernando Reyes nunca había ganado nada importante y sin embargo había pasado toda su vida en eso.
+Los cuatrocientos metros terminaron. Volvió el asfalto.
 
-—Lo aprendí de alguien que no llegó a ningún lado —dijo.
+—¿Cuánto pesa un sector de pavés en la clasificación general? —preguntó Santi.
 
-Clarke asintió, como si eso explicara algo que había estado procesando.
+Clarke lo miró.
 
-—Los mejores maestros suelen ser esos —dijo.
+—En las clásicas, todo. En el Giro, nada. En el Giro no hay pavés. —Pausa—. Pero lo que aprendés en los pavés —cómo gestionar el cuerpo cuando el terreno no coopera— eso sí aparece en el Giro. En los puertos de grava. En los descensos con piedras sueltas. En el día que llueve en los Alpes y el asfalto tiene el mismo comportamiento que esto.
+
+Santi miró la carretera hacia adelante.
+
+—¿Cuántas veces has corrido el Giro?
+
+—Cinco. Terminé cuatro.
+
+—¿La que no terminaste?
+
+—Dos mil trece. Caída en la etapa doce. Clavícula. —Dijo esto sin emoción particular, como quien cita un dato meteorológico—. No es el peor Giro que he tenido. El peor fue el que terminé en el puesto ochenta y cuatro.
+
+—¿Por qué ese?
+
+—Porque en ese supe exactamente en qué etapa podría haber atacado y no lo hice. —Pausa—. La caída no te deja saber qué podrías haber hecho. El puesto ochenta y cuatro sí.
 
 ---
 
-Los últimos cuarenta kilómetros los hicieron en silencio.
+El segundo sector de pavés estaba en el kilómetro veintitrés.
 
-No por falta de qué decir sino porque habían llegado a ese punto del entrenamiento largo donde el cuerpo consume la energía que queda y el hablar se convierte en un gasto que no tiene sentido. Las piernas seguían. El ritmo era el mismo. El frío de Flandes seguía siendo el frío de Flandes.
-
-A cinco kilómetros del cuartel general, Clarke aceleró ligeramente.
-
-No mucho —tres o cuatro kilómetros por hora, suficiente para activar los últimos minutos del entrenamiento, para llegar con el cuerpo caliente en lugar de enfriado. Santi siguió. Los dos corredores elevaron el ritmo en la recta final hacia Waregem sin hablar de ello, sin acordarlo, de la manera en que los corredores acuerdan las cosas que no necesitan palabras.
-
-Llegaron al cuartel.
-
-Clarke desmontó, apoyó la bicicleta en la pared, se quitó el casco.
-
-—Una cosa —dijo.
+Era más largo —ochocientos metros— y tenía una curva a la derecha en el medio que obligaba a entrar con velocidad reducida o aceptar que la bicicleta se movería hacia el exterior con una voluntad propia que no consultaba con el corredor. Pieter, el chico del Limburg, entró a la curva como si los adoquines no existieran, como si la carretera fuera un asfalto de verano, y salió del otro lado con cinco metros de ventaja sobre el resto sin haber acelerado.
 
 Santi lo miró.
 
-—En el Giro, cuando llegues al Stelvio —en la tercera semana, cuando ya no queda nada fácil—, acordate de esto. —Señaló la carretera que habían dejado atrás, la llanura gris de Flandes, los campos vacíos—. Acordate que subiste esto en febrero. Que el frío y la lluvia y los adoquines y todo lo que fue incómodo ya lo tenés en las piernas. El Stelvio es solo una subida. Larga, alta, difícil. Pero solo una subida.
+—Él nació encima de esto —dijo Clarke, que había llegado a su lado.
 
-Santi miró la carretera.
+—¿Y vos?
 
-Solo una subida.
+—Yo tardé cuatro años en no tener miedo en los pavés. —Una pausa—. El miedo en los pavés no es cobardía. Es información. Te está diciendo que el terreno te exige algo que todavía no tenés.
 
-—Gracias —dijo.
+—¿Y en cuatro años lo tenés?
 
-Clarke levantó una mano —el gesto mínimo de alguien que no necesita más ceremonia— y entró al cuartel.
+Clarke consideró esto con la seriedad de alguien que no da respuestas fáciles.
 
-Santi se quedó un momento afuera, con el casco todavía puesto, mirando la tarde gris de Flandes que empezaba a oscurecer hacia las cinco.
+—Tenés el suficiente para no caerte. Para ganar necesitás haber nacido en Roubaix.
 
-El Stelvio.
+---
 
-Dos mil setecientos cincuenta y ocho metros. Veinticuatro kilómetros de subida desde Bormio. Lo había leído en el dossier provisional del equipo. Lo tenía marcado en el calendario como lo que era: la etapa que definiría su primera Grand Tour.
+La segunda hora del entrenamiento fue por las carreteras llanas al norte de Waregem, entre campos de trigo todavía vacíos por el invierno y granjas con los tejados de pizarra que Santi había empezado a leer como parte del paisaje sin que se diera cuenta. La lluvia seguía. La espalda seguía mojada.
 
-No sabía todavía todo lo que el Stelvio le iba a pedir.
+En una recta larga de cuatro kilómetros, con el viento de frente que rebajaba la velocidad de crucero a treinta y dos kilómetros por hora aunque todos pedaleaban al mismo ritmo, Santi pensó en Las Palmas. En la bomba del San Diego, la Avenida El Poblado bajando hacia el sur, el primer kilómetro antes de que la carretera empezara a subir. El sol de las nueve de la mañana en Medellín que calentaba el asfalto y hacía que el olor a gasolina y a tierra mojada se mezclaran en algo que era específicamente antioqueño y que no existía en ningún otro lugar del mundo.
 
-Entró al cuartel.
+Pensó en que eso —ese olor, esa luz, esa carretera— era lo que tenía debajo de todo lo demás. El material del que estaba hecho el corredor que ahora pedaleaba en la lluvia de Flandes.
+
+Clarke apareció a su lado.
+
+—¿En qué pensás?
+
+—En Colombia —dijo Santi.
+
+—¿Extrañás?
+
+—Sí.
+
+—Normal. El primer mes es el peor. —Clarke miró hacia adelante—. Después extrañás igual pero ya no te pesa. Lo llevás encima como una cosa tuya en lugar de como una herida.
+
+—¿Vos extrañás Australia?
+
+—Todos los días. —Sin pausa—. Pero Australia me hizo el corredor que soy porque allá no había nadie que me enseñara a correr bien. Tuve que aprenderlo solo. Los que aprenden solos aprenden diferente.
+
+Santi pensó en Ospina. En la libreta azul. En la frase escrita con bolígrafo rojo en el margen: *Este es el mejor que he visto. Y le falta la mitad.*
+
+—A mí me enseñaron —dijo.
+
+—Ya lo sé. Se nota. —Clarke lo miró de reojo—. Lo que significa que la mitad que te falta no es técnica. Es experiencia. Y la experiencia no se enseña. Se consigue.
+
+Llegaron al final de la recta. La carretera giraba hacia el este y el viento quedaba de costado.
+
+—Tres semanas —dijo Santi.
+
+—¿Para qué?
+
+—Para dejar de notar que estoy en Flandes y no en Colombia.
+
+Clarke se rió. Era la primera vez que Santi lo escuchaba reírse de algo que no fuera un chiste de Tom Briggs.
+
+—Tres semanas es optimista —dijo—. Pero te lo concedo.
+
+---
+
+Volvieron al cuartel general a las doce y media. Santi dejó la bicicleta en el taller, se fue al vestuario, se quitó la ropa mojada. La espalda tenía el color de algo que había sido lavado con agua de carretera.
+
+En la ducha caliente, con el vapor que hacía imposible ver la pared del fondo, pensó en lo que Clarke había dicho sobre la experiencia. Sobre aprender solo. Sobre llevar el origen como una cosa propia en lugar de como una herida.
+
+Llevaba veintidós días en Bélgica.
+
+Todavía notaba Flandes. Todavía extrañaba Colombia.
+
+Pero algo en los adoquines —en la manera en que el cuerpo había encontrado, a mitad del segundo sector, el equilibrio entre controlar y soltar— le decía que tres semanas era, quizás, un plazo razonable.
+
+Quizás.

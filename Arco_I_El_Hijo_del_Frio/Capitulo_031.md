@@ -1,177 +1,283 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 31 — La despedida de Ospina (Medellín, noviembre–diciembre de 2017)
+### Capítulo 31 — Albiez-Montrond (Tour de l'Avenir, 27 de agosto de 2017)
 
 ---
 
-Octubre fue el mes de los trámites.
+El desayuno del último día de carrera tiene una luz diferente.
 
-Contrato con el equipo Élan Cycliste —cinco páginas en francés que Santi leyó con un diccionario en línea y que Ospina mandó a un abogado amigo a revisar. Visado de trabajo en Bélgica. Carta del equipo para las autoridades migratorias. Traslado de la licencia UCI a la categoría elite. Arreglos con el Manzana Postobón, que liberó a Santi del contrato de formación con buena voluntad —Arenas le dijo que era lo correcto, que ese era el punto de los contratos de desarrollo, y que le deseaba suerte con una seriedad que valía más que los formulismos—.
+No es más tranquilo —los corredores siguen cargando carbohidratos con la concentración metódica de quien sabe que el cuerpo lo va a necesitar en las próximas cuatro horas— sino distinto en temperatura. La tensión de los días anteriores, que se había acumulado silenciosa bajo cada gesto y cada conversación del comedor del hotel, se había transformado en algo menos urgente. No paz —tampoco sería correcto llamarlo eso, porque Pavel Sivakov del equipo Sky Development seguía ahí con el hambre de quien todavía no ha ganado ninguna etapa y Lambrecht todavía estaba tercero en la general y los dos iban a poner lo que les quedara en la carretera. Pero diferente. El tipo de diferencia entre el miedo antes de la batalla y la concentración durante la batalla.
 
-Y entre todo eso, los entrenamientos de octubre y noviembre que eran los últimos con Ospina.
+Bernal desayunó con la tranquilidad de quien ya ha ganado. No con arrogancia —no era un corredor de arrogancia— sino con esa quietud específica de quien tiene los cálculos cerrados y sabe que lo que queda es ejecutar. Llevaba el maillot de líder del Tour de l'Avenir desde hacía seis días. Hoy iba a llegar a Albiez-Montrond con ese maillot y eso ya era un hecho, no una posibilidad.
 
-No lo dijeron así. Ninguno de los dos usó la palabra despedida. Las cosas con Ospina nunca se nombraban de frente —se hacían, se anotaban en la libreta, se ejecutaban. Pero los dos sabían que los martes y jueves en Santa Elena, las salidas largas del domingo, los tintos en la oficina detrás del taller de La América, tenían los días contados.
+—¿Cómo están las piernas? —le preguntó Torres a Santi mientras untaba mantequilla en un trozo de pan.
 
-El último entrenamiento oficial fue un jueves de diciembre, el catorce.
+—Están.
 
-Santi subió Santa Elena por la vertiente de Medellín —dieciséis kilómetros, pendiente media del seis punto siete, máxima del dieciséis, el sol de la mañana antioqueña golpeando de frente en los tramos orientados al este— en cuarenta y cuatro minutos y once segundos. Era su mejor tiempo personal en ese puerto por dos minutos y diecisiete segundos. Llegó a la cima con el pecho trabajando fuerte y las piernas en ese estado de agotamiento satisfecho que distingue el esfuerzo completo del esfuerzo a medias.
+Torres asintió. Eso era suficiente.
 
-Ospina llegó en el carro cuatro minutos después.
+*Están* significaba: no perfectas, no frescas, no como el primer día de carrera, sino presentes y funcionales y capaces de responder si se les pedía lo que hay que pedirles en el kilómetro noventa de una etapa de montaña. Era lo que había que tener.
 
-Bajó. Lo miró. Anotó algo en la libreta.
+Patiño entró al comedor a las siete y cuarto con la hoja del recorrido del día.
 
-—¿Cuánto? —preguntó Santi.
+—Etapa corta —dijo—. Ciento seis kilómetros. Pero el Madeleine primero y luego Albiez. No hay trampa: es todo lo que queda.
 
-—Cuarenta y cuatro con once.
+El Col de la Madeleine: veinticuatro kilómetros al seis coma dos desde Bourg-Saint-Maurice hasta la cima a dos mil metros. No el puerto más duro del calendario europeo, pero suficientemente largo como para que después de ocho días de carrera actúe como filtro definitivo: los que llegan a la cima del Madeleine en el grupo de cabeza son los que deciden la etapa. Los que lo pagan en sus laderas solo tienen que sobrevivir hasta Albiez-Montrond.
 
-—¿Cuál es el récord del club?
+—Diego —dijo Patiño mirando a Cardona—, necesito que tires los primeros dieciocho kilómetros del Madeleine. Hasta donde puedas. Después libertad.
 
-—El absoluto, cuarenta y un minutos con cuatro. El sub-23, cuarenta y tres con cincuenta y dos.
+Cardona asintió. Era su rol: el gregario que compra tiempo con el cuerpo y lo regala sin contabilizarlo.
 
-—Batí el sub-23.
+—Santi. En el Madeleine, a la rueda de Egan. En Albiez, tu carrera.
 
-—Y te faltaron tres minutos y siete segundos para el absoluto.
-
-Santi miró el valle. Medellín abajo, extendida entre las montañas, con el smog de la mañana atrapado en el fondo del cañón y el sol por encima de todo.
-
-—El año que viene subo eso en cuarenta —dijo.
-
-—El año que viene estás en el Giro de Italia —dijo Ospina.
-
-—Lo sé. Pero cuando vuelva.
-
-Ospina no respondió de inmediato. Cerró la libreta. La guardó en el bolsillo de la chaqueta.
-
-—Siéntate —dijo.
-
-Se sentaron en el capó del carro. El viento de Santa Elena a dos mil quinientos metros olía a pino y a algo eléctrico que no tenía nombre.
-
-—Tengo que decirte algo —dijo Ospina— antes de que te vayas.
-
-—Diga.
-
-—Dos cosas. La primera: lo que has hecho en dos años —desde que llegaste al club hasta hoy— es lo más rápido que he visto progresar a un corredor en treinta años. No es un elogio. Es un dato. Los elogios te los van a dar otros.
-
-—¿Y la segunda?
-
-Ospina lo miró directamente. Era poco frecuente en él.
-
-—La segunda es que lo que viene va a ser distinto a todo lo que has hecho hasta ahora. No porque el Giro sea más duro físicamente —aunque también lo es. Sino porque en Europa te van a mirar de otra manera. Te van a mirar como el corredor colombiano joven al que hay que probar si aguanta. Y la manera en que respondas a esa mirada —en las etapas fáciles, en los momentos donde no hay nadie mirando— va a definir si llegas a algo o si eres uno más que pasó por Europa y volvió.
-
-Santi procesó esto.
-
-—¿Cómo respondo?
-
-—Como has respondido todo lo demás. Con trabajo. Pero Santi —y aquí Ospina hizo una pausa que el viento rellenó— también tienes que aprender a perder de otra manera.
-
-—¿Qué significa eso?
-
-—Hasta ahora cuando has perdido ha sido en Colombia. Los que te han ganado son gente que conoces, que puedes volver a ver, que están en el mismo circuito. Allá cuando pierdas —y vas a perder, muchas veces, al principio— vas a perder frente a gente que tiene más años y más kilometraje y más estructura detrás. Y eso se siente diferente. Más solo. Más definitivo.
-
-—¿Y?
-
-—Y que no te hunda. Que pierdas bien. Que aprendas de cada derrota más de lo que aprendes de cada victoria. Las victorias te dicen que puedes. Las derrotas te dicen cómo llegar más lejos.
-
-Santi miró el horizonte.
-
-—¿Cuándo ganó usted por última vez? —preguntó, sin saber exactamente por qué lo preguntaba.
-
-Ospina consideró.
-
-—El Clásico RCN del ochenta y nueve. Tercero en la general. La última vez que acabé una carrera importante entre los primeros.
-
-—¿Y cómo fue?
-
-—Bien —dijo Ospina—. Estuvo bien.
-
-—¿Eso es todo?
-
-—Eso es todo. No fue el Giro de Italia. Fue el Clásico RCN del ochenta y nueve y estuve tercero y luego fui al bus del equipo y me comí un bocadillo de guayaba y no pasó más nada. La gloria tiene ese tamaño cuando llega. El tamaño que tiene ese momento, y no más.
-
-Santi lo miró.
-
-—¿Entonces por qué se corre?
-
-Ospina volvió a guardar silencio. Era un hombre que se tomaba las preguntas en serio.
-
-—Porque mientras estás corriendo, la gloria tiene el tamaño del mundo entero. Y eso no lo da ninguna otra cosa.
+*Tu carrera.* Las mismas dos palabras que Patiño le había dicho la noche antes de la etapa reina. Pero ahora sonaban diferente —como si el director ya hubiera decidido que Santi tenía derecho a ellas y no necesitaba justificarlas.
 
 ---
 
-La última tarde en La América fue el veintidós de diciembre.
+El Col de la Madeleine desde Bourg-Saint-Maurice.
 
-Santi llevó la bicicleta al taller del hermano de Ospina para una revisión final antes de empacarla —los mecánicos del equipo europeo habían enviado instrucciones precisas sobre las medidas y ajustes que querían para la primera concentración de enero en Bélgica. Mientras el mecánico trabajaba, Santi tomó el tinto en la oficina de Ospina y miró la libreta sobre la mesa.
+La carretera empieza con una pendiente engañosa: los primeros ocho kilómetros al cuatro y medio, el tipo de ascenso que parece sostenible y que el pelotón acepta sin cuestionarse. El umbral mental donde la gente deja de fingir que está bien llega a los diez kilómetros, cuando la pendiente sube al siete y las deudas del Tour de l'Avenir se cobran todas al mismo tiempo.
 
-—¿Puedo verla? —preguntó.
+Santi había estado en doscientas treinta kilómetros de carrera durante los últimos ocho días. Había subido cuatro kilómetros novecientos al ocho coma siete al final del día anterior. Sus piernas tenían esa cualidad que los ciclistas describen como *estar cargadas* —no rotas, no lesionadas, sino llenas de algo que se acumula con los días de esfuerzo continuo y que solo el tiempo y el descanso disuelven completamente.
 
-Ospina dudó. Luego la empujó hacia él.
+Tenía todo eso encima.
 
-Era una libreta de espiral, con la tapa azul oscura desgastada en las esquinas. La mayoría de las páginas tenían datos: tiempos, potencias, cadencias, comentarios breves escritos en la letra apretada de Ospina. Pero en la última página con escritura —no la última hoja, sino la última que tenía algo— había una sola frase, escrita en el margen derecho con bolígrafo rojo:
+También tenía la libreta de anoche con *Sí* escrita en el margen.
 
-*Este es el mejor que he visto. Y le falta la mitad.*
+Diego Cardona tiró diecisiete kilómetros del Madeleine.
 
-Santi levantó la vista.
+No dieciocho —diecisiete, porque en el kilómetro diecisiete la carretera gira a la izquierda y sube al nueve durante cuatrocientos metros y el cuerpo de Cardona, que había dado todo lo que tenía para dar, dijo basta de la manera silenciosa en que los cuerpos dicen basta: sin calambre, sin explosión, con la simple negativa de los músculos a mantener el ritmo que les estaban pidiendo. Cardona fue perdiendo posiciones tan gradualmente que cuando Santi miró hacia atrás ya había diez metros entre él y el colombiano.
 
-—¿Cuándo escribió eso?
+—Gracias —dijo Santi en voz baja, hacia nadie, o hacia Cardona que ya no podía oírlo.
 
-—En septiembre, después del Tour de l'Avenir.
+El grupo de cabeza en ese momento: doce corredores. Bernal al frente con ese ritmo continuo suyo, Sivakov del equipo Sky Development a su rueda, Lambrecht en posición tres, Santi en posición cuatro. El danés Eg en posición siete. Los otros cinco: corredores que habían llegado a esa semana con reservas que los demás no tenían y que en el Madeleine todavía seguían ahí.
 
-—¿Qué significa que me falta la mitad?
+En el kilómetro veinte del Madeleine, Eg cedió.
 
-—Significa que tienes diecisiete años y la mitad de lo que eres todavía no se ha formado. La parte que se forma en Europa. La parte que se forma en las derrotas grandes. La parte que se forma cuando estás solo y lejos y tienes que decidir si sigues o si vuelves. —Ospina recuperó la libreta y la cerró—. Esa mitad es la que me interesa ver.
+En el kilómetro veintidós, dos más.
 
-—¿Cómo va a verla si me voy?
+En la cima, el grupo de cabeza era de ocho. Bernal, Sivakov, Lambrecht, Santi, dos franceses, el suizo Haas y el polaco Grabowski. Ocho corredores después de veinticuatro kilómetros al seis coma dos. Los otros cuatro que habían empezado la etapa entre Santi y el tercero de la general estaban en algún punto del puerto, perdiendo tiempo.
 
-—Te voy a seguir. Por los resultados. Por lo que me cuentes cuando llames. —Una pausa—. Y porque los que tienen lo que tú tienes, tarde o temprano hacen algo que se ve desde aquí.
+El viento en la cima del Madeleine a dos mil metros tenía una temperatura que no era la del verano. Era el viento de la alta montaña en agosto —el que recuerda que a esa altitud el verano es una concesión temporal y no una regla.
 
-Santi no respondió.
+Patiño por radio: —Ocho en cabeza. Lambrecht tercero en la general. Santi, cuarto.
 
-El mecánico asomó la cabeza desde el taller: la bicicleta estaba lista.
+Cuarto en la general.
 
-Santi se levantó. Extendió la mano.
-
-Ospina la estrechó. Firmemente. Sin más.
-
-—Ospina —dijo Santi.
-
-—Dime.
-
-—Gracias.
-
-—No me des gracias. Gana cosas.
+Con nueve kilómetros novecientos por delante.
 
 ---
 
-El veinticuatro de diciembre, Santi fue a San José de la Montaña con su familia por última vez antes del viaje.
+El descenso del Madeleine hacia Albiez-Montrond son veintidós kilómetros de curvas que Santi no había estudiado la noche anterior porque la noche anterior el cerebro tenía otras cosas que procesar. Los bajó a la rueda de Bernal, con los frenos calibrados para este tipo de curva, sin el error del día anterior —o sin el error equivalente de este descenso, que era diferente. Cerraba las curvas cuando el asfalto lo pedía y las abría cuando la física lo permitía, y llegó al fondo del descenso en los mismos cuatro segundos que el grupo de cabeza.
 
-Esta vez la niebla estaba más densa que nunca —su madre dijo que era porque había llovido toda la semana, su padre dijo que siempre estaba así en diciembre, Santi no dijo nada porque la niebla de San José a esas alturas era simplemente parte del paisaje interior, algo que llevaba consigo sin importar dónde estuviera.
+Cuatro segundos: la diferencia entre un descendedor bueno y uno excelente. La tenía anotada como deuda pendiente.
 
-Salió a correr a las seis de la mañana.
+La carretera que llega al pueblo de Saint-Jean-de-Maurienne y sube hacia Albiez-Montrond tiene dos kilómetros de transición —relativamente llanos, el tipo de carretera que en cualquier otro momento de la semana el pelotón haría a cuarenta y dos y que al final de nueve días de carrera se hace a treinta y seis porque las piernas no tienen nada más—. Santi comió el último gel del día. Bebió agua. Escuchó el ruido de las ruedas en el asfalto húmedo de la última lluvia de montaña.
 
-Sin bicicleta esta vez —solo corriendo, por las carreteras del pueblo, con los pies en el asfalto y la respiración haciendo vapor en el frío de dos mil quinientos metros. Pasó por el lote donde había estado la casa de bahareque. Por la plaza. Por la carretera que salía hacia las veredas del norte y que de niño había recorrido siguiendo a su padre en bicicleta.
+*Nueve kilómetros novecientos. Siete coma cinco por ciento de pendiente media.*
 
-Corrió durante cuarenta minutos. No marcó el tiempo. No llevaba el pulsómetro.
+Menos que Sainte-Foy. Más largo que Sainte-Foy.
 
-Era la primera vez en dos años que hacía algo relacionado con el deporte sin datos.
+Los dos últimos kilómetros al diez, con tramos al doce.
 
-Se detuvo en un punto de la carretera donde la niebla se abría ligeramente y el valle quedaba visible por un momento —verde y frío y silencioso, con una finca en el fondo donde las vacas pastaban sin urgencia. Lo miró.
+La misma lógica de siempre.
 
-Hernando Reyes había corrido por estas carreteras treinta años antes. Había subido estos puertos sin nombre, con la bicicleta del equipo, aprendiendo que era gregario y que ser gregario era lo más cerca que iba a estar de algo grande.
+---
 
-Santi miró el valle.
+La subida a Albiez-Montrond empieza donde el asfalto de la carretera principal gira hacia la derecha y la pendiente pasa del dos al siete en menos de cien metros. No hay zona de calentamiento. No hay tramo de preparación. La carretera decide y hay que responder.
 
-En cuatro meses iba a estar en Italia.
+Sivakov fue quien decidió.
 
-En mayo, en el Giro de Italia, en el puerto más alto de los Alpes.
+En el kilómetro uno con cuatrocientos metros de la subida, Pavel Sivakov —veintiún años, hijo de Serguéi Sivakov y Natalya Boyarskaya, dos ciclistas profesionales que le habían dado una biomecánica y una inteligencia táctica que en ocho días de carrera no había usado hasta ese momento— aceleró.
 
-La distancia entre San José de la Montaña y el Stelvio era incalculable en todos los sentidos que importaban, y al mismo tiempo era exactamente la misma distancia que su padre había recorrido en la dirección contraria, sin llegar.
+No fue la aceleración de quien está atacando desde el nerviosismo. Fue la aceleración de quien ha esperado exactamente el momento en que todos los demás tienen suficiente carga encima como para no poder responder de inmediato, y lo ha elegido con precisión. Cuatro pedaladas de más, mantenidas. El grupo de ocho tardó en reaccionar tres segundos —suficiente para que Sivakov abriera cinco metros.
 
-La niebla cerró de nuevo el valle.
+Bernal respondió.
 
-Santi se dio vuelta y corrió de regreso al pueblo.
+Lambrecht respondió.
 
-Había desayuno esperando y una Navidad que festejar y dos semanas antes del vuelo a Europa que quería vivir despacio, en presente, sin que la mente se adelantara demasiado a lo que venía.
+Santi respondió.
 
-El futuro podía esperar.
+Los tres franceses y el suizo Haas no respondieron —o respondieron pero no fue suficiente, que es la versión ciclística de no responder.
 
-San José de la Montaña, por última vez, no.
+En el kilómetro dos, eran cuatro: Sivakov, Bernal, Lambrecht, Santi. Grabowski a veinte metros. Los demás más atrás.
+
+Sivakov seguía al frente, con la cadencia de quien está vaciando el depósito de manera controlada. Bernal iba a su rueda. Lambrecht detrás de Bernal. Santi a la rueda de Lambrecht.
+
+La diferencia con la etapa de Sainte-Foy era tangible: hoy las piernas tenían un día más encima. El kilómetro dos de Albiez se sentía como el kilómetro cuatro de Sainte-Foy —el mismo tipo de sufrimiento pero llegando más temprano. Santi lo identificó y lo registró sin alarmarse. El sufrimiento que llega antes no es el mismo que llega en el límite. Todavía hay margen.
+
+En el kilómetro tres, Sivakov volvió a acelerar.
+
+Bernal no respondió de inmediato. Tardó dos segundos —una eternidad a este ritmo— y cuando aceleró, Sivakov ya tenía ocho metros.
+
+Lambrecht respondió antes que Bernal.
+
+Santi respondió con Lambrecht.
+
+El grupo de cuatro se convirtió en: Sivakov solo, diez metros adelante. Lambrecht y Santi juntos, en carrera, a dos metros de Bernal que los cerraba desde atrás.
+
+---
+
+El kilómetro cuatro de Albiez-Montrond.
+
+Sivakov estaba a quince metros. Bernal había cerrado la brecha y estaba a la rueda de Santi. Los tres —Bernal, Lambrecht, Santi— pedaleaban juntos con la economía de quien ya no tiene energía para desperdiciar en nada que no sea el siguiente metro de carretera.
+
+A Santi le quedaban cinco kilómetros novecientos.
+
+No pensó en los cinco kilómetros novecientos. Pensó en el siguiente.
+
+El siguiente kilómetro era al ocho por ciento y lo conocía porque lo había memorizado la noche anterior entre el tinto y la conversación con Patiño y la llamada a su padre. Ocho por ciento durante un kilómetro, luego un breve descenso de setenta metros, luego la rampa final al diez.
+
+Bernal atacó en el kilómetro cuatro con trescientos metros.
+
+No fue para ganar la etapa —Bernal no iba a perseguir a Sivakov para ganar la etapa cuando tenía el Tour de l'Avenir en el bolsillo. Fue para romper al grupo —para abrir la diferencia entre él y Lambrecht y certificar el podio con los dos segundos adicionales que un ataque en la penúltima rampa produce.
+
+Lambrecht respondió al ataque de Bernal.
+
+Santi no.
+
+No porque no pudiera —porque calculó que podía mantener su ritmo actual durante los cinco kilómetros que quedaban y que ese ritmo, contra un Lambrecht que acababa de gastar en perseguir a Bernal y un Bernal que ya había ganado y que en algún momento reduciría, era suficiente para el resultado que importaba.
+
+La brecha entre él y Bernal-Lambrecht se abrió a doce metros. A veinte. Santi la dejó crecer.
+
+Sivakov, solo adelante, estaba fuera de su vista.
+
+Los dos metros del rectilíneo, los cuatro metros de la curva cerrada del kilómetro cinco y medio, el punto donde la carretera se abre y el pueblo de Albiez-Montrond aparece al fondo con su arquitectura de madera y piedra de Saboya y las banderas del Tour de l'Avenir en los balcones: Santi llegó a ese punto con Bernal y Lambrecht a veinticinco metros, con Sivakov ya en la recta final hacia la línea, con el público de los últimos quinientos metros gritando en francés los nombres que no eran el suyo pero para quienes el pedaleo de un colombiano de diecisiete años en la última etapa de una carrera de nueve días era algo que valía la pena reconocer.
+
+Cruzó la línea de llegada tercero en la etapa.
+
+Sivakov primero. Bernal segundo, a once segundos. Santi tercero, a dieciséis.
+
+Tercero en la etapa. Y la clasificación general —que Patiño le confirmó dos minutos después desde el coche del equipo— ponía a Santi Reyes Cardona, diecisiete años y nueve meses, en el tercer lugar del Tour de l'Avenir 2017.
+
+---
+
+El podio fue al día siguiente en Albiez-Montrond.
+
+Tres corredores en el escenario: Bernal en el centro con el maillot de campeón y la mirada de siempre —sin euforia, sin desbordamiento, con esa calma que en él no era pose sino geografía interior. Lambrecht a la izquierda, segundo, con la expresión de quien llegó exactamente donde había calculado llegar y no siente la necesidad de celebrarlo. Y Santi a la derecha, en el tercer escalón, con el maillot de la selección Colombia y sin saber exactamente qué hacer con las manos cuando los organizadores los empujaron hacia adelante para las fotos.
+
+Puso las manos en las caderas. Le pareció lo más honesto.
+
+El presentador dijo los nombres. El público aplaudió. Los fotógrafos dispararon. Alguien puso un ramo de flores en las manos de cada uno —flores de montaña, el tipo que crece a mil quinientos metros sin que nadie las plante.
+
+Bernal lo miró desde el escalón del centro.
+
+—Tres podios en un año —dijo.
+
+—¿Cómo?
+
+—Primero en la Juventud, segundo en el Porvenir, tercero aquí. —Una pausa—. No está mal para alguien que no había salido de Colombia antes de este mes.
+
+Santi consideró esto.
+
+—Los dos primeros fueron en Colombia.
+
+—Pero el Avenir no.
+
+Tenía razón.
+
+El fotógrafo del organizador pidió que se miraran a la cámara. Los tres se miraron a la cámara con la simultaneidad entrenada de quienes han pasado la semana en el mismo circuito y saben que esa clase de instrucciones se obedecen sin discutir.
+
+El obturador disparó.
+
+En esa foto —que Santi vería años después en distintos contextos, en artículos y en retrospectivas y en las pantallas de los estadios cuando los presentadores repasaban las trayectorias— se ve a tres corredores de veintiún, veinte y diecisiete años, respectivamente, en la primera de varias veces que sus nombres van a aparecer juntos en un resultado. El mayor de los tres tiene una calma que no es de esta edad. El del medio tiene la expresión de quien ya está planeando el año siguiente. El menor tiene las manos en las caderas y mira a la cámara con los ojos de quien acaba de entender algo que no estaba en ningún manual.
+
+---
+
+Voló de vuelta a Colombia el veintinueve de agosto.
+
+Torres lo acompañó hasta el aeropuerto de Lyon, donde los caminos del equipo se separaban: Torres tomaba un vuelo a Madrid, Bernal volaba directo a Bogotá con el vuelo del Giro, Morales se quedaba en Francia dos días más porque tenía familia. Santi y Cardona volaban juntos hasta Bogotá.
+
+En el vuelo de Lyon a París —cuarenta minutos, el tiempo justo para que no valiera dormirse— Cardona sacó el teléfono y le mostró a Santi los mensajes que le habían llegado en las últimas veinticuatro horas: su familia en Pasto, sus amigos, el director de su equipo de base, la federación de Nariño. El ciclismo colombiano en su ecosistema completo, reaccionando al resultado de uno de los suyos como lo hace siempre: con una velocidad y un calor que no tienen equivalente en ningún otro deporte del país.
+
+Santi tenía los mismos mensajes, multiplicados. Su teléfono había estado en modo avión desde la llegada de la etapa y no lo había encendido todavía.
+
+Lo encendió en el vuelo de París a Bogotá.
+
+Ciento cuarenta y tres mensajes de WhatsApp. Veintisiete llamadas perdidas. Tres de su padre, dos de Ospina, doce de números que no tenía agendados, el resto de familiares y conocidos de San José y Medellín que se enteraron por la transmisión por internet o por los que sí vieron la transmisión.
+
+Respondió los tres de su padre primero.
+
+—Tercero —dijo Hernando Reyes cuando Santi le explicó el resultado final, aunque ya lo sabía.
+
+—Tercero.
+
+El silencio de su padre tenía una cualidad específica esa tarde —no el silencio de quien está calculando ni el de quien está conteniendo algo, sino el de quien está simplemente ahí, presente, acompañando en la distancia con el peso propio de la presencia.
+
+—Bien —dijo por fin.
+
+—¿Solo "bien"?
+
+—Bien, bien, bien —dijo Hernando, y había algo diferente en el tono, algo que Santi reconoció como la versión que su padre le daba a la euforia cuando decidía no dejarla salir por la voz sino por algún otro conducto—. Muy bien.
+
+Colgaron.
+
+Santi apoyó la cabeza contra la ventanilla del avión. Debajo, el Atlántico. Diez horas para Bogotá.
+
+Durmió.
+
+---
+
+Ospina estaba en el aeropuerto El Dorado.
+
+No era costumbre de Ospina esperar a nadie en aeropuertos —no había ido cuando Santi salió hacia Francia, no había ido en ninguna de las llegadas de carreras nacionales que Santi recordaba. Pero estaba ahí, con los brazos cruzados contra la baranda del área de llegadas internacionales, con la misma expresión de siempre.
+
+Cardona lo reconoció antes que Santi.
+
+—¿Ese no es tu entrenador?
+
+—Sí.
+
+—¿Siempre viene a esperarte?
+
+—No.
+
+Cardona asintió. Entendió que había algo en ese *no* que no era su territorio.
+
+Ospina los vio llegar. Esperó.
+
+—Buen trabajo —le dijo a Cardona cuando pasó.
+
+—Gracias —dijo Cardona, sorprendido, y siguió caminando hacia donde su familia lo esperaba más adelante.
+
+Luego miró a Santi.
+
+—¿Cómo están las piernas?
+
+—Están.
+
+Ospina asintió.
+
+—¿Y la cabeza?
+
+Santi pensó.
+
+—Llena.
+
+—¿De qué?
+
+—De cosas que todavía no entiendo. Y de cosas que entiendo pero que no sabía que iba a entender.
+
+Ospina procesó esto.
+
+—¿Como cuáles?
+
+—Como que los europeos no son más fuertes. Son más eficientes. Como que el ritmo de subida aquí en Colombia me va a romper en Europa si no lo cambio. —Una pausa—. Como que me falta un kilómetro en los finales.
+
+—¿Un kilómetro en los finales?
+
+—El kilómetro donde Bernal y Sivakov se van y yo no voy todavía. Ese kilómetro. Lo tengo anotado.
+
+Ospina lo miró durante tres segundos. Era mucho tiempo para Ospina.
+
+—Vamos —dijo.
+
+Y se fueron.
+
+Afuera el aeropuerto El Dorado seguía siendo el aeropuerto El Dorado: el ruido sordo de los aviones, el olor a keroseno y a café de los locales del terminal, la luz blanca que no cambia con la hora del día porque los aeropuertos no negocian con el tiempo. Eran las dos de la tarde y podría haber sido cualquier otra hora.
+
+Lo que sí había cambiado era él.
+
+No de manera visible —caminaba igual, hablaba igual, llevaba la misma mochila que había llevado a Francia un mes antes. Pero en algún punto del Col de la Madeleine, o en los últimos cuatro kilómetros de Albiez-Montrond, o quizás en el aeropuerto de Lyon antes de embarcar, o quizás en el momento exacto en que el avión despegó sobre los Alpes y las cimas eran visibles desde la ventanilla por última vez este año —en algún punto de todo eso había cruzado una línea que no tenía nombre pero que se sentía.
+
+Ospina lo sabía. Por eso había venido.

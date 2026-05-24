@@ -24,12 +24,12 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 
 | Arco | Período | Capítulos | Estado |
 |------|---------|-----------|--------|
-| I — El Hijo del Frío | 2000–2017 | 1–38 | Completo (pendientes correcciones menores) |
-| II — El Año que Todo Pasó | 2018 | 39–82 | No iniciado |
-| III — Aprender a Matar | 2019–2022 | 83–135 | No iniciado |
-| IV — El Reinado Incompleto | 2023–2025 | 136–193 | No iniciado |
-| V — La Cosecha | 2026–2029 | 194–255 | No iniciado |
-| VI — El Cóndor y el Silencio | 2030–2034 | 256–300 | No iniciado |
+| I — El Hijo del Frío | 2000–2018 | 1–39 | Completo (pendientes correcciones menores) |
+| II — El Año que Todo Pasó | 2018 | 40–83 | No iniciado |
+| III — Aprender a Matar | 2019–2022 | 84–136 | No iniciado |
+| IV — El Reinado Incompleto | 2023–2025 | 137–194 | No iniciado |
+| V — La Cosecha | 2026–2029 | 195–256 | No iniciado |
+| VI — El Cóndor y el Silencio | 2030–2034 | 257–300 | No iniciado |
 
 ---
 
@@ -54,10 +54,11 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 
 ## Correcciones pendientes en Arco I
 
-Ver tabla completa en `MAPA_Capitulos_Arco_I.md`. Las más urgentes:
-- Cap. 029 y 030: ajustar geografía del Tour de l'Avenir 2017 (cambiar Lyon → Loudéac; quitar Col de la Loze).
-- Cap. 033: encabezado dice "Capítulo 19" → corregir a "Capítulo 33".
-- Cap. 034: encabezado dice "Capítulo 20" → corregir a "Capítulo 34".
+Ver tabla completa en `MAPA_Capitulos_Arco_I.md`. Correcciones previas aplicadas:
+- Cap. 029–031: reescritos con presencia total del Avenir (ceremony, equipos, etapa 9, regreso, bicicleta Postobón).
+- Cap. 031: capítulo nuevo (Albiez-Montrond + regreso Colombia + Postobón).
+- Caps. 032–039: renumerados correctamente tras inserción del nuevo 031.
+- Encabezados internos de caps. 032–039: actualizados.
 
 ---
 

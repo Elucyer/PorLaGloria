@@ -1,269 +1,145 @@
 # POR LA GLORIA
 ## Arco I — El Hijo del Frío
-### Capítulo 36 — La llamada (Bélgica, abril de 2018)
+### Capítulo 36 — Mallorca (marzo de 2018)
 
 ---
 
-La llamada llegó un jueves por la noche, el doce de abril.
+El primer día que Santi sintió que era ciclista europeo fue en Mallorca, en una subida al Puig Major.
 
-Santi estaba en el apartamento de Waregem, tres semanas antes del inicio del Giro, terminando de revisar el perfil de altimetría de la décima etapa —la primera con montaña real, que cruzaba por los Dolomitas del noreste italiano— cuando el teléfono vibró en la mesa con el nombre de su madre en la pantalla.
+Llevaba seis semanas en Bélgica. Seis semanas de Flandes gris y frío y plano, de entrenamiento en carreteras que no subían, de adaptación progresiva a un ritmo de vida que era distinto al de Medellín en todo: la hora de las comidas, la temperatura de las duchas, el silencio de las noches de Waregem que era diferente al silencio de Floresta que era diferente al silencio de San José de la Montaña. Había aprendido a pedir café en flamenco. Había aprendido que Tom hablaba rápido pero si le pedías que repitiera no se ofendía. Había aprendido que Marek cocinaba borscht los domingos y que el olor llenaba el apartamento de una manera que no era desagradable pero tampoco era esperada.
 
-Su madre no llamaba los jueves.
+La concentración de marzo en Mallorca fue diez días. Sol, carreteras limpias, paisaje mediterráneo que en los colores y en la luz tenía algo que Santi no sabía que había extrañado: el color vivo, el contraste, la sensación de que el mundo era más que gris y adoquines.
 
-Los jueves era la noche de telenovela —un ritual que Doña Carmen Cardona mantenía con una disciplina que Santi siempre había encontrado incongruente con el resto de su carácter práctico— y si llamaba era los lunes, cuando la semana empezaba y quería saber cómo estaba antes de que los días se la tragaran. Los jueves no llamaba.
+Y montañas.
 
-Respondió.
+El Puig Major —el punto más alto de la sierra de Tramuntana, con sus mil doscientos veintiún metros sobre el nivel del mar— no era el Stelvio ni el Galibier ni ninguno de los gigantes que estaban en el horizonte de mayo. Era un puerto de isla, moderado en pendiente, con vistas al Mediterráneo que a cierta altura se volvían tan azules que parecían pintadas. Pero era una subida real en una carretera real, y en la subida real el cuerpo de Santi encontró lo que seis semanas en Flandes le había quitado: la gravedad trabajando a su favor.
 
-—Mami.
+Subió el Puig Major en el segundo entrenamiento del campo, un martes de cielo sin nubes.
 
-—Santi. —Una pausa que duró lo suficiente para que él entendiera que la llamada no era de rutina—. Tu papá estuvo en el médico esta semana.
+Lo subió solo —Duchêne había dado el grupo libre para explorar la isla— y lo subió sin datos, sin referencias de tiempo, solo siguiendo lo que el cuerpo pedía. Y lo que el cuerpo pedía era atacar. No atacar a alguien —no había nadie. Atacar el puerto, la pendiente, la distancia entre donde estaba y donde terminaba la subida.
 
-El torso de Santi se tensó sin que tomara la decisión consciente de tensarlo.
+Llegó a la cima en veintidós minutos y cuarenta segundos.
 
-—¿Qué pasó?
+No sabía si era un tiempo bueno o malo para ese puerto —no conocía los tiempos de referencia, no había buscado datos antes de subir. Lo supo después, cuando Duchêne le preguntó y revisó en su base de datos: el mejor tiempo del equipo en ese tramo era de veintitrés minutos con cuatro segundos.
 
-—Lleva unas semanas con una tos que no se le va. El médico lo mandó a hacer unos exámenes.
+Lo había batido. Su primera vez en el puerto.
 
-—¿Qué exámenes?
+Duchêne no dijo nada de eso en el momento. Anotó en su tablet. Continuó con la reunión técnica de la tarde.
 
-—Radiografía del pecho, unos análisis de sangre. —Su madre habló con la precisión controlada de alguien que ha practicado el tono antes de marcar—. Todavía no hay resultados. El médico dijo que en una semana.
+Esa noche le mandó un mensaje a Santi:
 
-Santi procesó esto. Tos. Radiografía. Análisis.
+*22:40 Puig Major. Primera vez. Buena señal para mayo.*
 
-—¿Qué dice papá?
+Santi leyó el mensaje. Lo archivó en la carpeta de su teléfono donde guardaba los mensajes que quería releer.
 
-—Dice que no es nada. Dice que siempre ha tosido en el cambio de clima.
+---
 
-—¿Y tú qué crees?
+En Mallorca, la conversación con Simon Clarke cambió de carácter.
 
-Un silencio más corto.
+Desde el primer día en Waregem habían coincidido en los entrenamientos, en las reuniones de equipo, en los desayunos del cuartel, pero la convivencia de los primeros dos meses había sido funcional más que íntima: Simon tenía doce años más, dos décadas de carreteras europeas, y esa manera de moverse por un cuartel de equipo que tienen los veteranos cuando ya no necesitan probar nada a nadie. Santi había aprendido a leerlo sin palabras, que era la manera en que Clarke operaba. En Mallorca, con los entrenamientos más largos y las tardes más vacías, empezaron a hablar.
 
-—Creo que hay que esperar los resultados.
+El tercer día de concentración coincidieron en el desayuno del hotel antes de la sesión de la mañana. Clarke tenía treinta y dos años en ese momento, once temporadas de profesional en el cuerpo, y esa manera de hablar de la bicicleta que tienen los veteranos: sin adornos, con precisión, sin el entusiasmo de quien todavía descubre cosas pero tampoco con el cansancio de quien ya no le quedan cosas por descubrir.
 
-Eso no era lo que creía. Santi lo sabía, y su madre sabía que él lo sabía, y ninguno de los dos dijo la palabra que estaba en el espacio entre ellos.
+—Primera temporada —dijo Simon, no como pregunta.
 
-—Mami. Dime qué piensa el médico.
+—Sí —dijo Santi.
 
-—El médico no dijo nada definitivo.
-
-—Mami.
-
-—Santi, todavía no hay resultados. No tiene sentido especular.
-
-—¿Cuándo los tienen?
-
-—El próximo miércoles o jueves.
-
-—Llámame en cuanto los tengan. A cualquier hora.
+—¿Giro?
 
 —Sí.
 
-—¿Papá está ahí?
+—¿Rol?
 
-—Está durmiendo. Ya son las nueve.
+—Todavía no sé.
 
-—Dile mañana que lo llamo.
+Simon asintió. Untó mermelada en la tostada con la deliberación de alguien que hace muchas cosas en automático y esta no era una de ellas.
 
-—Bien.
+—El Giro el primer año es una experiencia —dijo—. La primera semana vas a querer morirte. No por las etapas —las primeras etapas son relativamente manejables. Sino por el ritmo de vida: el bus, el hotel, el bus, la carrera, el hotel, el bus. Tres semanas de eso es un organismo diferente al que entrenas.
 
-—Mami.
+—¿Cómo se prepara eso?
 
-—Dime.
+—No se prepara. Se vive y se sobrevive y al año siguiente ya sabes lo que te espera.
 
-—¿Está bien? ¿Cómo se ve?
+—¿Y el ciclismo en sí?
+
+Simon lo miró.
+
+—¿Cuántos años tienes?
+
+—Dieciocho.
 
 Una pausa.
 
-—Se ve bien —dijo Carmen—. Un poco cansado. Pero se ve bien.
+—En el pelotón del Giro hay corredores que tienen el doble. Que llevan más años corriendo Grand Tours que tú años en la tierra. Eso no significa que te van a ganar —significa que van a ver cosas que tú no ves todavía, y que van a usar esas cosas. La diferencia entre un corredor joven con talento y un corredor veterano sin él es que el veterano conoce todos los trucos y el joven solo conoce sus propias piernas.
 
-Santi colgó. Se quedó mirando el teléfono durante dos minutos. Luego abrió el WhatsApp y le escribió a su padre: *Papá. Mañana te llamo. Cuídate.*
+—¿Y el que tiene las dos cosas?
 
-Hernando respondió veinte minutos después, lo que significaba que no estaba durmiendo: *Estoy bien hijo. Tú cuídate que el Giro está cerca.*
+Simon sonrió.
 
-Santi cerró el teléfono.
+—El que tiene las dos cosas es el que gana Grand Tours.
 
-Se levantó. Fue a la ventana. Waregem afuera, oscuro y quieto, los adoquines de la calle reflejando la luz de las farolas de una manera que hacía pensar en agua inmóvil.
+—Yo voy a ganar Grand Tours.
 
-Tres semanas para el Giro.
+No fue arrogancia. Fue una declaración del tipo que se hace cuando uno realmente cree lo que está diciendo y no tiene motivo para fingir modestia que no siente.
 
-Llamó a Ospina. Era la una de la mañana en Medellín.
+Simon lo miró durante un momento.
 
-Ospina respondió al tercer timbre.
-
-—¿Qué pasó? —fue lo primero que dijo. No *buenas noches*, no *¿quién es*. Solo *¿qué pasó*, porque a la una de la mañana nadie llama para decir que todo está bien.
-
-Santi le contó. La tos. El médico. Los exámenes.
-
-Ospina escuchó sin interrumpir.
-
-—¿Tienes que ir? —preguntó cuando Santi terminó.
-
-—No lo sé todavía. No hay resultados.
-
-—¿Qué te dice el instinto?
-
-Santi pensó.
-
-—Que espere los resultados antes de decidir.
-
-—Bien. —Pausa—. ¿Estás bien?
-
-—Sí.
-
-—Mentiroso.
-
-—Estoy bien para el Giro. Lo otro lo processo cuando haya algo que procesar.
-
-Ospina guardó silencio un momento.
-
-—Tu padre sabe que te vas a correr el Giro pase lo que pase —dijo.
-
-—Lo sé.
-
-—Y tú sabes que eso no significa que no importa. Solo significa que los dos tienen claro qué es lo correcto.
-
-—Lo sé —dijo Santi de nuevo.
-
-—Llámame cuando tengas los resultados.
-
-—Sí.
-
-Colgaron.
-
-Santi se volvió a sentar en el escritorio. El perfil de altimetría de la décima etapa seguía en la pantalla —los Dolomitas con sus perfiles dentados, el Passo San Pellegríno, el Passo Valles, los números de kilómetros y altitudes que tres horas antes habían sido el centro de su atención y que ahora eran simplemente líneas en una pantalla.
-
-Las miró.
-
-Las volvió a mirar.
-
-Luego cerró el portátil.
+—Ya lo sé —dijo—. Por eso te lo estoy explicando.
 
 ---
 
-Los resultados llegaron el miércoles siguiente, a las cuatro de la tarde hora de Bélgica.
+Los últimos tres días de Mallorca, Duchêne organizó dos simulacros de carrera: salida en grupo, control de posiciones en pelotón, trabajo de equipo en los puertos. Era el primer entrenamiento verdaderamente colectivo —no series individuales sino un equipo moviéndose como tal, con los gregarios controlando el ritmo, el líder conservando energía, y los roles definidos por las instrucciones de Duchêne desde el carro de apoyo.
 
-Su madre llamó con el mismo tono controlado de la vez anterior, y Santi, que había estado todo el día midiendo el teléfono en silencio —en los entrenamientos, en las comidas, en la reunión técnica de Duchêne que había seguido sin escuchar del todo— respondió antes de que sonara el primer timbre.
+El líder provisional del equipo para el Giro era un belga de veintiocho años llamado Pieter Verstraeten, buen corredor con un palmarés decente en carreras de segunda división europea —había ganado el Tour de Wallonie en 2016 y tenía podios en la Volta a Catalunya— pero que en los Grandes Tours nunca había pasado del puesto veinte en la general.
 
-—¿Qué dice?
+El rol de Santi para el Giro era explícito: gregario de montaña. Proteger a Verstraeten en los primeros kilómetros de los puertos, entregarle el bidón en los momentos difíciles, y cuando el trabajo estuviera hecho, ir a la suya si quedaban fuerzas.
 
-Su madre tardó.
+Santi aceptó el rol.
 
-—El médico quiere hacer más pruebas.
+Pero en el segundo simulacro, en la subida final de la jornada —doce kilómetros de subida real, no el Puig Major sino un puerto sin nombre en el interior de la isla— cuando Verstraeten marcó el ritmo para los últimos cuatro kilómetros y el grupo se fragmentó, Santi se encontró a dos metros del carro de Duchêne en lugar de detrás de Verstraeten.
 
-Santi cerró los ojos.
+Duchêne bajó la ventanilla.
 
-—¿Qué tipo de pruebas?
+—¿Qué haces aquí?
 
-—Una tomografía. Dice que en la radiografía hay algo que quiere ver con más detalle. Pero Santi —y la voz de su madre se apretó un poco, no de llanto sino de la presión de alguien que contiene muchas cosas al mismo tiempo— dijo que no hay que alarmarse. Que puede ser muchas cosas.
+—El trabajo del kilómetro ocho al doce ya lo hice. Ahora estoy a la suya.
 
-—¿Cuándo es la tomografía?
+—Verstraeten todavía necesita apoyo.
 
-—El viernes.
+—Verstraeten tiene suficiente para los últimos dos kilómetros. Si gasto lo que me queda siguiéndole la rueda, al Giro llego con menos.
 
-—¿Y los resultados?
+Duchêne lo miró.
 
-—La próxima semana. Antes de que te vayas al Giro, si hacemos los trámites rápido.
+—¿Estás seguro de que tiene suficiente?
 
-Santi procesó la cronología. El Giro empezaba el cuatro de mayo en Jerusalén. Era el dieciocho de abril. Dos semanas y media.
+—Su frecuencia cardíaca en el kilómetro nueve bajó tres pulsaciones. Está gestionando, no aguantando.
 
-—¿Habló papá con el médico?
+El carro siguió rodando en paralelo con la subida. Duchêne no dijo nada durante treinta segundos.
 
-—Fueron juntos.
+—Ve —dijo.
 
-—¿Y él qué dice?
+Santi aceleró.
 
-—Dice lo mismo que dice siempre. Que no es nada. Que en esta familia los hombres son más duros que los exámenes.
+Llegó a la cima cuarenta y ocho segundos antes que Verstraeten.
 
-A pesar de todo, Santi sintió algo que podría haber sido una sonrisa.
+Esa noche en la cena, Duchêne se sentó a su lado —algo inusual, porque el director solía sentarse con los corredores veteranos. Le sirvió un poco de vino sin preguntar y dijo:
 
-—Eso suena a él.
+—Tienes instinto. Eso es bueno.
 
-—Sí. —Una pausa—. Santi. Tu papá quiere que vayas al Giro.
+—Gracias.
 
-—Ya lo sé.
+—Pero el instinto sin disciplina es peligroso en un equipo. En el Giro, cuando yo digo quédate con el líder, te quedas con el líder. Aunque creas que él no te necesita.
 
-—No como cumplido. Como instrucción. Me pidió que te lo dijera de parte suya: que vayas al Giro.
+—¿Y si tengo razón?
 
-—Mami.
+—Y si tienes razón y igual respetas la instrucción, aprendo a confiar en tu criterio. Si haces lo que quieres sin preguntar, no puedo confiar en nada.
 
-—Que vayas al Giro y que corras como si él estuviera en cada puerto.
+Santi tomó el vino. Era seco y tenía un sabor que todavía no sabía clasificar —no era el aguardiente de su padre ni el vino dulce que su madre tomaba en Navidad. Era otra cosa. Adquirida.
 
-Santi no respondió de inmediato.
+—De acuerdo —dijo.
 
-Afuera de la ventana del cuarto del apartamento de Waregem, un chico de quince años en bicicleta subía la calle con esa energía despreocupada de los quince años, pedaleando sin casco, con el viento doblándole la ropa, sin saber que alguien lo miraba.
+—Bien. —Duchêne levantó el vaso—. Al Giro.
 
-—Dile que voy —dijo Santi—. Y que en cada puerto.
+—Al Giro —dijo Santi.
 
----
-
-Llamó a su padre esa noche.
-
-Hernando respondió al segundo timbre, con voz normal —no la voz de quien acaba de despertar ni la de quien lleva horas sin dormir.
-
-—¿Cómo estás? —dijo Santi.
-
-—Bien. Hoy fuimos a almorzar en Cali Vivo, ¿ese restaurante que te gustaba en el parque?
-
-—El de las papas rellenas.
-
-—Ese. Estaba igual.
-
-—¿Y cómo te sientes?
-
-—Bien, Santi. La tos está mejor, de hecho. El frío de esta semana la pone peor pero en realidad está mejor.
-
-—Papá.
-
-—Dime.
-
-—Los exámenes.
-
-—¿Qué pasa con ellos?
-
-—Mami me dijo.
-
-Silencio breve.
-
-—Son exámenes —dijo Hernando—. Los médicos piden exámenes. Es lo que hacen.
-
-—Papá.
-
-—Santi. Escúchame.
-
-—Lo escucho.
-
-—En tres semanas empieza el Giro de Italia. Mi hijo va a correr el Giro de Italia. Eso es lo que importa ahora. Lo otro —y aquí la voz de Hernando tuvo un tono que Santi no le había escuchado antes, no exactamente miedo sino la decisión consciente de no dejar que el miedo hable— lo otro lo miramos cuando haya que mirarlo.
-
-—¿Y si hay que mirarlo antes del Giro?
-
-—Entonces lo miramos. Pero no antes de que haya algo que mirar.
-
-Santi se mordió el labio.
-
-—¿Me prometes que me llamas si pasa algo?
-
-—Te prometo.
-
-—¿Cualquier cosa?
-
-—Cualquier cosa. —Pausa—. Santi.
-
-—Diga.
-
-—¿Cómo están las piernas?
-
-Y ahí, con esa pregunta que era la forma en que Hernando Reyes preguntaba *¿estás bien* sin decir *¿estás bien*, Santi entendió que la conversación había terminado en el único punto en que su padre permitía que terminara: en la bicicleta. En las piernas. En el trabajo que quedaba por hacer.
-
-—Bien —dijo Santi—. Las piernas están bien.
-
-—Entonces todo está bien —dijo su padre.
-
-Y colgaron.
-
-Y Santi se quedó con el teléfono en la mano, en el apartamento de Waregem, con el frío de abril en Flandes filtrándose por la ventana mal sellada, y entendió que algunas cosas —las cosas más importantes, las que definen quién eres y de dónde vienes y hasta dónde eres capaz de llegar— no se resuelven en una conversación ni en un diagnóstico ni en ninguna palabra.
-
-Se resuelven en la carretera.
-
-En los puertos.
-
-En el cuerpo que sube cuando el corazón querría bajar.
+Y chocaron los vasos con el sonido limpio del cristal, y afuera el Mediterráneo estaba oscuro y tranquilo, y en el horizonte que ninguno de los dos podía ver desde la terraza del restaurante, Italia esperaba.
