@@ -18,6 +18,20 @@ Subió el Puig Major en el segundo entrenamiento del campo, un martes de cielo s
 
 Lo subió solo —Duchêne había dado el grupo libre para explorar la isla— y lo subió sin datos, sin referencias de tiempo, solo siguiendo lo que el cuerpo pedía. Y lo que el cuerpo pedía era atacar. No atacar a alguien —no había nadie. Atacar el puerto, la pendiente, la distancia entre donde estaba y donde terminaba la subida.
 
+Los primeros tres kilómetros del Puig Major están al cinco por ciento —la pendiente de la introducción, la que el puerto usa para preguntar quién eres antes de decirte quién tiene que ser. Santi los hizo en cadencia alta, noventa y dos revoluciones por minuto, sin forzar la potencia, dejando que el cuerpo encontrara el ritmo. Las seis semanas de Flandes estaban en las piernas como una base que no se veía pero se sentía: la capacidad aeróbica construida en las carreteras planas, el motor largo que Duchêne había estado entrenando con paciencia de constructor. Aquí, en la pendiente, todo eso se convertía en algo concreto.
+
+En el kilómetro cuatro la pendiente subió al siete.
+
+Santi la sintió en los cuádriceps —no como esfuerzo máximo sino como el esfuerzo correcto, el que tiene el peso justo de lo que el cuerpo puede sostener si no lo desperdicia. Mantuvo la cadencia. Dejó que la potencia llegara a trescientos diez vatios sola, sin empujarla. En Colombia había aprendido a leer la diferencia entre el puerto que duele de manera productiva —el que te está construyendo— y el que duele de manera vacía —el que te está consumiendo sin darte nada a cambio. Este era productivo.
+
+El kilómetro seis fue donde el Puig Major mostró su cara real: un tramo al nueve por ciento que duraba cuatrocientos metros y que sin aviso convertía la subida confortable en una pregunta directa. Santi cambió al piñón veintiuno. La cadencia bajó a ochenta y siete. Los pulmones empezaron a trabajar de verdad —el tipo de trabajo donde la respiración deja de ser un proceso automático y se convierte en algo que requiere atención, donde cada exhalación tiene que ser completa para que la siguiente inhalación sea eficiente.
+
+En el kilómetro ocho la carretera se abrió y apareció el Mediterráneo.
+
+No al frente —al costado derecho, a través de los pinos que bordeaban la carretera, el mar de un azul que era difícil de procesar después de seis semanas de gris. Santi lo vio. No detuvo el ritmo —no era el momento de detenerse— pero lo registró con la parte del cerebro que registra las cosas que importan aunque el cuerpo esté haciendo otra cosa. El azul del Mediterráneo desde el kilómetro ocho del Puig Major. La diferencia entre ese color y el color del cielo de Flandes era la diferencia entre dos ideas del mundo.
+
+Los últimos cuatro kilómetros los subió en el límite —no en el límite del colapso sino en el límite del rendimiento óptimo, ese umbral donde el esfuerzo es máximo sostenible y cualquier décima de más empieza a costar más de lo que da. Los cuádriceps ardían con ese ardor limpio que distingue el esfuerzo muscular real del daño —la diferencia entre el fuego de una hoguera bien controlada y el de algo que se está quemando sin control.
+
 Llegó a la cima en veintidós minutos y cuarenta segundos.
 
 No sabía si era un tiempo bueno o malo para ese puerto —no conocía los tiempos de referencia, no había buscado datos antes de subir. Lo supo después, cuando Duchêne le preguntó y revisó en su base de datos: el mejor tiempo del equipo en ese tramo era de veintitrés minutos con cuatro segundos.
@@ -85,6 +99,35 @@ No fue arrogancia. Fue una declaración del tipo que se hace cuando uno realment
 Simon lo miró durante un momento.
 
 —Ya lo sé —dijo—. Por eso te lo estoy explicando.
+
+---
+
+El día cuatro de la concentración Duchêne organizó la primera sesión de intervalos VO2max de la temporada.
+
+VO2max: el consumo máximo de oxígeno. El techo fisiológico, el número que en el laboratorio diferencia a los ciclistas ordinarios de los extraordinarios y a los extraordinarios de los que ganan Grand Tours. El de Santi —medido en la prueba de Waregem— era de ochenta y dos mililitros de oxígeno por kilómetro por minuto. Duchêne no lo había comentado delante del equipo pero sí con Santi: *Es el número más alto que he visto en un corredor joven. No te emociones. El VO2max es el techo. El trabajo es construir las habitaciones.*
+
+La sesión: ocho repeticiones de cuatro minutos al ciento diez por ciento del umbral —trescientos sesenta y siete vatios— con cuatro minutos de recuperación entre cada una. El objetivo no era llegar al cuatro minutos limpio sino aprender la sensación de estar al techo: la respiración que se convierte en jadeo controlado, el ácido láctico acumulándose más rápido de lo que el cuerpo puede eliminarlo, el sistema nervioso autónomo tomando el control de los pulmones y el corazón porque la corteza prefrontal tiene otras cosas en las que enfocarse.
+
+Primera repetición: tres minutos cincuenta y ocho segundos a trescientos sesenta y nueve vatios. Limpia.
+Segunda: cuatro minutos exactos a trescientos sesenta y cuatro. Limpia.
+Tercera: la cadencia cayó a los tres minutos. Santi la subió. Cuatro minutos a trescientos sesenta y uno. Límite, pero limpia.
+Cuarta: al minuto y medio empezó el dolor real —no el ardor muscular sino la acumulación ácida que sube desde los cuádriceps hasta la garganta y hace que el cuerpo quiera detenerse con una insistencia que no es dolor sino pánico fisiológico. Santi lo reconoció. Lo nombró. *Esto es lo que se siente. Esto es lo que hay que aguantar.* Cuatro minutos y tres segundos a trescientos cincuenta y siete.
+
+Las cuatro repeticiones restantes las hizo peor —las últimas dos por debajo del objetivo. Pero las ocho repeticiones las terminó.
+
+Duchêne revisó los datos sin comentar nada en el momento. Esa noche, en la cena, se sentó a su lado.
+
+—Las últimas tres repeticiones estuvieron por debajo.
+
+—Lo sé.
+
+—¿Qué pasó en la quinta?
+
+—El ácido. No sabía cuándo cedía.
+
+—No cede —dijo Duchêne—. Se gestiona. La diferencia es que cuando sabés que no cede, le podés decir al cuerpo que siga de todas formas. —Una pausa—. La semana que viene las hacemos de nuevo. Las últimas tres tienen que quedar limpias.
+
+Quedaron limpias.
 
 ---
 

@@ -18,6 +18,10 @@ No fue planificado. Clarke estaba en el taller revisando su bicicleta cuando San
 
 La primera hora la hicieron sin hablar mucho.
 
+En los primeros veinte kilómetros, el cuerpo todavía se estaba encendiendo. No en el sentido metafórico —en el sentido literal, fisiológico: la temperatura muscular subiendo grado a grado desde los treinta y siete de reposo hasta los treinta y ocho coma cinco del esfuerzo sostenido, las enzimas del metabolismo aeróbico activándose progresivamente, la distribución de sangre redistribuyéndose desde los órganos hacia los músculos con una eficiencia que tomaba entre quince y veinte minutos en completarse. Santi lo sabía desde que Ospina le había explicado la fisiología del calentamiento en la primera temporada juntos. Lo sabía, y sin embargo en los primeros veinte kilómetros siempre sentía que las piernas pesaban más de lo que debían —no mal, solo diferentes, todavía en el proceso de convertirse en las piernas que iban a pedalear durante cinco horas.
+
+A los veinticinco kilómetros el cambio era perceptible. Las piernas funcionaban como un sistema coherente. La potencia llegaba con facilidad a doscientos cuarenta vatios sin que el corazón tuviera que trabajar a más de ciento cuarenta y cinco pulsaciones. Eso era la zona dos de entrenamiento: el motor largo, el que se construía kilómetro a kilómetro en los días lentos y que aparecía en las etapas largas cuando todos los demás habían gastado lo que tenían.
+
 Santi había aprendido que Clarke era un hombre de silencios funcionales —no incómodos, no hostiles, sino simplemente el silencio de alguien que no habla cuando no tiene nada que decir y que cuando habla dice algo que vale la pena escuchar. En las reuniones de equipo Clarke tomaba notas y preguntaba una o dos cosas al final, precisas y técnicas. En los entrenamientos pedaleaba con esa regularidad de máquina bien calibrada que Santi había empezado a estudiar como se estudia una técnica que no se domina.
 
 A los sesenta kilómetros pararon en un café de carretera —una cosa pequeña con cortinas de encaje en la ventana y una estufa de leña en la esquina— y pidieron café y agua. El hombre detrás del mostrador les habló en flamenco y Clarke respondió con el holandés irregular que había aprendido en cuatro temporadas en equipos belgas.
@@ -98,7 +102,17 @@ Clarke asintió, como si eso explicara algo que había estado procesando.
 
 Los últimos cuarenta kilómetros los hicieron en silencio.
 
-No por falta de qué decir sino porque habían llegado a ese punto del entrenamiento largo donde el cuerpo consume la energía que queda y el hablar se convierte en un gasto que no tiene sentido. Las piernas seguían. El ritmo era el mismo. El frío de Flandes seguía siendo el frío de Flandes.
+No por falta de qué decir sino porque habían llegado a ese punto del entrenamiento largo donde el cuerpo consume la energía que queda y el hablar se convierte en un gasto que no tiene sentido. A las cuatro horas de pedaleo el organismo empieza a agotarse el glucógeno almacenado en los músculos —el combustible rápido, el que el cuerpo usa en los esfuerzos de alta intensidad y que se reconstituye lentamente con la alimentación. Santi había comido dos barritas energéticas en la primera pausa y un gel en el kilómetro ciento diez, pero a las cuatro horas el sistema nervioso empezaba a reportar lo que los músculos habían consumido: una fatiga que no era dolorosa sino *pesada*, de volumen, como si las piernas contuvieran algo que no estaba ahí al principio y que ahora formaba parte de cada pedalada.
+
+Clarke pedaleaba al mismo ritmo de la primera hora. Doscientos treinta vatios. Sin variación, sin concesión, sin la caída de potencia que Santi había visto en los corredores jóvenes cuando pasaban las cuatro horas —esa desintegración progresiva donde los vatios caen diez, luego veinte, y el corredor sigue pensando que va bien porque el ritmo de la cadencia se mantiene aunque la fuerza aplicada en cada pedalada se haya reducido a la mitad.
+
+Santi midió su propia potencia. Doscientos veintiocho. Dos vatios por debajo de Clarke.
+
+Comió el segundo gel. Bebió agua.
+
+Doscientos treinta y uno.
+
+*El motor largo se construye así.* No en los días de esfuerzo máximo sino en estos: en las horas donde el cuerpo ya ha dado todo lo cómodo y todavía tiene que dar el resto. Las piernas seguían. El ritmo era el mismo. El frío de Flandes seguía siendo el frío de Flandes.
 
 A cinco kilómetros del cuartel general, Clarke aceleró ligeramente.
 

@@ -96,9 +96,37 @@ Clarke consideró esto con la seriedad de alguien que no da respuestas fáciles.
 
 ---
 
+En el kilómetro treinta y ocho, el tercer sector.
+
+Santi lo vio llegar a distancia —el cambio de textura en la carretera, el color ligeramente más oscuro de los adoquines mojados, el ruido distinto que producían las ruedas del grupo delante antes de que él llegara. Esa era la primera adaptación real: aprender a *ver* los pavés con suficiente antelación para ajustar la posición antes de entrar.
+
+Entró con los codos flexionados, los brazos absorbiendo. Esta vez la bicicleta no lo sorprendió.
+
+Pero el cuerpo sí.
+
+Los adoquines tienen un costo que no aparece en el medidor de potencia. El medidor decía doscientos ochenta vatios —un ritmo manejable, por debajo del umbral, el tipo de esfuerzo que en asfalto se sostiene durante horas. Pero el gasto invisible de mantener el equilibrio sobre una superficie que cambia en cada metro, de tensionar y soltar los músculos del núcleo cien veces por kilómetro para absorber la vibración sin transferirla a las ruedas, de mantener la concentración activa en lugar de dejar que el piloto automático tome el control —ese gasto no aparecía en los vatios pero sí aparecía en las piernas cuando volvieron al asfalto limpio y Santi notó que estaban más pesadas de lo que el número justificaba.
+
+—¿Lo sentiste? —dijo Clarke cuando dejaron el sector.
+
+—Que las piernas están más cargadas de lo que deberían.
+
+—Bien. Ese es el gasto que nadie te dice. En el Giro no hay pavés, pero hay adoquines en los descensos del norte, hay grava en los primeros kilómetros del Stelvio, hay baches en cualquier carretera italiana de segunda categoría. El cuerpo que sabe gestionar superficies irregulares gasta veinte por ciento menos en esas condiciones. —Una pausa—. El cuerpo que no sabe explota en el momento que más importa.
+
+---
+
 La segunda hora del entrenamiento fue por las carreteras llanas al norte de Waregem, entre campos de trigo todavía vacíos por el invierno y granjas con los tejados de pizarra que Santi había empezado a leer como parte del paisaje sin que se diera cuenta. La lluvia seguía. La espalda seguía mojada.
 
-En una recta larga de cuatro kilómetros, con el viento de frente que rebajaba la velocidad de crucero a treinta y dos kilómetros por hora aunque todos pedaleaban al mismo ritmo, Santi pensó en Las Palmas. En la bomba del San Diego, la Avenida El Poblado bajando hacia el sur, el primer kilómetro antes de que la carretera empezara a subir. El sol de las nueve de la mañana en Medellín que calentaba el asfalto y hacía que el olor a gasolina y a tierra mojada se mezclaran en algo que era específicamente antioqueño y que no existía en ningún otro lugar del mundo.
+En una recta larga de cuatro kilómetros, con el viento de frente que rebajaba la velocidad de crucero a treinta y dos kilómetros por hora aunque todos pedaleaban al mismo ritmo, Duchêne habló por radio desde el coche de apoyo que rodaba doscientos metros atrás:
+
+—Santi. Tres minutos a umbral. Ya.
+
+No había más instrucción que esa. Santi subió la cadencia de ochenta y ocho a noventa y tres, cambió al piñón catorce, sintió cómo la potencia pasaba de doscientos cuarenta a trescientos veinte en el espacio de una respiración. El viento de frente, que antes era resistencia, se convirtió en la pared contra la que empujar. El cuerpo respondió —los pulmones abrieron más, la frecuencia cardíaca escaló hasta ciento setenta y dos, el ácido láctico empezó a acumularse en los cuádriceps con esa sensación de peso específico que Santi conocía desde los puertos de Antioquia pero que en llano tenía un carácter distinto: más difuso, sin el consuelo del fin visible que un puerto ofrece.
+
+Un minuto. Dos. Los tres minutos se cumplieron en la cuenta regresiva del ciclocomputador. Santi bajó la intensidad.
+
+—Bien —dijo Duchêne por radio—. Zona dos. Veinte minutos.
+
+Santi pensó en Las Palmas. En la bomba del San Diego, la Avenida El Poblado bajando hacia el sur, el primer kilómetro antes de que la carretera empezara a subir. El sol de las nueve de la mañana en Medellín que calentaba el asfalto y hacía que el olor a gasolina y a tierra mojada se mezclaran en algo que era específicamente antioqueño y que no existía en ningún otro lugar del mundo.
 
 Pensó en que eso —ese olor, esa luz, esa carretera— era lo que tenía debajo de todo lo demás. El material del que estaba hecho el corredor que ahora pedaleaba en la lluvia de Flandes.
 

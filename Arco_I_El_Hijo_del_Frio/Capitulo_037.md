@@ -232,11 +232,11 @@ Silencio breve.
 
 —Lo escucho.
 
-—En tres semanas empieza el Giro de Italia. Mi hijo va a correr el Giro de Italia. Eso es lo que importa ahora. Lo otro —y aquí la voz de Hernando tuvo un tono que Santi no le había escuchado antes, no exactamente miedo sino la decisión consciente de no dejar que el miedo hable— lo otro lo miramos cuando haya que mirarlo.
+—En tres semanas empieza el Giro de Italia. Mi hijo va a correr el Giro de Italia. Eso es lo que importa ahora. Lo otro —y aquí la voz de Hernando tuvo un tono que Santi no le había escuchado antes, no exactamente miedo sino la decisión consciente de no dejar que el miedo hable, de aplazarlo, de darle al miedo un lugar pero no el primer lugar— lo otro lo miramos cuando haya que mirarlo.
 
 —¿Y si hay que mirarlo antes del Giro?
 
-—Entonces lo miramos. Pero no antes de que haya algo que mirar.
+—Entonces lo miramos. Pero no antes de que haya algo que mirar. —Una pausa—. Y Santi: los médicos tienen herramientas ahora que no tenían antes. Mi papá murió de algo que hoy se trata. No hay por qué adelantar nada.
 
 Santi se mordió el labio.
 

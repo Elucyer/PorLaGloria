@@ -246,6 +246,34 @@ Las carreteras de Flandes en enero son planas y rectas y tienen ese asfalto oscu
 
 Lo ajustó. Lo ajustó de nuevo al día siguiente. Y el siguiente.
 
+---
+
+La primera sesión estructurada fue el viernes de la segunda semana.
+
+Duchêne la llamó *trabajo de umbral* en el plan que distribuyó la noche anterior: tres series de veinte minutos a trescientos veinte vatios con diez minutos de recuperación entre series. Santi leyó los números dos veces. Trescientos veinte vatios sostenidos durante veinte minutos era el límite superior de lo que había hecho en Medellín, y en Medellín lo había hecho subiendo —con la pendiente empujando la potencia hacia arriba de manera natural, con el corazón encontrando el umbral en la geometría del puerto. Aquí era en llano. Sin gravedad. Sin nada que hacer el trabajo por él.
+
+Salió con Marek y con un belga de veinticinco años llamado Devries que conocía cada metro de las carreteras al norte de Waregem como si las hubiera construido él mismo.
+
+La primera serie: los primeros ocho minutos, la potencia llegó con facilidad. El cuerpo respondía, los pulmones abrían, el cuadro de la Ridley transmitía cada pedalada con esa rigidez del carbono de alto módulo que no perdona nada y no devuelve nada que no le des. En el minuto nueve algo cambió. No una crisis —no el derrumbe de quien superó el umbral y no tiene vuelta atrás. Sino el tipo de resistencia que llega cuando el cuerpo entiende que esto va a durar y empieza a negociar. El ácido láctico acumulándose en los cuádriceps con esa sensación de peso interno que en Medellín Santi había aprendido a ignorar pero que en el frío de Flandes pesaba diferente —más denso, más difícil de disolver con el simple ritmo del pedaleo.
+
+Terminó la primera serie en trescientos dieciocho vatios de media. Dos vatios por debajo del objetivo.
+
+—No te preocupes —dijo Devries en inglés durante la recuperación—. En llano tarda tres semanas en salir bien. El cuerpo tiene que aprender a hacer en horizontal lo que en Colombia hacías en vertical.
+
+La segunda serie fue mejor. El cuerpo había encontrado algo —no el estado óptimo, sino el estado *correcto para hoy*, que no es lo mismo pero es suficiente. Trescientos veintitrés vatios. La respiración en ese punto donde ya no es completamente consciente sino que el sistema nervioso la gestiona solo mientras el cerebro se dedica a lo único que importa: mantener la cadencia, mantener la potencia, no ceder en el kilómetro diecisiete de veinte cuando las piernas presentan el resumen de lo acumulado.
+
+La tercera serie la terminó en trescientos veintisiete.
+
+Volvieron al cuartel. Ludo ya tenía la bicicleta de recambio preparada —aunque no hacía falta, la había mantenido igual— y el fisioterapeuta del equipo esperaba en la sala de tratamiento. Veinte minutos de masaje en cuádriceps y tendón de Aquiles.
+
+Santi lo procesó en la camilla, mirando el techo.
+
+Trescientos veintisiete vatios al final. Más de lo que había empezado. El cuerpo, cuando le das lo correcto, responde.
+
+Eso también lo escribió en la libreta.
+
+---
+
 El australiano resultó llamarse Tom Briggs, tener veintiún años, y hablar tan rápido que la primera semana Santi entendía aproximadamente el sesenta por ciento de lo que decía. Tom era rodador, no escalador —su trabajo en el Giro sería controlar en los llanos y sobrevivir en los puertos— y tenía la energía irrestricta de alguien que no ha descubierto todavía que los recursos son finitos.
 
 El polaco era Marek Kowalski, callado y metódico, con el mismo tipo de economía en el gesto que Ospina habría reconocido y valorado. Era escalador —le faltaba potencia explosiva pero tenía una resistencia que Santi vio en los primeros entrenamientos y que admiró con la honestidad con que se admira lo que uno no tiene.

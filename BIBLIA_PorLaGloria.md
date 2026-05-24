@@ -5,7 +5,7 @@
 
 ### I. LOGLINE
 
-Un niño del municipio más frío de Antioquia pierde a su padre el mismo día que gana el Giro de Italia con 18 años. Lo que sigue es la historia de un hombre que tarda quince años en entender que la gloria nunca llena el lugar que dejó quien más quería que la viera.
+Un niño del municipio más frío de Antioquia pierde a su padre el mismo día que gana el Giro de Italia con 20 años. Lo que sigue es la historia de un hombre que tarda quince años en entender que la gloria nunca llena el lugar que dejó quien más quería que la viera.
 
 ---
 
@@ -16,7 +16,7 @@ Un niño del municipio más frío de Antioquia pierde a su padre el mismo día q
 **Estatura:** 1,72 m / 62 kg en forma de carrera
 **Personalidad:** Reservado con los extraños, feroz con los rivales, leal hasta el sacrificio con los suyos. Tiene el silencio de los hombres que crecieron solos con una obsesión. No necesita que lo entiendan, pero necesita —sin saberlo— que alguien lo vea de verdad.
 
-**El padre:** Hernando Reyes. Fue gregario del Clásico RCN en los noventa. Nunca pasó de ahí. Le dejó a Santi una bicicleta de segunda mano, la obsesión de toda una vida y una deuda emocional impagable. Murió en junio de 2018, mientras Santi subía el Stelvio.
+**El padre:** Hernando Reyes. Fue gregario del Clásico RCN en los noventa. Nunca pasó de ahí. Le dejó a Santi una bicicleta de segunda mano, la obsesión de toda una vida y una deuda emocional impagable. Le diagnosticaron un cáncer de pulmón en mayo de 2018, durante el primer Giro de Santi. Murió en junio de 2020, mientras Santi subía el Stelvio por tercera vez.
 
 **El origen:** San José de la Montaña es el municipio más frío de Antioquia. Niebla permanente. Vacas al borde de la carretera. Olor a eucalipto y tierra mojada. Un lugar del que la gente sale o se queda para siempre. Santi salió, pero nunca del todo.
 
@@ -38,20 +38,22 @@ Nairo tuvo el talento pero no siempre la mentalidad de guerra en los momentos de
 | 2012 | 12 | Se muda a Medellín. Conquista los puertos antioqueños |
 | 2015 | 15 | Debuta en ligas juveniles |
 | 2017 | 17 | Lo ficha un equipo profesional colombiano |
-| **2018** | **18** | **Debuta en el Giro de Italia con equipo invitado. Muere el padre. Gana el Giro. PICO #1** |
-| 2019–2021 | 19–21 | Consolidación europea. Primeros monumentos. Gana la Vuelta a España |
-| 2022 | 22 | Lidera el Tour de France. Pierde la crono final por segundos. País en luto |
-| 2023–2024 | 23–24 | Completa todos los monumentos. Gana el Giro por segunda vez |
-| 2025 | 25 | Lidera el Tour. Accidente grave en etapa 14. Pogacar gana |
-| 2026 | 26 | Recuperación. Regresa a Colombia. La foto en la niebla |
-| 2027 | 27 | Tour de France #1 |
-| 2028 | 28 | Tour de France #2 |
-| 2029 | 29 | Tour de France #3 |
-| 2030 | 30 | Intento del 4.º Tour consecutivo → accidente en el Galibier |
-| 2031 | 31 | Recuperación. El año más oscuro |
-| 2032 | 32 | Regreso progresivo. Vuelta a España como señal de vida |
-| **2033** | **33** | **Triple Corona: Giro + Tour + Vuelta en el mismo año. PICO #2 Y CIMA ABSOLUTA** |
-| 2034 | 34 | Última temporada. Se retira en el Lombardía, la carrera de las hojas muertas |
+| 2018 | 18 | Debuta en el Giro de Italia con wild card. Porta la maglia rosa varios días. Gana etapas. **Queda tercero**. Al padre le diagnostican cáncer de pulmón durante la carrera. |
+| 2019 | 19 | Segunda participación en el Giro. Gana etapas. **Queda segundo** por 23 segundos. El padre en tratamiento, sigue vivo. |
+| **2020** | **20** | **Tercer Giro de Italia. Gana etapas, ataca en el Stelvio. Gana el Giro. El padre muere ese mismo día. PICO #1** |
+| 2021–2022 | 21–22 | Consolidación europea. Primeros monumentos (Lieja, Lombardía). Gana la Vuelta a España en 2022. |
+| 2023 | 23 | Lidera el Tour de France. Pierde la crono final por segundos. País en luto |
+| 2024–2025 | 24–25 | Completa todos los monumentos. Gana el Giro por segunda vez |
+| 2026 | 26 | Lidera el Tour. Accidente grave en etapa 14. Pogacar gana |
+| 2027 | 27 | Recuperación. Regresa a Colombia. La foto en la niebla |
+| 2028 | 28 | Tour de France #1 |
+| 2029 | 29 | Tour de France #2 |
+| 2030 | 30 | Tour de France #3 |
+| 2031 | 31 | Intento del 4.º Tour consecutivo → accidente en el Galibier |
+| 2032 | 32 | Recuperación. El año más oscuro |
+| 2033 | 33 | Regreso progresivo. Vuelta a España como señal de vida |
+| **2034** | **34** | **Triple Corona: Giro + Tour + Vuelta en el mismo año. PICO #2 Y CIMA ABSOLUTA** |
+| 2035 | 35 | Última temporada. Se retira en el Lombardía, la carrera de las hojas muertas |
 
 ---
 
@@ -70,23 +72,29 @@ Tono: costumbrista, íntimo, colombiano puro. Huele a café y asfalto mojado.
 
 ---
 
-#### ARCO II — "El Año que Todo Pasó" (2018) — Capítulos 39 al 82
+#### ARCO II — "El Año que Todo Pasó" (2018–2020) — Capítulos 40 al 95
 
-El más intenso de la novela. El debut profesional con el equipo invitado al Giro —nadie los toma en serio, los periodistas italianos no saben cómo se pronuncia su nombre. La llamada a mitad del Giro: el padre empeoró. La etapa en el Stelvio donde Santi ataca sabiendo que su padre está muriendo. La victoria en Milán. El teléfono que no contesta. Este arco tiene dos narrativas paralelas: la carrera y el duelo, entretejidas capítulo a capítulo.
+El arco más largo e intenso de la novela. Tres Giros de Italia en tres años, cada uno más cerca de ganar —y al fondo, siempre, la enfermedad del padre.
 
-Tono: épico y roto al mismo tiempo. El lector no puede respirar bien durante cuarenta capítulos.
+**2018 (caps. 40–60):** El debut profesional con wild card. Nadie los toma en serio, los periodistas italianos no saben pronunciar su nombre. Santi porta la maglia rosa durante cuatro días en la segunda semana. Gana dos etapas. Queda tercero en la general. Pero la sombra que domina el arco llega a mitad de carrera: el diagnóstico. Cáncer de pulmón, estadio dos. Santi termina el Giro. Vuelve a Colombia. El padre está vivo, pero diferente.
+
+**2019 (caps. 61–75):** El año del tratamiento y del casi. El padre en quimioterapia. Santi regresa al Giro como favorito, gana etapas, porta el maillot rosa, y pierde la general por veintitrés segundos en la contrarreloj final. La derrota más específica de su carrera —no por un puerto, sino por medio kilómetro de cronómetro.
+
+**2020 (caps. 76–95):** El padre en remisión aparente. El Giro empieza en el silencio de la pandemia —sin público en las carreteras, solo el ruido del viento y las transmisiones por radio. En el Stelvio de la etapa dieciséis, con el padre en el hospital de Medellín, Santi ataca sabiendo que no hay garantías. Gana la etapa. Gana el Giro. En el podio de Milán el teléfono no contesta.
+
+Tono: épico y roto al mismo tiempo. El lector no puede respirar bien durante cincuenta y seis capítulos. La enfermedad del padre se narra en paralelo con las tres carreras: siempre presente, siempre aplazada.
 
 ---
 
-#### ARCO III — "Aprender a Matar" (2019–2022) — Capítulos 83 al 135
+#### ARCO III — "Aprender a Matar" (2021–2023) — Capítulos 96 al 148
 
-La consolidación europea. Los primeros monumentos —la Lieja, el Lombardía. La Vuelta a España ganada en 2021 con una exhibición en Sierra Nevada. Y luego 2022: el Tour donde todo está dado para que sea su año. Domina las montañas. Llega a la crono final con 45 segundos de ventaja. Y los pierde todos en 55 kilómetros contra Pogacar y Vingegaard. El capítulo de esa crono es el más doloroso del arco.
+La consolidación europea tras el duelo. Los primeros monumentos —la Lieja en 2021, el Lombardía ese mismo otoño. La Vuelta a España ganada en 2022 con una exhibición en Sierra Nevada. Y luego 2023: el Tour donde todo está dado para que sea su año. Domina las montañas. Llega a la crono final con 45 segundos de ventaja. Y los pierde todos en 55 kilómetros contra Pogacar y Vingegaard. El capítulo de esa crono es el más doloroso del arco.
 
 Tono: construcción y derrumbe. El lector aprende a querer a Santi y luego lo ve caer.
 
 ---
 
-#### ARCO IV — "El Reinado Incompleto" (2023–2025) — Capítulos 136 al 193
+#### ARCO IV — "El Reinado Incompleto" (2024–2026) — Capítulos 149 al 206
 
 Completa el palmarés de los monumentos. El Giro 2023 ganado en solitario en la cima del Zoncolan. Y en 2025, cuando todo indica que el Tour es suyo, la caída en la bajada del Tourmalet en la etapa 14 —fractura de clavícula, costillas fisuradas, el Tour se va con Pogacar. Este arco también es donde la fotógrafa entra en su vida. La foto viral desde la niebla de San José. El primer mensaje de Instagram. El primer encuentro real.
 
@@ -112,7 +120,7 @@ Tono: el más humano de todos. La épica se vuelve interior.
 
 ### VI. PERSONAJES SECUNDARIOS
 
-**Hernando Reyes** — El padre. Aparece en flashbacks durante toda la novela. Muere en el Arco II pero nunca desaparece.
+**Hernando Reyes** — El padre. Aparece en flashbacks durante toda la novela. Muere en el Arco II (2020, Giro, Stelvio) pero nunca desaparece. Su enfermedad —diagnosticada en el Giro 2018 y presente durante dos años— es la narrativa paralela que recorre todo el Arco II.
 
 **Doña Carmen Cardona** — La madre. Nunca fue a una carrera en vivo hasta el Tour de 2027. La escena de ella viendo a Santi entrar en París es uno de los tres momentos más emotivos de la novela.
 
@@ -142,8 +150,10 @@ Tono: el más humano de todos. La épica se vuelve interior.
 
 ### VIII. LOS DOS PICOS NARRATIVOS
 
-**PICO #1 — El Stelvio y el teléfono apagado (2018)**
-Santi ataca en el Stelvio sabiendo que su padre se está muriendo. Gana la etapa. Gana el Giro. En el podio de Milán intenta llamar y el teléfono no contesta. La escena no tiene dramatismo forzado —solo el silencio, el maillot rosa, y Santi mirando el teléfono en la palma de la mano.
+**PICO #1 — El Stelvio y el teléfono apagado (2020)**
+Tercer Giro consecutivo. El padre lleva dos años con cáncer —quimioterapia, remisión parcial, recaída silenciosa. La noche antes del Stelvio, Santi habla con él por teléfono. Hernando dice que las piernas están bien. Dice que en cada puerto. Dice que va.
+
+Al día siguiente, en el kilómetro dieciséis del Stelvio, Santi ataca. No por la clasificación general —ya la tiene asegurada—. Por algo que no tiene nombre pero que se siente como una obligación que va más allá del ciclismo. Gana la etapa. Gana el Giro. En el podio de Milán intenta llamar y el teléfono no contesta. La escena no tiene dramatismo forzado —solo el silencio, el maillot rosa, y Santi mirando el teléfono en la palma de la mano mientras treinta mil personas gritan su nombre.
 
 **PICO #2 — Madrid, último kilómetro de la Vuelta 2033**
 Santi ya tiene el Tour y el Giro en el bolsillo ese año. La Vuelta es el cierre de la Triple Corona. En el último kilómetro, en el Paseo de la Castellana, empieza a llorar encima de la bicicleta. No lo puede evitar. El pelotón lo deja pasar. Hasta los rivales frenan. Es el único momento en 300 capítulos donde Santi pierde el control, y es el momento más hermoso de toda la novela.
