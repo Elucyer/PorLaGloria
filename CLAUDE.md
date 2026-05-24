@@ -25,11 +25,11 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 | Arco | Período | Capítulos | Estado |
 |------|---------|-----------|--------|
 | I — El Hijo del Frío | 2000–2018 | 1–39 | Completo (pendientes correcciones menores) |
-| II — El Año que Todo Pasó | 2018 | 40–83 | No iniciado |
-| III — Aprender a Matar | 2019–2022 | 84–136 | No iniciado |
-| IV — El Reinado Incompleto | 2023–2025 | 137–194 | No iniciado |
-| V — La Cosecha | 2026–2029 | 195–256 | No iniciado |
-| VI — El Cóndor y el Silencio | 2030–2034 | 257–300 | No iniciado |
+| II — El Año que Todo Pasó | 2018–2019 | 40–83 | No iniciado |
+| III — Aprender a Matar | 2020–2022 | 84–136 | No iniciado |
+| IV — El Reinado Incompleto | 2022–2025 | 137–194 | No iniciado |
+| V — La Cosecha | 2025–2028 | 195–256 | No iniciado |
+| VI — El Cóndor y el Silencio | 2029–2033 | 257–300 | No iniciado |
 
 ---
 
@@ -46,7 +46,7 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 ## Personajes principales
 
 - **Santiago "Santi" Reyes Cardona** — Protagonista. Nacido 14/02/2000, San José de la Montaña. Reservado, feroz, leal. Nunca dice más de lo necesario.
-- **Hernando Reyes** — El padre. Exgregario. Muere en el Arco II (Giro 2018, Stelvio). Presente en flashbacks durante toda la novela.
+- **Hernando Reyes** — El padre. Exgregario. Muere en el Arco II (Giro 2019, Stelvio). Presente en flashbacks durante toda la novela.
 - **Valentina Ríos** — La fotógrafa bogotana. Entra en el Arco IV (2026). No sabe de ciclismo — eso es exactamente lo que Santi necesita.
 - **Maurizio Ferretti** — Director deportivo italiano. Figura paterna real. Muere de enfermedad en el Arco V.
 
