@@ -6,7 +6,7 @@
 
 El desayuno del último día de carrera tiene una luz diferente.
 
-No es más tranquilo —los corredores siguen cargando carbohidratos con la concentración metódica de quien sabe que el cuerpo lo va a necesitar en las próximas cuatro horas— sino distinto en temperatura. La tensión de los días anteriores, que se había acumulado silenciosa bajo cada gesto y cada conversación del comedor del hotel, se había transformado en algo menos urgente. No paz —tampoco sería correcto llamarlo eso, porque Pavel Sivakov del equipo Sky Development seguía ahí con el hambre de quien todavía no ha ganado ninguna etapa y Lambrecht todavía estaba tercero en la general y los dos iban a poner lo que les quedara en la carretera. Pero diferente. El tipo de diferencia entre el miedo antes de la batalla y la concentración durante la batalla.
+No es más tranquilo —los corredores siguen cargando carbohidratos con la concentración metódica de quien sabe que el cuerpo lo va a necesitar en las próximas cuatro horas— sino distinto en temperatura. La tensión de los días anteriores, que se había acumulado silenciosa bajo cada gesto y cada conversación del comedor del hotel, se había transformado en algo menos urgente. No paz —tampoco sería correcto llamarlo eso, porque Pavel Sivakov del equipo Sky Development seguía ahí con el hambre de quien todavía no ha ganado ninguna etapa y Lambrecht todavía estaba segundo en la general y los dos iban a poner lo que les quedara en la carretera. Pero diferente. El tipo de diferencia entre el miedo antes de la batalla y la concentración durante la batalla.
 
 Bernal desayunó con la tranquilidad de quien ya ha ganado. No con arrogancia —no era un corredor de arrogancia— sino con esa quietud específica de quien tiene los cálculos cerrados y sabe que lo que queda es ejecutar. Llevaba el maillot de líder del Tour de l'Avenir desde hacía seis días. Hoy iba a llegar a Albiez-Montrond con ese maillot y eso ya era un hecho, no una posibilidad.
 
@@ -60,7 +60,7 @@ En la cima, el grupo de cabeza era de ocho. Bernal, Sivakov, Lambrecht, Santi, d
 
 El viento en la cima del Madeleine a dos mil metros tenía una temperatura que no era la del verano. Era el viento de la alta montaña en agosto —el que recuerda que a esa altitud el verano es una concesión temporal y no una regla.
 
-Patiño por radio: —Ocho en cabeza. Lambrecht tercero en la general. Santi, cuarto.
+Patiño por radio: —Ocho en cabeza. Lambrecht segundo en la general. Santi, cuarto.
 
 Cuarto en la general.
 
@@ -144,11 +144,11 @@ Sivakov, solo adelante, estaba fuera de su vista.
 
 Los dos metros del rectilíneo, los cuatro metros de la curva cerrada del kilómetro cinco y medio, el punto donde la carretera se abre y el pueblo de Albiez-Montrond aparece al fondo con su arquitectura de madera y piedra de Saboya y las banderas del Tour de l'Avenir en los balcones: Santi llegó a ese punto con Bernal y Lambrecht a veinticinco metros, con Sivakov ya en la recta final hacia la línea, con el público de los últimos quinientos metros gritando en francés los nombres que no eran el suyo pero para quienes el pedaleo de un colombiano de diecisiete años en la última etapa de una carrera de nueve días era algo que valía la pena reconocer.
 
-Cruzó la línea de llegada tercero en la etapa.
+Cruzó la línea de llegada cuerto en la etapa.
 
-Sivakov primero. Bernal segundo, a once segundos. Santi tercero, a dieciséis.
+Sivakov primero. Bernal segundo y Lambrecht tercero, a once segundos. Santi cuarto, a dieciséis.
 
-Tercero en la etapa. Y la clasificación general —que Patiño le confirmó dos minutos después desde el coche del equipo— ponía a Santi Reyes Cardona, diecisiete años y nueve meses, en el tercer lugar del Tour de l'Avenir 2017.
+cuarto en la etapa. Y tercero en la clasificación general —que Patiño le confirmó dos minutos después desde el coche del equipo— ponía a Santi Reyes Cardona, diecisiete años y nueve meses, en el tercer lugar del Tour de l'Avenir 2017.
 
 ---
 
