@@ -12,6 +12,112 @@ La concentración de marzo en Mallorca fue diez días. Sol, carreteras limpias, 
 
 Y montañas.
 
+---
+
+El hotel estaba en Port de Pollença, en el norte de la isla.
+
+Era un hotel de cuatro estrellas con vista al mar —desde la habitación de Santi, en el cuarto piso, se veía la bahía entera, el agua verde azul que en la mañana temprana brillaba de una manera que hacía que el frío de Flandes pareciera una condición climática de otro planeta. La primera mañana Santi se quedó en la ventana durante cinco minutos antes de desayunar, mirando el agua como quien mira algo que no estaba seguro de merecer todavía.
+
+El desayuno del hotel era diferente al del cuartel: más fruta, más aceite de oliva, pan con tomate en lugar del pan de corteza gruesa de Bélgica, y café de máquina que era mejor que el café de máquina del cuartel aunque inferior, por supuesto, a cualquier café colombiano que Santi hubiera tomado en su vida. Pero tomado bajo el sol de Mallorca en una terraza que daba al jardín del hotel, con el olor del mediterráneo en el aire y las palmeras, el café del hotel era perfectamente suficiente.
+
+—Mejor que Waregem —dijo Tom el primer desayuno, con la cara levantada hacia el sol de las nueve de la mañana.
+
+—Todo es mejor que Waregem en marzo —dijo Clarke desde atrás.
+
+—Incluso Waregem es mejor que Waregem en enero —dijo Marek, que era la primera vez en tres semanas que Santi lo escuchaba hacer algo parecido a un chiste.
+
+Los once corredores del equipo desayunaron en la terraza bajo el sol mediterráneo de principios de marzo con la expresión colectiva de personas que han sobrevivido algo y que ahora están procesando que sobrevivieron. Los belgas del equipo —acostumbrados al clima de Flandes de la manera en que uno se acostumbra a una condición crónica— también se veían distintos: más livianos, menos comprimidos hacia adentro. El sol hace eso con la gente del norte de Europa: la descomprime.
+
+Pieter Verstraeten —el líder provisional del equipo para el Giro, el belga de veintiocho años con el Tour de Wallonie en el palmarés— se sentó frente a Santi durante el desayuno del tercer día.
+
+—¿Cómo van las piernas? —le preguntó en inglés, con ese acento flamenco que convertía las palabras en algo ligeramente más angular.
+
+—Bien. Están respondiendo.
+
+—El cambio de Bélgica a aquí se siente. —Verstraeten señaló hacia el exterior, hacia las carreteras que ninguno podía ver desde la terraza—. Allá entrenamos para sobrevivir el invierno. Aquí el cuerpo empieza a entender que hay una carrera.
+
+—¿Y eso cambia el entrenamiento?
+
+—Cambia la calidad. —Verstraeten se sirvió más café—. En Flandes los vatios cuestan más porque el frío tiene su propio costo energético. Aquí el cuerpo no gasta en calentarse. Esos vatios van al pedal.
+
+Santi lo consideró. Era el tipo de observación fisiológica que Ospina habría hecho y que Clarke habría dejado caer en conversación como si fuera obvio. Verstraeten lo dijo con la precisión de alguien que lleva diez años entrenando y ha tenido tiempo de pensar en los mecanismos.
+
+—¿Cuántos Giros has corrido? —preguntó Santi.
+
+—Tres. El primero no terminé —caída en el día ocho, costilla. Los otros dos terminé en el puesto diecisiete y en el veintidós. —Una pausa—. Este año Duchêne quiere top quince.
+
+—¿Y vos qué querés?
+
+Verstraeten lo miró un momento.
+
+—Lo mismo. —Luego, después de una pausa más larga—: Y que el equipo aprenda algo. Que los corredores jóvenes vean cómo funciona esto desde adentro.
+
+Santi no respondió de inmediato.
+
+—¿Eso incluye dejarme atacar si hay oportunidad?
+
+Verstraeten lo miró de nuevo —esta vez con algo más en la mirada, el tipo de mirada que hace el corredor veterano cuando el corredor joven dice algo que no esperaba escuchar.
+
+—Incluye —dijo— que si hay una oportunidad y Duchêne dice que la tomés, la tomás. Y que si no hay oportunidad, te quedás donde te digo.
+
+—De acuerdo.
+
+—¿Eso significa que lo aceptás o que lo vas a ignorar?
+
+Santi pensó.
+
+—Significa que lo voy a intentar aceptar hasta que el instinto diga otra cosa.
+
+Verstraeten lo miró durante dos segundos exactos. Luego se rió —una risa breve, más de reconocimiento que de humor.
+
+—Bien —dijo—. Eso es lo más honesto que me han dicho en años.
+
+---
+
+El quinto día Duchêne dio la tarde libre.
+
+*Libre* en el vocabulario de Duchêne significaba: sin potenciómetro, sin plan de entrenamiento, sin radio. Podían salir en bicicleta o caminar o quedarse en el hotel. La única condición era que antes de las ocho de la noche estuvieran de vuelta.
+
+Tom quiso ir a la playa —no a nadar, hacía demasiado frío para eso en marzo, sino a sentarse en la arena y mirar el agua, que era, según Tom, la experiencia mediterránea mínima garantizada. Marek fue a leer a la terraza del hotel. Clarke dijo que iba a descansar las piernas, lo que en el vocabulario de Clarke significaba un paseo de dos horas a ritmo de conversación por las carreteras del norte de la isla.
+
+Santi fue al pueblo.
+
+Pollença —el pueblo real, no el puerto— estaba a cuatro kilómetros del hotel, en el interior de la isla, al pie de una loma donde había una iglesia y ciento sesenta y cinco escalones de piedra que subían hasta ella. Santi los subió. No porque quisiera llegar a la iglesia —no era particularmente creyente— sino porque eran ciento sesenta y cinco escalones y estaban ahí.
+
+El pueblo en jueves por la tarde tenía la quietud del lugar que no necesita convencer a nadie de que vale la pena: un mercado semanal que estaba terminando de recoger sus puestos, una plaza con naranjos en flor, dos o tres cafeterías donde los hombres mayores bebían café y jugaban algo que Santi no reconoció hasta que se acercó y vio que era dominó, con las fichas de marfil amarillento golpeando la mesa de mármol con ese sonido específico e inconfundible.
+
+Entró a una de las tiendas de la plaza —ropa y artesanía local, el tipo de tienda que existe en todos los pueblos mediterráneos con la misma arquitectura interna y diferente mercancía. La señora detrás del mostrador le habló en catalán. Santi le respondió en español. Ella cambió al español con la facilidad de quien habla dos idiomas y no hace drama de ello.
+
+—¿Ciclista? —dijo, señalando las piernas.
+
+—Sí.
+
+—Del equipo belga que está en el hotel de Pollença.
+
+—Sí.
+
+Ella asintió con el conocimiento de alguien que lleva años viendo pasar concentraciones de equipos por la isla en marzo.
+
+—Todos los años vienen. —Una pausa—. ¿Colombiano?
+
+—Sí.
+
+—Hay muchos colombianos que corren en bicicleta.
+
+—Sí.
+
+—¿Usted también es bueno?
+
+Santi pensó en cómo responder esto.
+
+—Estoy aprendiendo a serlo —dijo.
+
+La señora lo miró con la expresión de quien ha escuchado eso antes, de corredores que dos años después ganaban etapas en el Tour y que en marzo de algún año habían pasado por su tienda a comprar algo pequeño y habían dicho algo parecido.
+
+Santi compró un pañuelo de tela con el mapa de Mallorca impreso en azul y ocre. Costó cuatro euros con cincuenta. No tenía ningún uso práctico inmediato. Pero era la primera cosa que compraba en un lugar que no era Bélgica, y eso, de alguna manera que no supo articular completamente, le pareció importante registrar.
+
+Volvió al hotel por la carretera — cuatro kilómetros caminando, sin bicicleta, sin datos, mirando los olivos y los almendros en flor que bordeaban la carretera y que en Colombia no existían y que en Bélgica tampoco y que aquí, en Mallorca en marzo, existían de una manera tan natural y tan presente que costaba creer que hubiera un mundo donde no existieran.
+
 El Puig Major —el punto más alto de la sierra de Tramuntana, con sus mil doscientos veintiún metros sobre el nivel del mar— no era el Stelvio ni el Galibier ni ninguno de los gigantes que estaban en el horizonte de mayo. Era un puerto de isla, moderado en pendiente, con vistas al Mediterráneo que a cierta altura se volvían tan azules que parecían pintadas. Pero era una subida real en una carretera real, y en la subida real el cuerpo de Santi encontró lo que seis semanas en Flandes le había quitado: la gravedad trabajando a su favor.
 
 Subió el Puig Major en el segundo entrenamiento del campo, un martes de cielo sin nubes.
@@ -165,7 +271,23 @@ Santi aceleró.
 
 Llegó a la cima cuarenta y ocho segundos antes que Verstraeten.
 
-Esa noche en la cena, Duchêne se sentó a su lado —algo inusual, porque el director solía sentarse con los corredores veteranos. Le sirvió un poco de vino sin preguntar y dijo:
+Esa noche la cena fue en un restaurante del puerto —un sitio largo con mesas de madera frente al mar, que en marzo todavía estaba tranquilo y sin turistas, con el olor de la cocina mediterránea mezclándose con el del agua salada afuera. Duchêne había reservado para el equipo completo: once corredores, dos directores deportivos, el médico del equipo, Ludo y dos mecánicos, Bart el fisioterapeuta.
+
+Treinta y cinco personas en cuatro mesas largas empujadas a formas distintas de la misma conversación.
+
+En la mesa de Santi estaban Tom, Marek, Verstraeten y Pieter el del Limburg. El camarero —un mallorquín con barba que hablaba español y algo de inglés— tardó diez minutos en tomar el pedido porque Tom tenía preguntas específicas sobre los ingredientes de la *sobrasada* y Marek quería saber si el pan con aceite venía incluido o era aparte.
+
+—En Bélgica el pan siempre es aparte —explicó Marek con la seriedad de quien ha pagado extra por el pan suficientes veces como para aprender a preguntar.
+
+—En Mallorca el pan viene con todo —dijo el camarero—. Es la isla.
+
+Marek asintió como ante una ley de la física.
+
+Pidieron pescado a la plancha —*llobarro*, les dijo el camarero, lubina, el pescado blanco de la isla— con *tumbet* de verduras y patatas. La comida llegó en fuentes grandes para compartir, al estilo mediterráneo, y los once corredores del equipo Élan Cycliste se distribuyeron la lubina y el tumbet con la eficiencia organizada de personas que han aprendido a negociar el espacio compartido.
+
+Duchêne se sentó a su lado al final de la cena —los directores se habían levantado de su mesa y estaban distribuyéndose entre los corredores con el propósito implícito de hablar uno a uno antes del regreso a Bélgica.
+
+Le sirvió un poco de vino sin preguntar y dijo:
 
 —Tienes instinto. Eso es bueno.
 
@@ -177,7 +299,7 @@ Esa noche en la cena, Duchêne se sentó a su lado —algo inusual, porque el di
 
 —Y si tienes razón y igual respetas la instrucción, aprendo a confiar en tu criterio. Si haces lo que quieres sin preguntar, no puedo confiar en nada.
 
-Santi tomó el vino. Era seco y tenía un sabor que todavía no sabía clasificar —no era el aguardiente de su padre ni el vino dulce que su madre tomaba en Navidad. Era otra cosa. Adquirida.
+Santi tomó el vino. Era seco, de la isla —*Binissalem*, ponía en la etiqueta— y tenía un sabor que todavía no sabía clasificar del todo: no era el aguardiente de su padre ni el vino dulce que su madre tomaba en Navidad. Era otra cosa. La cosa que se aprende a apreciar cuando se tiene suficiente tiempo.
 
 —De acuerdo —dijo.
 
@@ -185,4 +307,6 @@ Santi tomó el vino. Era seco y tenía un sabor que todavía no sabía clasifica
 
 —Al Giro —dijo Santi.
 
-Y chocaron los vasos con el sonido limpio del cristal, y afuera el Mediterráneo estaba oscuro y tranquilo, y en el horizonte que ninguno de los dos podía ver desde la terraza del restaurante, Italia esperaba.
+Chocaron los vasos con el sonido limpio del cristal. En la mesa larga, Tom estaba explicando algo sobre Australia con los brazos abiertos —el radio de sus gestos siempre era el doble de lo necesario—, Marek miraba el mar con una expresión que podría haber sido contento o podría haber sido simplemente la cara que Marek tenía cuando estaba bien. Verstraeten hablaba con el médico del equipo sobre algo que Santi no alcanzó a escuchar. Pieter, el del Limburg, estaba comiendo el último trozo de *tumbet* con la concentración de alguien que sabe que no va a encontrar otro plato así hasta la próxima temporada.
+
+Afuera el Mediterráneo estaba oscuro y tranquilo, y en el horizonte que ninguno de los dos podía ver desde la terraza, Italia esperaba.

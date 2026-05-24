@@ -170,6 +170,76 @@ Volvieron al cuartel general a las doce y media. Santi dejó la bicicleta en el 
 
 En la ducha caliente, con el vapor que hacía imposible ver la pared del fondo, pensó en lo que Clarke había dicho sobre la experiencia. Sobre aprender solo. Sobre llevar el origen como una cosa propia en lugar de como una herida.
 
+---
+
+Después de la ducha, la sala de recuperación.
+
+Era una habitación de seis metros por cuatro en el fondo del cuartel, con cuatro camillas de fisioterapia cubiertas de papel sanitario, una lámpara de infrarrojos en la esquina, y en la pared una tabla de corcho donde Bart —el fisioterapeuta del equipo, un hombre de cuarenta y dos años de Brujas que tenía los dedos más fuertes que cualquier persona que Santi hubiera conocido— clavaba con chinchetas el plan semanal de recuperación de cada corredor.
+
+El plan de Santi para ese día decía: *Antebrazos / cuádriceps / isquiotibiales. 25 min.*
+
+—Las manos —dijo Clarke cuando Santi llegó y Bart empezó por los antebrazos.
+
+—¿Las manos?
+
+—Los pavés trabajan los flexores del dedo. Los tendones del pulgar. —Clarke señaló su propio antebrazo—. Tres horas de mantener el manillar en superficie irregular es como apretar una pelota de tenis dos mil veces. Al día siguiente, sin Bart, no podés abrir bien la mano.
+
+Santi sintió los pulgares de Bart trabajando en el tejido del antebrazo y entendió de qué hablaba: había algo ahí, en los músculos que corrían desde los codos hasta los dedos, que no era dolor sino tensión acumulada —el rastro físico del segundo sector, de los cuatrocientos metros donde había apretado el manillar antes de aprender a soltarlo.
+
+Pieter, desde la camilla de al lado, dijo algo en flamenco.
+
+—Dice que la primera vez que corrió en asfalto después de aprender en pavés pensó que la bicicleta estaba rota —tradujo Clarke—. Que era demasiado fácil.
+
+Santi lo miró.
+
+—¿Cuándo aprendiste en asfalto? —le preguntó a Pieter en inglés.
+
+Pieter parpadeó. Hablaba inglés con el cuidado de quien construye la frase antes de soltarla.
+
+—En los dieciséis. Antes, siempre pavés. Mi padre corría el Waregem Koerse. —Una pausa—. Tres veces ganó.
+
+—¿Y vos?
+
+—Nunca gané. Pero él me enseñó los sectores. —Señaló hacia la ventana, hacia las carreteras que ninguno podía ver desde la camilla—. Cada sector tiene nombre. El de hoy —Haaghoek, lo llaman. Dos kilómetros antes había otro que se llama Holleweg. Mi padre los subía sin freno en los descensos. Yo todavía freno.
+
+—Pero los conocés —dijo Clarke.
+
+—Los conozco.
+
+—Eso vale más que no frenar —dijo Clarke.
+
+Bart terminó con los antebrazos y pasó a los cuádriceps. La presión era distinta ahí —más profunda, más lenta, el tipo de masaje que trabaja el tejido muscular por debajo de la superficie y que duele de la manera correcta: con esa incomodidad que el cuerpo reconoce como productiva.
+
+Santi miró el techo.
+
+—Pieter —dijo.
+
+—¿Qué?
+
+—¿Hay algo para comer en Waregem que no sea pasta o borscht?
+
+Un silencio. Luego Clarke se rió desde su camilla —la misma risa breve y genuina de antes, la que producía sin esfuerzo.
+
+—Eso es la pregunta más importante que le he escuchado a alguien en tres semanas —dijo.
+
+Pieter pensó con la seriedad de quien considera una pregunta que merece una respuesta real.
+
+—Hay una frituur en la calle detrás de la plaza. —Y al ver la cara de Santi añadió—: Patatas fritas. Las mejores de Waregem. Con salsa andalouse.
+
+—¿Salsa qué?
+
+—Andalouse. Mayonesa con pimiento y tomate. No es de Andalucía. Nadie sabe por qué se llama así.
+
+—¿Y abre ahora?
+
+—A las cinco.
+
+Santi miró el reloj de la pared. Las cuatro y cuarenta.
+
+Veinte minutos después, con las piernas todavía pesadas del entrenamiento y el olor a lubricante de cadena en la ropa, Santi estaba en la cola de la frituur de la calle detrás de la plaza de Waregem, entre una señora con bolsa de la compra y dos adolescentes con bicicletas, esperando un cono de patatas fritas con salsa andalouse que Pieter le había asegurado que era mejor que cualquier cosa que hubiera comido en Bélgica hasta ese momento.
+
+Tenía razón.
+
 Llevaba veintidós días en Bélgica.
 
 Todavía notaba Flandes. Todavía extrañaba Colombia.

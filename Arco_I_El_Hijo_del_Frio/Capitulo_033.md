@@ -282,6 +282,132 @@ Los tres eran extranjeros en Flandes. Los tres tenían frío. Los tres tenían e
 
 ---
 
+Las primeras semanas el apartamento funcionó como un organismo improvisado.
+
+Tom cocinaba pasta —siempre pasta, en cantidades para un regimiento, con la lógica del cocinero que ha descubierto que el carbohidrato es el idioma universal del ciclista y no ve razón para complicarlo. La preparaba en la olla más grande del apartamento, la mezclaba con alguna salsa de frasco que compraba en el supermercado de la esquina, y la servía en porciones que en Medellín habrían sido el almuerzo de una familia entera.
+
+—¿No comés nada diferente? —le preguntó Santi la tercera noche.
+
+—Sí —dijo Tom—. A veces huevo encima de la pasta.
+
+Marek, los domingos, cocinaba borscht.
+
+El olor empezaba a las once de la mañana —remolacha, caldo de carne, un ácido suave que Santi no supo identificar hasta que Marek le explicó que era vinagre de manzana— y para las dos de la tarde había llenado el apartamento de una manera densa y persistente que sobrevivía la tarde y llegaba intacta hasta el lunes. El borscht de Marek era un rojo oscuro, casi negro en los bordes del plato, y Santi lo probó el primer domingo con la precaución del que no sabe lo que está a punto de comer.
+
+Era muy bueno.
+
+—Tu madre te enseñó —dijo.
+
+Marek lo miró.
+
+—Mi abuela. —Una pausa—. Mi madre cocina mal.
+
+Los tres comieron en silencio durante un momento, con los platos de borscht y el pan que Marek había comprado en la panadería de la calle de abajo —el pan belga de corteza dura que Santi había tardado tres días en aprender a comer sin que se le llenara la boca de migas.
+
+—En Colombia qué comés —dijo Tom.
+
+—Arroz, frijoles, plátano. Caldo de costilla los domingos.
+
+—¿Caldo de qué?
+
+—Costilla. De res. Con papa criolla y mazorca.
+
+Tom asintió con el gesto de alguien procesando una combinación de palabras que no tiene referente en su experiencia.
+
+—¿Y eso es bueno?
+
+—Es lo mejor que he comido en mi vida —dijo Santi—. Pero no voy a encontrarlo en Waregem.
+
+Había buscado. O algo parecido a ello: un mercado con cilantro, con panela, con arepas de las que se doran en el fogón y huelen a nixtamal. En el supermercado grande de Waregem había encontrado arroz, frijoles enlatados, y una sección de productos *exóticos* donde vendían algo llamado *arepa* que era una versión plana e insípida de lo que conocía, fabricada en Países Bajos, que tenía la forma correcta pero no el olor y no el sabor y no el peso específico de lo que recordaba.
+
+La compró de todas formas.
+
+La comió a las once de la noche, calentada en la sartén, sin nada encima porque no había hogao ni mantequilla de verdad. Era comestible. No era un arepa.
+
+Santi la terminó, lavó el plato, y anotó en la libreta: *Traer ingredientes de Colombia en el próximo viaje.*
+
+---
+
+Los desayunos del cuartel empezaban a las siete y media.
+
+La mesa del comedor del equipo era larga y de madera clara, con seis sillas a cada lado y dos en las cabeceras, y en ella el cocinero del equipo —un hombre de cuarenta años de Gante que se llamaba Pieter, igual que el corredor del Limburg pero diferente en todo lo demás— ponía cada mañana la misma arquitectura de comida: arroz blanco en una fuente grande, pasta hervida en otra, huevos revueltos en una sartén de hierro fundido, pan integral en una canasta, mantequilla de almendras en tarros pequeños, plátanos y peras y manzanas en un frutero central, y dos termos de café negro que se vaciaban dos veces antes de las ocho y cuarto.
+
+Los ciclistas belgas del equipo llegaban y comían con la eficiencia de quien conoce el ritual de memoria: plato de arroz, huevo encima, fruta, café, cinco minutos y al vestuario. Clarke llegaba siempre el último de los veteranos, se sentaba en la misma silla de la cabecera derecha, y comía despacio —no con lentitud sino con la concentración de quien sabe que lo que come en las próximas dos horas es el combustible de las próximas cinco.
+
+—En Australia desayunaba tostadas con Vegemite —le dijo a Santi una mañana.
+
+—¿Qué es Vegemite?
+
+—Una pasta negra de levadura. Sabe a sal concentrada y a algo que no sabés qué es pero que en Australia todos comen desde que nacen.
+
+—¿Y es buena?
+
+—Para mí sí. Para cualquiera que no haya crecido con ella, es comida de castigo.
+
+Tom, que había escuchado desde el otro lado de la mesa, intervino:
+
+—Yo crecí con Vegemite y tampoco entiendo cómo es buena.
+
+Clarke lo miró.
+
+—Tú eres de Queensland. Queensland no cuenta.
+
+Era el tipo de conversación que los dos australianos tenían sobre su país con una frecuencia que a Santi le resultaba extraña al principio —la insistencia en las diferencias internas de un país que desde Medellín había parecido monolítico— y que después empezó a reconocer como algo universal: la manera en que la gente fuera de su país necesita hablar de él en los detalles pequeños porque los detalles pequeños son lo que de verdad extrañan.
+
+Santi extrañaba el caldo de costilla. Tom extrañaba no-Vegemite de Queensland. Marek no decía qué extrañaba, pero los domingos hacía borscht.
+
+---
+
+El primer salario llegó el veintiocho de enero.
+
+Una transferencia bancaria —Santi la vio en la aplicación del banco belga que el equipo le había ayudado a abrir la primera semana, con el número de cuenta que nunca había tenido antes y con el nombre impreso en la tarjeta de débito que guardaba en el compartimento más interno del morral.
+
+La cifra era dos mil trescientos euros.
+
+Lo miró durante un momento en la pantalla del teléfono. En Colombia —en el equipo Postobón, que era uno de los mejores del país— había ganado el equivalente a cuatrocientos dólares mensuales. Aquí era casi seis veces eso.
+
+Lo primero que hizo fue calcular cuánto enviar a su madre. Cuarenta por ciento —la proporción que habían acordado antes del viaje. Le mandó novecientos veinte euros por transferencia internacional, pagó doce euros de comisión, y le escribió un mensaje: *Te mandé la plata. El código llega en veinte minutos.*
+
+Su madre respondió antes de que cumplieran los veinte: *Gracias mi amor. Cuídate. Tu papá manda besos.*
+
+Lo segundo que hizo fue ir a la tienda de ciclismo de Waregem.
+
+La tienda se llamaba *De Koers* —*La Carrera* en flamenco— y estaba a siete minutos caminando del apartamento, en una calle perpendicular a la plaza principal. Santi había pasado frente a ella varias veces en las salidas de entrenamiento y la había mirado de reojo sin entrar, con esa precaución instintiva de quien sabe que las tiendas de ciclismo en Europa son distintas a lo que conoce y no quiere sentir la diferencia de golpe.
+
+El dueño —un hombre de unos cincuenta con pelo gris y piernas de quien todavía pedalea aunque ya no compite— lo reconoció antes de que Santi dijera nada.
+
+—Del Élan —dijo en inglés, señalando el logo en la chaqueta de equipo—. ¿Colombiano?
+
+—Sí.
+
+El hombre asintió.
+
+—Hay uno que pasa por aquí en las mañanas. Por esta calle, siempre solo, siempre al mismo ritmo. ¿Sos ese?
+
+—Sí.
+
+—Zona dos —dijo el hombre, como si fuera un diagnóstico.
+
+—Zona dos.
+
+Santi compró unos cubrezapatillas de neopreno —los que no dejaban pasar ni el agua ni el frío húmedo de Flandes— y un par de guantes de invierno con membrana Gore-Tex, en talla ligeramente más ajustada que los del equipo, que mejoraban el tacto del manillar en los días de lluvia. Gastó ciento cuarenta y dos euros. El dueño le preguntó si quería que le enviara el recibo al correo del equipo o al personal. Santi le dio el correo personal —era la primera compra deportiva que hacía con plata propia, y eso merecía un recibo a nombre de él.
+
+Salió con la bolsa de la tienda y caminó de vuelta por el centro de Waregem. En la esquina de la plaza había una chocolatería —escaparate de madera oscura, el olor saliendo por debajo de la puerta como algo que no necesita publicidad. Entró. El dependiente era un muchacho que hablaba flamenco y algo de inglés y señaló los distintos tipos de chocolate con el orgullo silencioso de quien vende algo que sabe que es bueno.
+
+Santi señaló el de ochenta y cinco por ciento de cacao, que era el que tenía la etiqueta más seria.
+
+—Amargo —dijo el dependiente en inglés, con la entonación de quien advierte y no recomienda.
+
+—Bien.
+
+Costó tres euros con veinte. Era el chocolate más amargo que había probado y también el mejor —con esa profundidad de sabor que los chocolates más dulces tapan en lugar de permitir. Se lo comió caminando de vuelta al apartamento, con la bolsa de los guantes en la mano, en el frío de la tarde de Waregem, y pensó que esta caminata pequeña —esta compra sin importancia, este chocolate en la boca— era la primera cosa que había hecho en Bélgica que no tenía relación directa con el ciclismo.
+
+Un pensamiento sin gran consecuencia.
+
+O sí la tenía, de una manera que todavía no supo nombrar.
+
+---
+
 El cumpleaños de Santi fue el catorce de febrero.
 
 Dieciocho años.

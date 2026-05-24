@@ -24,15 +24,53 @@ A los veinticinco kilómetros el cambio era perceptible. Las piernas funcionaban
 
 Santi había aprendido que Clarke era un hombre de silencios funcionales —no incómodos, no hostiles, sino simplemente el silencio de alguien que no habla cuando no tiene nada que decir y que cuando habla dice algo que vale la pena escuchar. En las reuniones de equipo Clarke tomaba notas y preguntaba una o dos cosas al final, precisas y técnicas. En los entrenamientos pedaleaba con esa regularidad de máquina bien calibrada que Santi había empezado a estudiar como se estudia una técnica que no se domina.
 
-A los sesenta kilómetros pararon en un café de carretera —una cosa pequeña con cortinas de encaje en la ventana y una estufa de leña en la esquina— y pidieron café y agua. El hombre detrás del mostrador les habló en flamenco y Clarke respondió con el holandés irregular que había aprendido en cuatro temporadas en equipos belgas.
+A los sesenta kilómetros pararon en un café de carretera.
 
-—¿Hablás holandés? —preguntó Santi.
+Era una cosa pequeña con cortinas de encaje en la ventana y una estufa de leña en la esquina que calentaba el local con esa agresividad agradable de las cosas calientes cuando el cuerpo lleva horas bajo el frío. Cinco mesas de madera, un mostrador con tres taburetes, y detrás del mostrador un hombre de unos sesenta años que levantó la vista cuando entraron y no dijo nada durante dos segundos —el tiempo que necesitó para identificar la ropa del equipo, las piernas, el tipo de hombres que entran en un café de carretera en Flandes en febrero.
+
+Luego dijo algo en flamenco que Clarke respondió con el holandés irregular que había aprendido en cuatro temporadas en equipos belgas.
+
+—¿Hablás holandés? —preguntó Santi mientras se quitaban los guantes.
 
 —Lo suficiente para pedir café y para entender cuando alguien me insulta en carretera.
 
 —¿Te insultan en carretera?
 
 —En las clásicas, cuando vas despacio en una parte donde no se puede adelantar. —Clarke tomó el café—. Los belgas son apasionados del ciclismo. La pasión incluye el derecho a opinar sobre tu ritmo.
+
+El hombre trajo dos cafés —negros, en tazas pequeñas de loza blanca— y una cesta con galletas de mantequilla que Clarke señaló.
+
+—Come. —No como sugerencia—. A los sesenta kilómetros el glucógeno empieza a caer. Las galletas son carbohidrato simple. En veinte minutos están en el músculo.
+
+Santi comió tres galletas. Eran dulces y grasosas y tenían ese sabor específico de las galletas belgas que llevan más mantequilla de la que ningún nutricionista aprobaría pero que a sesenta kilómetros de recorrido tienen una justificación fisiológica impecable.
+
+El hombre volvió con agua y preguntó algo más en flamenco.
+
+—Dice que si somos del Élan —tradujo Clarke—. Les vende café a los ciclistas del Élan desde hace diez años.
+
+—¿Conoce a los corredores?
+
+—Conoce las ropas. —Clarke señaló el logo del equipo en el jersey—. Para él somos la ropa azul y la ropa blanca. —Pausa—. Una vez me preguntó si el corredor colombiano que había estado aquí antes era bueno. Le dije que sí.
+
+—¿Qué colombiano?
+
+Clarke lo miró.
+
+—Vos. El año pasado pasaste en bicicleta por esta carretera durante el reconocimiento de la Driedaagse.
+
+—Yo nunca corrí la Driedaagse.
+
+—Ya lo sé. Pero para él todos los ciclistas del Élan son los mismos ciclistas del Élan. —Tomó el último sorbo de café—. No te lo tomes a mal. Significa que la ropa es reconocible.
+
+Santi miró al hombre detrás del mostrador, que en ese momento estaba secando vasos con un paño de cocina sin mirarlos. Sesenta años, café de carretera en Flandes, diez años vendiendo café a ciclistas de paso que no siempre recordaban cómo se llamaba el lugar.
+
+—¿Cómo se llama el café? —preguntó.
+
+Clarke le preguntó al hombre.
+
+—*'t Wielerke* —respondió el hombre sin levantar la vista de los vasos. *El Ciclista*, en flamenco diminutivo.
+
+Santi lo anotó en la libreta que llevaba en el bolsillo trasero del jersey. No sabía exactamente para qué. Para recordarlo, quizás. Para tener el nombre de algo que en ese momento era simplemente un lugar donde el cuerpo se cargaba antes de los cuarenta kilómetros que faltaban, pero que con el tiempo podría convertirse en otra cosa.
 
 Santi bebió el agua. El calor de la estufa le llegaba desde la esquina con esa agresividad agradable de las cosas calientes cuando el cuerpo lleva horas bajo el frío.
 
@@ -134,13 +172,87 @@ Solo una subida.
 
 —Gracias —dijo.
 
-Clarke levantó una mano —el gesto mínimo de alguien que no necesita más ceremonia— y entró al cuartel.
+Clarke levantó una mano y entró al cuartel.
 
-Santi se quedó un momento afuera, con el casco todavía puesto, mirando la tarde gris de Flandes que empezaba a oscurecer hacia las cinco.
+---
+
+Esa noche Clarke propuso cenar fuera.
+
+No como plan elaborado —como la cosa práctica que hace un hombre de treinta y dos años que lleva diez temporadas en equipos belgas y sabe que después de cinco horas en carretera el comedor del cuartel es lo correcto para el cuerpo pero no siempre para la cabeza.
+
+—Hay un restaurante en Waregem —dijo en el vestuario, mientras se cambiaba—. Waterzooi y birra. ¿Sabés qué es el waterzooi?
+
+—No.
+
+—Guiso belga. Pollo o pescado en caldo cremoso con verduras. No es lo más liviano del mundo pero después de doscientos kilómetros el cuerpo agradece algo con grasa real. —Se ató los zapatos—. ¿Venís?
+
+Tom, que había escuchado desde el otro extremo del vestuario, levantó la mano.
+
+—Yo voy. Marek también va si le decimos que hay cerveza.
+
+Marek, desde su casillero, dijo algo en polaco que Tom interpretó como que sí.
+
+Fueron cuatro al restaurante —Clarke, Tom, Marek y Santi— caminando desde el cuartel hasta el centro de Waregem con las piernas todavía pesadas, bajo una lluvia que había bajado de intensidad hasta convertirse en esa neblina húmeda que en Flandes no cae sino que simplemente existe. El restaurante era pequeño, con manteles de cuadros rojos y blancos y una pizarra en la pared donde el menú del día estaba escrito a mano en flamenco.
+
+El dueño conocía a Clarke —o conocía su cara, lo que en Waregem era prácticamente lo mismo. Los acomodó en una mesa en el fondo, lejos de la puerta por donde entraba el frío, y les trajo cuatro cervezas sin preguntar.
+
+—¿Tomás cerveza? —le preguntó Clarke a Santi.
+
+—Poco.
+
+—Las belgas son fuertes. Esta es una tripel —señaló la botella— ocho grados. Después del entrenamiento, con comida, se puede. Sin comida, no.
+
+Santi tomó un sorbo. Era amarga y afrutada al mismo tiempo, con un cuerpo que no tenía equivalente en ninguna cerveza que hubiera probado antes. En Colombia había tomado cerveza pocas veces —no por convicción sino porque el tipo de vida que llevaba desde los quince años no dejaba mucho espacio para eso.
+
+—¿Y en Australia qué se toma? —preguntó Tom, que había estado esperando exactamente esta pregunta para lanzarse.
+
+—VB —dijo Clarke.
+
+—VB es agua de río —dijo Tom.
+
+—VB es la cerveza del hombre trabajador.
+
+—VB es lo que toma tu padre porque no sabe que existe otra cosa.
+
+Esta conversación —que Santi entendió que tenían de memoria, con variaciones— continuó durante varios minutos mientras llegaba la comida. El waterzooi era exactamente lo que Clarke había descrito: un caldo denso, cremoso, con trozos de pollo y zanahoria y puerro y papa, servido en un plato hondo y acompañado de pan de corteza gruesa. Santi lo comió despacio, con la sensación de que el cuerpo lo estaba recibiendo de una manera específica —no la satisfacción inmediata del carbohidrato sino la satisfacción más lenta y profunda de la grasa y la proteína que el cuerpo había estado pidiendo desde el kilómetro ochenta.
+
+—¿Cómo está? —preguntó Clarke.
+
+—Bien. —Santi pensó—. Como si alguien le hubiera preguntado al cuerpo qué necesitaba y hubiera cocinado la respuesta.
+
+Clarke asintió.
+
+—Eso es el waterzooi.
+
+Marek, que había terminado el suyo antes que los demás, pidió otro con un gesto al dueño. Tom habló de Australia durante quince minutos —de la carretera costera entre Wollongong y Sydney donde había aprendido a pedalear en grupo, de su madre que seguía sin entender qué era exactamente un gran tour, de la vez que se perdió en el velódromo de su club cuando tenía nueve años y no encontró la salida porque todas las curvas se parecían.
+
+—¿En qué momento supiste que ibas a ser ciclista profesional? —le preguntó a Santi.
+
+Santi pensó.
+
+—Nunca lo decidí. Era lo que hacía.
+
+—Eso es lo más honesto que he escuchado —dijo Tom.
+
+—¿Y vos?
+
+—Yo lo decidí a los doce cuando vi el Tour en televisión y Cadel Evans subía el Alpe d'Huez. —Pausa—. Aunque también era lo único que hacía bien.
+
+Clarke no dijo cuándo lo había decidido él. Tomó un sorbo de cerveza y miró un punto de la pared y no dijo nada, que era la forma en que Clarke respondía las preguntas que no tenían respuesta de una sola frase.
+
+Volvieron al cuartel a las diez. Llovía de nuevo —lluvia de verdad ahora, no la neblina de antes. Las piernas de Santi, en el camino de vuelta, pesaban de una manera distinta a la del kilómetro doscientos: no el peso del esfuerzo sino el peso del descanso que empezaba, del cuerpo empezando a repararse.
+
+En el apartamento, Tom se durmió en el sofá a los cinco minutos de sentarse. Marek fue directo a su habitación. Santi se quedó en la cocina, calentó agua, se hizo un tinto —café negro, sin azúcar, lo más parecido que encontraba a lo de casa— y se sentó a la mesa con la libreta.
+
+Escribió: *200 km. Frío. Clarke tiene razón sobre el Stelvio. El Stelvio es solo una subida.*
+
+Tomó el café. El sabor no era el de Medellín —era café belga, más ácido, menos redondo— pero era café, y en ese momento era suficiente.
+
+Cerró la libreta. Se fue a dormir.
 
 El Stelvio.
 
-Dos mil setecientos cincuenta y ocho metros. Veinticuatro kilómetros de subida desde Bormio. Lo había leído en el dossier provisional del equipo. Lo tenía marcado en el calendario como lo que era: la etapa que definiría su primera Grand Tour.
+Dos mil setecientos cincuenta y ocho metros. Veinticuatro kilómetros de subida desde Bormio. Lo tenía marcado en el calendario como lo que era: la etapa que definiría su primera Grand Tour.
 
 No sabía todavía todo lo que el Stelvio le iba a pedir.
 
