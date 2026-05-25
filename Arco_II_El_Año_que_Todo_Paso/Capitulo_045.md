@@ -198,7 +198,7 @@ Pausa.
 
 —¡Verstraeten abandona! ¡El líder de Élan Cycliste abandona en el pie del Zoncolan con la rodilla izquierda. Riccardo, ¿qué significa esto para el equipo?
 
-—Significa, Fernando, que Santiago Reyes ya no tiene obligaciones de gregario. La pregunta es si este chico de dieciocho años —que ya ganó en el Etna y en Sappada, no lo olvidemos— va a atreverse a atacar en el Zoncolan o si simplemente va a subir con el grupo de favoritos.
+—Significa, Fernando, que Santiago Reyes ya no tiene obligaciones de gregario. La pregunta es si este chico de dieciocho años —que ya ganó en el Etna, no lo olvidemos— va a atreverse a atacar en el Zoncolan o si simplemente va a subir con el grupo de favoritos.
 
 Carmen Cardona se inclinó hacia adelante en el sofá.
 
