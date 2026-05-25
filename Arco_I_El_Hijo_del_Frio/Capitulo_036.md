@@ -160,19 +160,11 @@ Desde el primer día en Waregem habían coincidido en los entrenamientos, en las
 
 El tercer día de concentración coincidieron en el desayuno del hotel antes de la sesión de la mañana. Clarke tenía treinta y dos años en ese momento, once temporadas de profesional en el cuerpo, y esa manera de hablar de la bicicleta que tienen los veteranos: sin adornos, con precisión, sin el entusiasmo de quien todavía descubre cosas pero tampoco con el cansancio de quien ya no le quedan cosas por descubrir.
 
-—Primera temporada —dijo Simon, no como pregunta.
+Simon untó mermelada en la tostada con la deliberación de alguien que hace muchas cosas en automático y esta no era una de ellas. Tomó café. Luego, sin preámbulo:
 
-—Sí —dijo Santi.
+—Una cosa antes de que empiece.
 
-—¿Giro?
-
-—Sí.
-
-—¿Rol?
-
-—Todavía no sé.
-
-Simon asintió. Untó mermelada en la tostada con la deliberación de alguien que hace muchas cosas en automático y esta no era una de ellas.
+Santi lo miró.
 
 —El Giro el primer año es una experiencia —dijo—. La primera semana vas a querer morirte. No por las etapas —las primeras etapas son relativamente manejables. Sino por el ritmo de vida: el bus, el hotel, el bus, la carrera, el hotel, el bus. Tres semanas de eso es un organismo diferente al que entrenas.
 
@@ -239,9 +231,7 @@ Quedaron limpias.
 
 Los últimos tres días de Mallorca, Duchêne organizó dos simulacros de carrera: salida en grupo, control de posiciones en pelotón, trabajo de equipo en los puertos. Era el primer entrenamiento verdaderamente colectivo —no series individuales sino un equipo moviéndose como tal, con los gregarios controlando el ritmo, el líder conservando energía, y los roles definidos por las instrucciones de Duchêne desde el carro de apoyo.
 
-El líder provisional del equipo para el Giro era un belga de veintiocho años llamado Pieter Verstraeten, buen corredor con un palmarés decente en carreras de segunda división europea —había ganado el Tour de Wallonie en 2016 y tenía podios en la Volta a Catalunya— pero que en los Grandes Tours nunca había pasado del puesto veinte en la general.
-
-El rol de Santi para el Giro era explícito: gregario de montaña. Proteger a Verstraeten en los primeros kilómetros de los puertos, entregarle el bidón en los momentos difíciles, y cuando el trabajo estuviera hecho, ir a la suya si quedaban fuerzas.
+El rol de Santi para el Giro era explícito: gregario de montaña de Verstraeten. Proteger al belga en los primeros kilómetros de los puertos, entregarle el bidón en los momentos difíciles, y cuando el trabajo estuviera hecho, ir a la suya si quedaban fuerzas.
 
 Santi aceptó el rol.
 
