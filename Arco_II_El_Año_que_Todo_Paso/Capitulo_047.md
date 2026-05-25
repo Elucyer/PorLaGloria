@@ -76,7 +76,7 @@ Eso era suficiente.
 
 ---
 
-Esa noche el resultado de la CRI circuló por los medios italianos y colombianos con una velocidad que Santi no había anticipado. No porque su undécimo puesto fuera noticia —no lo era— sino porque el análisis de los expertos en los programas nocturnos había llegado todos a la misma conclusión: que un chico de dieciocho años que en sus primeros dos años de profesional había ganado dos etapas del Giro y estaba segundo en la general a cinco segundos de Froome era, en términos estrictos del deporte, un fenómeno que no tenía precedente reciente.
+Esa noche el resultado de la CRI circuló por los medios italianos y colombianos con una velocidad que Santi no había anticipado. No porque su undécimo puesto fuera noticia —no lo era— sino porque el análisis de los expertos en los programas nocturnos había llegado todos a la misma conclusión: que un chico de dieciocho años que en sus primeros dos años de profesional había ganado tres etapas del Giro y estaba segundo en la general a cinco segundos de Froome era, en términos estrictos del deporte, un fenómeno que no tenía precedente reciente.
 
 Santi lo supo porque Ospina se lo dijo.
 
