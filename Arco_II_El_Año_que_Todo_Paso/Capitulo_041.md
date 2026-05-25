@@ -222,7 +222,41 @@ Ferretti lo miró un momento.
 
 Y en esos tres días cabía todo lo que Santi había estado esperando desde el primer kilómetro del primer día: la montaña. El lugar donde el Giro dejaba de ser logística y calor y kilómetros planos y se convertía en lo único que había venido a hacer.
 
-Esa noche, en el hotel de Eilat con el golfo de Aqaba visible desde la ventana, Santi abrió el cuaderno.
+Esa noche, en el hotel de Eilat con el golfo de Aqaba oscuro detrás del vidrio, llamó a su padre.
+
+Hernando respondió al segundo timbre.
+
+—Santi.
+
+—Todo bien —dijo Santi—. Las etapas en llano. Sin novedad.
+
+—Lo vi. El de los bidones.
+
+Santi no respondió. No había mucho que agregar.
+
+Una pausa.
+
+—Tu mamá y yo nos mudamos la semana que viene.
+
+Santi tardó un segundo.
+
+—¿Para dónde?
+
+—Laureles. Un segundo piso. Tiene balcón.
+
+—Bien —dijo Santi.
+
+Hernando no dio más detalles. Santi no los pidió. Era la dinámica de siempre: la información que importaba, sin adornos.
+
+—Cuídate en Sicilia —dijo Hernando.
+
+—Sí.
+
+Colgaron.
+
+---
+
+Santi abrió el cuaderno.
 
 Escribió: *Etapas 2 y 3. Sin novedad. Pieter bien. Calor manejable. Viviani dos victorias.*
 

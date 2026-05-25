@@ -47,7 +47,7 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 
 - **Santiago "Santi" Reyes Cardona** — Protagonista. Nacido 14/02/2000, San José de la Montaña. Reservado, feroz, leal. Nunca dice más de lo necesario.
 - **Hernando Reyes** — El padre. Exgregario. Muere en el Arco II (Giro 2019, Stelvio). Presente en flashbacks durante toda la novela.
-- **Valentina Ríos** — La fotógrafa bogotana. Entra en el Arco IV (2026). No sabe de ciclismo — eso es exactamente lo que Santi necesita.
+- **Mariana López** — La fotógrafa bogotana. Entra en el Arco IV (2026). No sabe de ciclismo — eso es exactamente lo que Santi necesita.
 - **Maurizio Ferretti** — Director deportivo italiano. Figura paterna real. Muere de enfermedad en el Arco V.
 
 ---

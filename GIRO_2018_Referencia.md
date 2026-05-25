@@ -482,7 +482,7 @@
 | **⭐⭐ Prato Nevoso — LA ROSA** | **Etapa 18** | **Cap. 52** | **Yates colapsa. Santi toma la maglia rosa. Primera vez en el jersey rosa.** |
 | **⭐⭐⭐ FINESTRE — EL CORAZÓN** | **Etapa 19** | **Caps. 53–54** | **Santi en rosa. Froome ataca. Santi lo sigue 70 km. Cede en el Jafferau a 10 km. Froome toma la rosa. Santi llega 2º.** |
 | Cervinia | Etapa 20 | Cap. 55 | La llamada al padre esa noche. Hernando desde San José. |
-| **Roma — el podio** | **Etapa 21** | **Cap. 56** | **Santi en el podio. 2º. Maglia bianca. El Coliseo. La foto de La Gazzetta que Valentina guardará.** |
+| **Roma — el podio** | **Etapa 21** | **Cap. 56** | **Santi en el podio. 2º. Maglia bianca. El Coliseo. La foto de La Gazzetta que Mariana guardará.** |
 
 ---
 

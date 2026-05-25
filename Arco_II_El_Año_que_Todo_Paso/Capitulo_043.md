@@ -72,11 +72,11 @@ Santi entendió.
 
 ---
 
-*Señal internacional — Eurosport España, 10:47 de la mañana (hora Colombia)*
+*Señal internacional — Eurosport España, 5:47 de la mañana (hora Colombia)*
 
 —Y el pelotón, señores, rueda en este momento por las llanuras centrales de Sicilia con un ritmo controlado — el Team Sky lleva el trabajo de cabeza desde el kilómetro ochenta, manteniendo una diferencia de tres minutos cuarenta segundos sobre la escapada del día, que sigue siendo inofensiva para la clasificación general. Estamos aproximadamente a noventa kilómetros de la llegada en la cima del Etna, que como saben ustedes va a ser la primera gran prueba de montaña de este Giro 2018. Dieciséis kilómetros de ascensión. El Etna no perdona a nadie que llegue con reservas vacías.
 
-Hernando tenía el café en la mano, el televisor en el volumen tres, la oscuridad de la madrugada colombiana afuera. En la pantalla el pelotón era una mancha de colores que se movía por una carretera rodeada de campos.
+Hernando tenía el café en la mano, el televisor en el volumen tres, la penumbra del amanecer colombiano afuera. En la pantalla el pelotón era una mancha de colores que se movía por una carretera rodeada de campos.
 
 Buscó el maillot blanco y azul del Élan Cycliste.
 
@@ -168,7 +168,7 @@ Durante dos kilómetros.
 
 ---
 
-*Señal internacional — Eurosport España, 12:08 de la mañana (hora Colombia)*
+*Señal internacional — Eurosport España, 7:48 de la mañana (hora Colombia)*
 
 —¡Ataque de Yates! ¡Simon Yates ataca en el kilómetro ocho de la subida al Etna! Chaves se va con él, Froome responde, y el grupo de cabeza se está fracturando, señores — esto es lo que todos esperaban, la primera gran explosión del Giro 2018. Yates tiene quince metros, veinte metros ya sobre el segundo grupo—
 
@@ -246,7 +246,7 @@ Empujó.
 
 ---
 
-*Señal internacional — Eurosport España, 12:19 de la mañana (hora Colombia)*
+*Señal internacional — Eurosport España, 8:09 de la mañana (hora Colombia)*
 
 —¡Esperen un momento! ¡Hay un corredor detrás del grupo de Yates que está remontando solo! Riccardo, ¿qué número es ese corredor?
 
@@ -292,7 +292,7 @@ Cien metros es lo que hay entre lo que pasó y lo que pasó.
 
 ---
 
-*Señal internacional — Eurosport España, 12:26 de la mañana (hora Colombia)*
+*Señal internacional — Eurosport España, 8:22 de la mañana (hora Colombia)*
 
 —¡Cinco segundos! ¡Riccardo, son cinco segundos los que separan a Reyes del grupo de Yates! ¡Y quedan dos kilómetros para la cima del Etna!
 
@@ -342,7 +342,7 @@ Siguió pedaleando diez metros más hasta que la bicicleta se detuvo sola.
 
 ---
 
-*Señal internacional — Eurosport España, 12:31 de la mañana (hora Colombia)*
+*Señal internacional — Eurosport España, 8:31 de la mañana (hora Colombia)*
 
 —¡¡SANTIAGO REYES!! ¡¡El colombiano del Élan Cycliste gana la Etapa 6 del Giro de Italia 2018 en la cima del Etna!! ¡¡Dieciocho años, señores!! ¡¡Dieciocho años y acaba de ganar en el volcán!! Riccardo, dime que estoy viendo lo que creo que estoy viendo—
 
@@ -350,7 +350,7 @@ Siguió pedaleando diez metros más hasta que la bicicleta se detuvo sola.
 
 —¡Increíble! Y miren, señores, los comentaristas italianos de la RAI en la señal original están preguntando literalmente: *"Chi è questo colombiano? Chi è Santiago Reyes?"* — ¿Quién es este colombiano? ¡Pues señores, este colombiano acaba de presentarse en el mundo!
 
-En el apartamento de Laureles, Medellín, Colombia, las dos y treinta y un minutos de la mañana, Hernando Reyes se sentó.
+En el apartamento de Laureles, Medellín, Colombia, las ocho y treinta y un minutos de la mañana, Hernando Reyes se sentó.
 
 No dijo nada. No celebró en voz alta. No llamó a nadie.
 
@@ -393,6 +393,90 @@ Solo eso.
 Santi asintió.
 
 Era suficiente. Era, en realidad, todo lo que hacía falta.
+
+---
+
+La zona mixta estaba montada al pie de la rampa de llegada, detrás de las vallas de publicidad, en una explanada de roca volcánica donde la organización había colocado micrófonos y cámaras en una hilera de tres metros que los corredores atravesaban en orden inverso a su clasificación. Santi llegó el primero.
+
+No sabía muy bien cómo se manejaba eso.
+
+Había visto zonas mixtas en carreras nacionales —en el Clásico RCN, en el Tour Colombia— pero nunca con esta densidad, nunca con esta cantidad de idiomas sucediendo al mismo tiempo. Había periodistas de la RAI con micrófonos de foam rojo. Había cámaras de Eurosport con el logo naranja. Había corresponsales de *Gazzetta dello Sport*, de *Mundo Deportivo*, de *Marca*, de *L'Équipe* y de tres medios colombianos que Santi no reconoció pero cuyas cámaras tenían el logotipo de Caracol y uno de Teleantioquia que lo hizo parpadear un segundo.
+
+El primero que llegó fue un periodista italiano de la RAI. Micrófono en la cara.
+
+—*Santiago, complimenti. Come ti senti in questo momento?*
+
+Santi lo miró. Su italiano era funcional en el equipo —suficiente para entender las órdenes de Ferretti, para pedir la pasta al punto— pero no para manejar una entrevista en vivo.
+
+—*Non parlo bene l'italiano* —dijo—. *Spagnolo?*
+
+El periodista asintió y en tres segundos apareció una traductora con auricular que se colocó al lado de Santi como si hubiera estado esperando exactamente eso.
+
+—¿Cómo te sentís en este momento?
+
+—Bien —dijo Santi.
+
+El periodista esperó. La traductora esperó. Santi entendió que eso no era suficiente.
+
+—Sabíamos que iba a ser una etapa dura. La subida al Etna es larga y tiene rampas que te mienten en los primeros kilómetros. Salí a hacer mi trabajo y en un momento tuve las piernas para seguir a los favoritos. Eso fue lo que pasó.
+
+*—Ma lei ha dieciot'anni. È il suo primo Grand Tour. Ha vinto su uno dei traguardi più iconici del ciclismo mondiale—*
+
+La traductora:
+
+—Pero usted tiene dieciocho años. Es su primer Grand Tour. Ha ganado en uno de los finales más icónicos del ciclismo mundial—
+
+—Sí —dijo Santi.
+
+Silencio.
+
+—¿Y?
+
+—Mañana soy gregario —dijo.
+
+El periodista de la RAI lo miró un segundo sin entender del todo. Luego sonrió. Algo en la respuesta le había gustado —la economía de ella, la falta total de performance.
+
+El de Caracol llegó al segundo.
+
+—Santi, habla Colombia. ¿Cómo te sentís como colombiano ganando en el Etna?
+
+Y ahí estaba —la pregunta que sabía que iba a llegar desde que había cruzado la línea. Había una versión de esa respuesta que podía dar y que era la versión que el periodista quería escuchar: la bandera, los compatriotas, la dedicatoria, el nombre del municipio, el río que bajaba de la montaña. Había otra versión.
+
+—Me siento bien —dijo—. Hice un buen trabajo hoy.
+
+El de Caracol insistió:
+
+—¿Dedicás esta victoria a alguien?
+
+Santi pensó en su padre en Medellín. Pensó en Ospina en La América con el café tibio. Pensó en lo que le costaría decir esas cosas en voz alta en este momento, frente a esta cámara, con el volcán humeando atrás y el olor a azufre todavía en la nariz.
+
+—A las personas que saben para quién es —dijo.
+
+---
+
+La ceremonia de podio de etapa fue veinte minutos después.
+
+No era el podio grande —ese era para la maglia rosa, para el líder de la general, para los ciclistas que llevaban semanas construyendo algo sobre la clasificación. El podio de etapa era una tarima pequeña montada sobre la roca volcánica, con el logo del Giro en el fondo y dos presentadoras de la organización que llevaban los trofeos en bandejas y sonreían para las cámaras con una profesionalidad que Santi encontró curiosamente tranquilizadora.
+
+Subió los tres escalones.
+
+Arriba estaba el trofeo —un objeto de cristal labrado con la silueta del Etna grabada en el interior, de unos treinta centímetros, más pesado de lo que parecía. Una de las presentadoras se lo entregó con las dos manos. La otra le dio las flores —un ramo de rosas rojas y blancas que Santi sostuvo con la mano izquierda sin saber muy bien qué hacer con él.
+
+Los fotógrafos dispararon.
+
+Santi miró hacia adelante —hacia el punto donde los fotógrafos apuntaban sus objetivos— y en ese momento le pasó algo que no había anticipado: que el conjunto de esa imagen, él de pie en la tarima con el trofeo y las flores y el Etna atrás y el Mediterráneo al fondo, era una imagen que iba a existir para siempre independientemente de lo que ocurriera después. Que en algún archivo de la organización, en algún servidor de *Gazzetta dello Sport*, en la memoria de alguna cámara de la RAI, ese momento ya era permanente.
+
+No sonrió. No sabía sonreír para las cámaras con esa naturalidad que tienen los ciclistas que llevan años haciéndolo.
+
+Miró.
+
+Y el objetivo de las cámaras devolvió esa mirada —seria, concentrada, sin artificio— y la convirtió en la fotografía que al día siguiente iba a aparecer en la portada de la *Gazzetta dello Sport* con el titular: *"Chi è Santiago Reyes?"*
+
+Bajó de la tarima.
+
+Le devolvió las flores a la presentadora —no sabía qué hacer con ellas y no quería cargarlas hasta el autobús. La presentadora las recibió sin sorprenderse. Probablemente pasaba seguido.
+
+Caminó hasta la zona de los equipos donde el mecánico de Élan Cycliste ya tenía la bicicleta recogida y el maillot de recambio esperando sobre el asiento trasero del coche.
 
 ---
 
@@ -448,7 +532,7 @@ Lo cerró. Apagó la luz.
 
 Afuera, invisible en la oscuridad pero presente como una respiración de fondo, el Etna seguía humeando.
 
-En Medellín, a las tres de la mañana hora local, Hernando Reyes apagó el televisor y se fue a la cama.
+En Medellín, a las nueve y media de la mañana hora local, Hernando Reyes apagó el televisor y se fue a la cama.
 
 No llamó a su hijo.
 

@@ -156,9 +156,11 @@ Santi escuchó.
 
 —La semana que viene.
 
-—¿Está Marcela con vos? —Marcela era la vecina del tercer piso, la que le llevaba la compra cuando llovía y que desde que Santi se fue a Europa había adoptado a Hernando con una discreción que los dos fingían no notar.
+—¿Está mamá con vos?
 
-—Sí.
+Un silencio breve.
+
+—Sí. Está en la cocina.
 
 —Bien. —Una pausa—. Papá.
 

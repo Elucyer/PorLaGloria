@@ -124,17 +124,17 @@ Tono: el más humano de todos. La épica se vuelve interior.
 
 **Luca Arnheim** — El gregario alemán que se destruye en el Alpe d'Huez para llevar a Santi al límite de sus posibilidades en el Tour de 2028. La escena de Luca dejándose caer exhausto en el arcén mientras Santi ataca es la imagen más poderosa del Arco V.
 
-**Valentina Ríos** — La fotógrafa. Nacida en Bogotá, 28 años cuando conoce a Santi. Lleva cuatro años documentando territorios colombianos invisibles cuando llega a San José de la Montaña sin saber que va a cambiar su propia historia. No sabe nada de ciclismo. Eso es exactamente lo que Santi necesita.
+**Mariana López** — La fotógrafa. Nacida en Bogotá, 28 años cuando conoce a Santi. Lleva cuatro años documentando territorios colombianos invisibles cuando llega a San José de la Montaña sin saber que va a cambiar su propia historia. No sabe nada de ciclismo. Eso es exactamente lo que Santi necesita.
 
 ---
 
 ### VII. EL ROMANCE — VALENTINA Y SANTI
 
-**El primer contacto:** 2026. Valentina está en San José de la Montaña trabajando en un proyecto documental sobre los municipios más fríos de Antioquia. A las 5:40 de la mañana ve a un hombre salir pedaleando en la niebla. Dispara sin pensarlo. La foto —Santi de espaldas, la carretera desapareciendo en la oscuridad, el vapor del aliento visible en el frío— se vuelve viral en Instagram en 48 horas. Santi la ve compartida en miles de cuentas. Rastrea el origen. La sigue. Ella tarda tres semanas en darse cuenta.
+**El primer contacto:** 2026. Mariana está en San José de la Montaña trabajando en un proyecto documental sobre los municipios más fríos de Antioquia. A las 5:40 de la mañana ve a un hombre salir pedaleando en la niebla. Dispara sin pensarlo. La foto —Santi de espaldas, la carretera desapareciendo en la oscuridad, el vapor del aliento visible en el frío— se vuelve viral en Instagram en 48 horas. Santi la ve compartida en miles de cuentas. Rastrea el origen. La sigue. Ella tarda tres semanas en darse cuenta.
 
 **El primer mensaje:** Santi escribe "esa foto soy yo" y nada más. Ella responde "lo sé." Ese es el inicio.
 
-**El documental:** Valentina propone seguirlo durante una temporada con cámara fotográfica —no video, no prensa, solo fotos. Él acepta porque ella es la única persona que lo mira sin ver al ciclista primero. El documental se convierte en el registro visual más íntimo de su carrera, y en el proceso, en algo que ninguno de los dos supo nombrar por demasiado tiempo.
+**El documental:** Mariana propone seguirlo durante una temporada con cámara fotográfica —no video, no prensa, solo fotos. Él acepta porque ella es la única persona que lo mira sin ver al ciclista primero. El documental se convierte en el registro visual más íntimo de su carrera, y en el proceso, en algo que ninguno de los dos supo nombrar por demasiado tiempo.
 
 **La tensión:** El romance es lento, incómodo, genuino. Hay dos momentos de quiebre: el primero en el Arco IV, cuando Santi está en el hospital tras el accidente de 2025 y ella no sabe si su rol es de periodista o de algo más. El segundo en el Arco VI, cuando el accidente de 2030 la pone frente a una decisión que la novela no resuelve fácilmente.
 
