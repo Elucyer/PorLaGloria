@@ -412,7 +412,7 @@ Esos números — primero, cinco segundos, treinta y ocho — eran los números 
 
 *Señal internacional — Eurosport España, 5:12 de la tarde (hora Colombia)*
 
-—¡¡REYES LIDERA EL GIRO!! ¡¡Con cuatro segundos sobre Froome y treinta y ocho sobre el colapsado Yates, el colombiano de dieciocho años es el virtual líder de la clasificación general del Giro d'Italia 2018!! Riccardo, ¿estamos viendo lo que creemos que estamos viendo?
+—¡¡REYES LIDERA EL GIRO!! ¡¡Con cinco segundos sobre Froome y treinta y ocho sobre el colapsado Yates, el colombiano de dieciocho años es el virtual líder de la clasificación general del Giro d'Italia 2018!! Riccardo, ¿estamos viendo lo que creemos que estamos viendo?
 
 —Lo estamos viendo, Fernando. Y lo que hace más extraordinario esto — si cabe algo más extraordinario — es que este corredor lleva diciséis días de Giro, ha ganado tres etapas de montaña, y hoy no ha atacado en solitario sino que ha seguido a Froome durante tres kilómetros con el cuerpo que ya muestra el desgaste de una Gran Vuelta. No era el Reyes del Zoncolan. Era algo diferente. Era el Reyes que sigue cuando ya no tiene el mismo filo. Eso, en cierto modo, dice más.
 

@@ -48,13 +48,13 @@ Cuarenta y dos minutos y dieciocho segundos. Undécimo del día, a un minuto y c
 
 La clasificación general al final del día:
 
-Yates, primero. Santi, segundo, a dos minutos y cincuenta. Froome, tercero, a dos minutos y cincuenta y cinco.
+Yates, primero. Santi, segundo, a un minuto y cinco. Froome, tercero, a un minuto y catorce.
 
-Cinco segundos entre Santi y Froome en la clasificación general con dos etapas alpinas por delante.
+Nueve segundos entre Santi y Froome en la clasificación general con dos etapas alpinas por delante.
 
 En el autobús de vuelta al hotel, Ferretti dijo:
 
-—Froome está a cinco segundos.
+—Froome está a nueve segundos.
 
 —Lo sé.
 
@@ -76,7 +76,7 @@ Eso era suficiente.
 
 ---
 
-Esa noche el resultado de la CRI circuló por los medios italianos y colombianos con una velocidad que Santi no había anticipado. No porque su undécimo puesto fuera noticia —no lo era— sino porque el análisis de los expertos en los programas nocturnos había llegado todos a la misma conclusión: que un chico de dieciocho años que en sus primeros dos años de profesional había ganado dos etapas del Giro y estaba segundo en la general a cinco segundos de Froome era, en términos estrictos del deporte, un fenómeno que no tenía precedente reciente.
+Esa noche el resultado de la CRI circuló por los medios italianos y colombianos con una velocidad que Santi no había anticipado. No porque su undécimo puesto fuera noticia —no lo era— sino porque el análisis de los expertos en los programas nocturnos había llegado todos a la misma conclusión: que un chico de dieciocho años que en sus primeros dos años de profesional había ganado dos etapas del Giro y estaba segundo en la general a nueve segundos de Froome era, en términos estrictos del deporte, un fenómeno que no tenía precedente reciente.
 
 Santi lo supo porque Ospina se lo dijo.
 
@@ -102,7 +102,7 @@ Colgó.
 
 Santi no prendió el televisor. Abrió el cuaderno.
 
-*Etapa 16. CRI Trento. 11º. +1:53 de Dennis. +1:26 de Froome. GC: 2º, +2:50 de Yates. Froome a 5 segundos.*
+*Etapa 16. CRI Trento. 11º. +1:53 de Dennis. +1:26 de Froome. GC: 2º, +1:05 de Yates. Froome a 9 segundos.*
 
 Debajo:
 

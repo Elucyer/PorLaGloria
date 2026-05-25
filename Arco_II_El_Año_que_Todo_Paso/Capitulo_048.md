@@ -96,7 +96,7 @@ Lo que sí había era la posibilidad de correr de la manera en que había corrid
 
 Abrió el cuaderno.
 
-*Etapa 17. Llano. Pelotón. Viviani. GC sin cambios: 2º, +2:50.*
+*Etapa 17. Llano. Pelotón. Viviani. GC sin cambios: 2º, +1:05.*
 
 *Mañana: Prato Nevoso.*
 
