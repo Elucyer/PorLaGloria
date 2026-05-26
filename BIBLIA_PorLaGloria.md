@@ -5,7 +5,7 @@
 
 ### I. LOGLINE
 
-Un niño del municipio más frío de Antioquia pierde a su padre el mismo día que gana el Giro de Italia con 19 años. Lo que sigue es la historia de un hombre que tarda quince años en entender que la gloria nunca llena el lugar que dejó quien más quería que la viera.
+Un niño del municipio más frío de Antioquia gana el Giro de Italia con diecinueve años el mismo día que su padre está en la UCI de un hospital en Medellín y el teléfono no contesta. Hernando sobrevive. Lo que sigue es la historia de un hombre que tarda quince años en entender que ninguna gloria alcanza si quien más querías que la viera casi no llegó para verla.
 
 ---
 
@@ -16,7 +16,7 @@ Un niño del municipio más frío de Antioquia pierde a su padre el mismo día q
 **Estatura:** 1,72 m / 62 kg en forma de carrera
 **Personalidad:** Reservado con los extraños, feroz con los rivales, leal hasta el sacrificio con los suyos. Tiene el silencio de los hombres que crecieron solos con una obsesión. No necesita que lo entiendan, pero necesita —sin saberlo— que alguien lo vea de verdad.
 
-**El padre:** Hernando Reyes. Fue gregario del Clásico RCN en los noventa. Nunca pasó de ahí. Le dejó a Santi una bicicleta de segunda mano, la obsesión de toda una vida y una deuda emocional impagable. Le diagnosticaron un cáncer de pulmón en mayo de 2018, durante el primer Giro de Santi. Murió en junio de 2019, mientras Santi subía el Stelvio por segunda vez.
+**El padre:** Hernando Reyes. Fue gregario del Clásico RCN en los noventa. Nunca pasó de ahí. Le dejó a Santi una bicicleta de segunda mano, la obsesión de toda una vida y una deuda emocional impagable. Le diagnosticaron un cáncer de pulmón en mayo de 2018, durante el primer Giro de Santi. Operado en junio de ese año, los resultados iniciales fueron limpios. El cáncer reapareció en abril de 2019 —metástasis en el pulmón contralateral— mientras Santi se preparaba para el Stelvio. Hernando ingresó a la UCI del Hospital San Vicente Fundación la noche antes de la etapa decisiva. Sobrevivió, pero los tratamientos fueron agresivos y largos: quimioterapia, radioterapia, dos años de recuperación lenta. Tardó hasta finales de 2021 en recuperar una vida medianamente normal. Sigue vivo. Ve las carreras de su hijo desde el apartamento de Laureles.
 
 **El origen:** San José de la Montaña es el municipio más frío de Antioquia. Niebla permanente. Vacas al borde de la carretera. Olor a eucalipto y tierra mojada. Un lugar del que la gente sale o se queda para siempre. Santi salió, pero nunca del todo.
 
@@ -39,7 +39,7 @@ Nairo tuvo el talento pero no siempre la mentalidad de guerra en los momentos de
 | 2015 | 15 | Debuta en ligas juveniles |
 | 2017 | 17 | Lo ficha un equipo profesional colombiano |
 | 2018 | 18 | Primer Giro de Italia. Porta la maglia rosa. Gana etapas. Queda tercero. Al padre le diagnostican cáncer de pulmón durante la carrera. |
-| **2019** | **19** | **Segundo Giro de Italia. Gana etapas, ataca en el Stelvio. Gana el Giro. El padre muere ese mismo día. PICO #1** |
+| **2019** | **19** | **Segundo Giro de Italia. Gana etapas, ataca en el Stelvio. Gana el Giro. El padre está en la UCI con recaída del cáncer. El teléfono no contesta. Hernando sobrevive. PICO #1** |
 | 2020 | 20 | Carapaz gana el Giro. Santi consolida en Europa. Primeros monumentos (Lieja, Lombardía). |
 | 2021 | 21 | Gana la Vuelta a España en Sierra Nevada. |
 | 2022 | 22 | Lidera el Tour de France. Pierde la crono final por segundos. País en luto. |
@@ -74,9 +74,9 @@ Tono: costumbrista, íntimo, colombiano puro. Huele a café y asfalto mojado.
 
 #### ARCO II — "El Año que Todo Pasó" (2018–2019) — Capítulos 40 al 83
 
-El debut en el Giro de Italia y el año que lo cambia todo. En 2018 llega tercero y el diagnóstico llega a mitad de carrera. En 2019, en el Stelvio, con el padre en el hospital, gana. En el podio de Milán el teléfono no contesta.
+El debut en el Giro de Italia y el año que lo cambia todo. En 2018 llega tercero y el diagnóstico llega a mitad de carrera. En 2019, en el Stelvio, con el padre en la UCI de Medellín —el cáncer volvió, más agresivo, sin aviso—, Santi gana el Giro. En el podio de Milán el teléfono no contesta. Hernando sobrevive, pero los meses que siguen son los más difíciles de su vida y de la de Santi: la victoria más grande coexiste con la casi-pérdida del único que importaba.
 
-Tono: épico y roto al mismo tiempo. La enfermedad del padre se narra en paralelo con las dos carreras: siempre presente, siempre aplazada.
+Tono: épico y roto al mismo tiempo. La enfermedad del padre se narra en paralelo con las dos carreras: siempre presente, siempre aplazada. La salvación llega después de la victoria, no en lugar de ella. Aquí también se planta la semilla de lo que Santi construirá con Ospina en los arcos siguientes: el dinero que empieza a llegar, la conciencia de lo que el sistema le da y lo que le niega a los que vienen detrás.
 
 ---
 
@@ -114,7 +114,7 @@ Tono: el más humano de todos. La épica se vuelve interior.
 
 ### VI. PERSONAJES SECUNDARIOS
 
-**Hernando Reyes** — El padre. Aparece en flashbacks durante toda la novela. Muere en el Arco II (2019, Giro, Stelvio) pero nunca desaparece. Su enfermedad —diagnosticada en el Giro 2018 y presente durante un año— es la narrativa paralela que recorre el Arco II.
+**Hernando Reyes** — El padre. Presente en carne en los Arcos I, II y III; a distancia pero vivo en los Arcos IV, V y VI. Exgregario que nunca ganó, ve en su hijo todo lo que él fue y no fue. La recaída del cáncer en 2019 —metástasis detectada mientras Santi sube el Stelvio— es el eje emocional del Arco II. Sobrevive tras tratamientos agresivos que lo dejan cambiado físicamente pero entero. Sigue viendo las carreras de su hijo desde Laureles. Está en Madrid en 2032 cuando Santi llora en el último kilómetro de la Vuelta. No dice nada. Levanta la mano.
 
 **Doña Carmen Cardona** — La madre. Nunca fue a una carrera en vivo hasta el Tour de 2027. La escena de ella viendo a Santi entrar en París es uno de los tres momentos más emotivos de la novela.
 
@@ -145,12 +145,22 @@ Tono: el más humano de todos. La épica se vuelve interior.
 ### VIII. LOS DOS PICOS NARRATIVOS
 
 **PICO #1 — El Stelvio y el teléfono apagado (2019)**
-Segundo Giro. El padre lleva un año con cáncer —diagnóstico, quimioterapia, recaída silenciosa. La noche antes del Stelvio, Santi habla con él por teléfono. Hernando dice que las piernas están bien. Dice que en cada puerto. Dice que va.
+Segundo Giro. El padre lleva casi un año en recuperación tras la operación de 2018 —los controles semestrales habían salido limpios, la vida en Laureles había vuelto a algo parecido a la normalidad. En abril de 2019, una imagen de control muestra actividad tumoral en el pulmón contralateral. El cáncer volvió. Hernando le dice a Carmen que no le digan a Santi hasta después del Giro. Carmen no está de acuerdo, pero lo respeta.
 
-Al día siguiente, en el kilómetro dieciséis del Stelvio, Santi ataca. No por la clasificación general —ya la tiene asegurada—. Por algo que no tiene nombre pero que se siente como una obligación que va más allá del ciclismo. Gana la etapa. Gana el Giro. En el podio de Milán intenta llamar y el teléfono no contesta. La escena no tiene dramatismo forzado —solo el silencio, el maillot rosa, y Santi mirando el teléfono en la palma de la mano mientras treinta mil personas gritan su nombre.
+La noche antes del Stelvio, Santi habla con Hernando por teléfono. No sabe nada. Hernando no dice nada. Dice que las piernas están bien. Dice que en cada puerto. Dice que va.
+
+Esa noche, a las tres de la mañana hora colombiana, Hernando ingresa a urgencias del Hospital San Vicente Fundación con dificultad respiratoria severa. La tomografía de urgencia confirma progresión tumoral con derrame pleural. Carmen está en la sala de espera. No llama a Santi. No quiere que sepa antes de la etapa más importante de su vida.
+
+Al día siguiente, en el kilómetro dieciséis del Stelvio, Santi ataca. No por la clasificación general —ya la tiene asegurada—. Por algo que no tiene nombre pero que se siente como una obligación que va más allá del ciclismo. Gana la etapa. Gana el Giro. En el podio de Milán intenta llamar y el teléfono no contesta. Carmen no contesta. Nadie contesta. La escena no tiene dramatismo forzado —solo el silencio, el maillot rosa, y Santi mirando el teléfono en la palma de la mano mientras treinta mil personas gritan su nombre.
+
+Cuatro horas después del podio, el mensaje de Carmen llega: *Papá está en el hospital. Está estable. Llámame cuando puedas.*
+
+El vacío entre el podio y ese mensaje es el momento más solo de toda la novela. No es tristeza —no sabe todavía qué es. Es el espacio entre la victoria más grande de su vida y la certeza de que algo, al otro lado del teléfono, no está bien. Hernando sobrevive. Los dos años siguientes son los más difíciles de la novela: tratamientos agresivos, recaídas menores, la presencia de Santi dividida entre Europa y Medellín. Pero sobrevive.
 
 **PICO #2 — Madrid, último kilómetro de la Vuelta 2032**
 Santi ya tiene el Tour y el Giro en el bolsillo ese año. La Vuelta es el cierre de la Triple Corona. En el último kilómetro, en el Paseo de la Castellana, empieza a llorar encima de la bicicleta. No lo puede evitar. El pelotón lo deja pasar. Hasta los rivales frenan. Es el único momento en 300 capítulos donde Santi pierde el control, y es el momento más hermoso de toda la novela.
+
+Hernando, que lleva trece años sobreviviendo, está en las vallas del Paseo de la Castellana con Carmen. Es la primera carrera de Santi que ve en vivo — el médico le había dicho que podía viajar, que los pulmones aguantaban el vuelo, que si quería ir era el momento. Cuando Santi pasa entre las vallas llorando, Hernando levanta la mano. Santi no lo ve. Pero Carmen sí lo ve a él — a Hernando con la mano levantada y los ojos cerrados — y eso es suficiente.
 
 ---
 

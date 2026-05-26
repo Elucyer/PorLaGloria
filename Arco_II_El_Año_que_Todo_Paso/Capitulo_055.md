@@ -570,7 +570,55 @@ Ospina consideró la pregunta.
 
 Santi asintió.
 
-No dijo nada más sobre el chico. Pero lo anotó mentalmente con la misma calidad de anotación con que anotaba las cosas que necesitaba recordar más tarde.
+No dijo nada por un momento. Ospina esperó — lo conocía demasiado bien para interrumpir los silencios que no eran vacíos.
+
+—Ospina —dijo Santi—. ¿Tenés el número de cuenta del taller?
+
+Ospina lo miró.
+
+—¿Para qué.
+
+—Para hacer una transferencia.
+
+Una pausa.
+
+—¿Cuánto.
+
+—Veinticinco mil euros.
+
+Ospina no cambió la expresión. Lo que hizo fue recostar la espalda en la silla — un movimiento pequeño, casi imperceptible, del tipo que hacía cuando estaba procesando algo que no esperaba.
+
+—Es mucho —dijo.
+
+—No es nada —dijo Santi—. Para lo que cuesta un año de carrera acá.
+
+Ospina consideró eso durante un momento. No con la cara de quien está decidiendo si acepta, sino con la cara de quien ya sabe que va a aceptar y está calibrando el peso exacto de lo que acaba de pasar.
+
+—¿Para qué querés que sea.
+
+—Para los que no pueden pagar. Entrenamiento, material, inscripciones. Lo que haga falta. Vos sabés mejor que nadie qué hace falta.
+
+Ospina asintió despacio. No dijo gracias — y Santi no lo esperaba, porque entre ellos los agradecimientos eran del tipo que no necesitaban palabras para existir.
+
+—El Rodolfo ese sube bien —dijo Ospina al final.
+
+—Lo sé —dijo Santi.
+
+No dijeron más sobre eso.
+
+Antes de levantarse, Santi sacó el teléfono.
+
+—Mandame el número ahora.
+
+Ospina lo mandó.
+
+Santi hizo la transferencia en ese momento, de pie en la oficina con el olor a aceite de cadena y el ruido del taller al fondo, sin ceremonia, como quien paga una factura pendiente. Guardó el teléfono.
+
+—Listo —dijo.
+
+—Listo —dijo Ospina.
+
+Y eso fue todo.
 
 Salió del taller a las once y media.
 
@@ -839,6 +887,8 @@ Luego abrió el cuaderno.
 *22 junio 2018. Medellín → Amsterdam → Waregem.*
 
 *Papá: resultados limpios. Sin extensión. Seguimiento semestral.*
+
+*Ospina: 25.000 € transferidos. Para los chicos.*
 
 *Bloque de julio: 23 junio. Burgos: agosto.*
 
