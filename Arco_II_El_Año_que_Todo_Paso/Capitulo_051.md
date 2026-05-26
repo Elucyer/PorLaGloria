@@ -238,7 +238,7 @@ Santi comió pasta, pollo, dos plátanos, pan. El cuerpo pedía carbohidratos co
 
 Ferretti se levantó al final de la cena.
 
-—Mañana Cervinia. Ciento ochenta y tres kilómetros. El final no es de montaña pura — es una llegada parcialmente llana donde los especialistas pueden jugar. El trabajo de Santi es llegar. Punto. —Miró al equipo—. Lo que hicieron hoy no se puede pedir. Solo se puede agradecer.
+—Mañana Cervinia. Doscientos catorce kilómetros. El final no es de montaña pura — es una llegada parcialmente llana donde los especialistas pueden jugar. El trabajo de Santi es llegar. Punto. —Miró al equipo—. Lo que hicieron hoy no se puede pedir. Solo se puede agradecer.
 
 Se sentó.
 

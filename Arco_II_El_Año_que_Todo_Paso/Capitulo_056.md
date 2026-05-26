@@ -370,19 +370,27 @@ Torres: *Entendido.*
 
 ---
 
-Clarke llegó el martes de la segunda semana — venía de las carreras británicas donde había terminado su temporada de clásicas de verano — y se asomó al apartamento de Santi esa tarde con una botella de cerveza Duvel que Santi no iba a beber y que Clarke terminó solo en el balcón mientras le preguntaba sobre el Giro.
+Clarke llegó el martes de la segunda semana — venía de las carreras británicas donde había terminado su temporada de clásicas de verano — y se asomó al apartamento de Santi esa tarde con una botella de cerveza Duvel que Santi no iba a beber y que Clarke terminó solo en el balcón mientras miraba el canal.
 
-— Armand me lo contó todo — dijo Clarke —. La etapa del Zoncolan. El Finestre.
+Estuvieron un rato sin hablar. El agua del canal pasaba despacio, con las barcazas de carga a media velocidad y las gaviotas siguiéndolas desde arriba.
 
-— ¿Qué te contó?
+— El Finestre — dijo Clarke.
 
-— Que en el Jafferau siguieron a Froome cuatro kilómetros en lo que Armand describió como "el ritmo de la muerte sostenible" y que en el kilómetro cinco Froome aceleró y vos le seguiste un kilómetro más antes de que el cuerpo dijera hasta aquí.
+No era una pregunta. Era el nombre dicho como se dicen los nombres de los lugares que pesan.
 
-— Más o menos.
+— Sí — dijo Santi.
 
-Clarke miró la cerveza.
+Clarke tomó la cerveza.
 
-— ¿Qué perdiste en ese kilómetro?
+— Estaba en el coche de Ferretti cuando atacó. Duchêne repetía los tiempos por el radio cada kilómetro — cuánto llevabais, cuánto os separabais del grupo, cuánto quedaba de sterrato. — Una pausa — . El Zoncolan yo lo vi por el retrovisor cuando me descolgué en el kilómetro tres. Pero el Finestre lo escuché entero.
+
+— ¿Todo el radio?
+
+— Todo. Noventa kilómetros de Duchêne repitiendo números y de Ferretti callado.
+
+Santi no dijo nada.
+
+— ¿Qué perdiste en el kilómetro cinco del Jafferau?
 
 — Cuarenta segundos de cadencia. Dos segundos en el CG.
 

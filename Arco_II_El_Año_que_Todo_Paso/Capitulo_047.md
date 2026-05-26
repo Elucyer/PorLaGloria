@@ -44,7 +44,7 @@ Lo sabía desde siempre —desde los primeros tests de Ospina en La América con
 
 Dio todo lo que tenía.
 
-Cuarenta y dos minutos y dieciocho segundos. Undécimo del día, a un minuto y cincuenta y tres de Dennis, el ganador. A un minuto y veintiséis de Froome, que había hecho el segundo tiempo.
+Cuarenta minutos y cuarenta y cuatro segundos. Undécimo del día, a un minuto y treinta y nueve de Dennis, el ganador. A un minuto y doce de Froome, que había hecho el segundo tiempo.
 
 La clasificación general al final del día:
 
@@ -102,7 +102,7 @@ Colgó.
 
 Santi no prendió el televisor. Abrió el cuaderno.
 
-*Etapa 16. CRI Trento. 11º. +1:53 de Dennis. +1:26 de Froome. GC: 2º, +1:05 de Yates. Froome a 9 segundos.*
+*Etapa 16. CRI Trento. 11º. +1:39 de Dennis. +1:12 de Froome. GC: 2º, +1:05 de Yates. Froome a 9 segundos.*
 
 Debajo:
 

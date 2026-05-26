@@ -374,7 +374,7 @@ Era la primera vez que alguien formulaba esa pregunta en voz alta. La primera ve
 
 El periodista esperó.
 
-—Yates es el mejor corredor de esta carrera —continuó—. Y Froome está a cinco segundos de mí en la general. Hay dos etapas alpinas.
+—Yates es el mejor corredor de esta carrera —continuó—. Y yo estoy a veinticinco segundos de Froome en la general. Hay dos etapas alpinas.
 
 —¿Pero usted cree que puede ganar?
 

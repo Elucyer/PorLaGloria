@@ -24,7 +24,7 @@ Clarke llegó cinco minutos después. Se sentó enfrente. Pidió café, se lo to
 
 —¿Qué decían las bonificaciones?
 
-—Que estás a dos diez de Yates. Que Froome está a dos cincuenta y cinco. —Clarke lo miró con esa expresión suya de quien dice cosas importantes en el mismo tono que las cosas triviales—. Que si mañana ganas la CRI vas segundo en el Giro.
+—Que estás a dos diez de Yates. Que Froome está a uno cuarenta y cinco. —Clarke lo miró con esa expresión suya de quien dice cosas importantes en el mismo tono que las cosas triviales—. Que si mañana ganas la CRI vas segundo en el Giro.
 
 —No voy a ganar la CRI.
 
@@ -442,11 +442,11 @@ Silencio de Ospina al otro lado. El silencio de quien está procesando un dato q
 
 —Lo sé. ¿Cuánto calculás?
 
-—Treinta y cuatro kilómetros, terreno ondulado, Rovereto — Dennis va a hacer el mejor tiempo, Froome el segundo. Vos... un minuto y algo sobre Froome. Quizás un minuto treinta.
+—Treinta y cuatro kilómetros, terreno ondulado, Rovereto — Dennis va a hacer el mejor tiempo, Froome el segundo. Vos... un minuto y algo sobre Froome. Quizás un minuto doce.
 
-—Entonces quedo a dos cincuenta de Yates.
+—Entonces quedo a un cinco de Yates.
 
-—Aproximadamente. Y Froome a dos cincuenta y cinco — a cinco segundos de vos en la general.
+—Aproximadamente. Y Froome a uno catorce — a nueve segundos de vos en la general.
 
 Santi escuchó.
 
