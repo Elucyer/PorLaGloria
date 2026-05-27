@@ -68,7 +68,7 @@ Las etapas en el perfil de Duchêne: los picos azules del Izoard y el Agnello y 
 
 Broeckx miró a Santi. Santi no respondió al gesto.
 
-— La catorce: Courmayeur — dijo Ferretti. — Aquí es donde podemos tomar la Maglia Rosa. La diferencia con Conti va a ser de tres y cuarenta. En nueve kilómetros al ocho punto tres, si hacemos la subida correcta, recuperamos tres cuarenta y tomamos la maglia y ponemos a Roglič a doce segundos. — Una pausa. — Eso cambia el Giro. Eso convierte a Santi en el líder que Roglič tiene que cazar en lugar de al revés.
+— La catorce: Courmayeur — dijo Ferretti. — Aquí es donde podemos tomar la Maglia Rosa. La diferencia con Conti va a ser de tres y cuarenta. En ocho kilómetros y medio al nueve punto uno, si hacemos la subida correcta, recuperamos tres cuarenta y tomamos la maglia y ponemos a Roglič a doce segundos. — Una pausa. — Eso cambia el Giro. Eso convierte a Santi en el líder que Roglič tiene que cazar en lugar de al revés.
 
 El cambio de posición táctica que cambia la psicología de la carrera: no el perseguidor sino el perseguido. El líder que marca el ritmo en lugar del candidato que sigue el ritmo del líder.
 
@@ -265,5 +265,14 @@ El cuarto de Laureles en la oscuridad — la oscuridad de los cuartos que en los
 Carmen no respondió.
 
 Era la declaración de Hernando de lo que tenía que ser.
+
+---
+
+*GC en el primer descanso (tras E9):*
+*1º Roglič (SLO / Jumbo-Visma)*
+*2º Nibali (ITA / Bahrain-Merida) +1:05*
+*3º Santi (COL / FCV-Procycling) +1:38*
+*4º Carapaz (ECU / Movistar) +3:30*
+*Maglia Rosa: Valerio Conti (UAE)*
 
 ---

@@ -58,7 +58,7 @@ En el papel, los números:
 
 Colle d'Izoard: dos mil trescientos sesenta metros de altitud. Catorce kilómetros y cien metros al siete punto tres de pendiente media.
 
-Colle dell'Agnello: dos mil setecientos cuarenta y ocho metros. El más alto de todo el Giro. Veintiún kilómetros al seis punto nueve. En mayo, con la nieve que los últimos quinientos metros del puerto todavía guardaban en los bordes de la carretera, el Agnello tenía esa atmósfera de frontera que los puertos altos tienen cuando el asfalto termina en un mundo donde el verde ya no existe y solo quedan la roca y el cielo.
+Colle dell'Agnello: dos mil setecientos cuarenta y cuatro metros. El más alto de todo el Giro. Veintiún kilómetros al seis punto nueve. En mayo, con la nieve que los últimos quinientos metros del puerto todavía guardaban en los bordes de la carretera, el Agnello tenía esa atmósfera de frontera que los puertos altos tienen cuando el asfalto termina en un mundo donde el verde ya no existe y solo quedan la roca y el cielo.
 
 Lago Serrù: la llegada en alto a dos mil doscientos cuarenta metros. Doce kilómetros al cinco punto seis. Un lago glacial rodeado de montañas que en mayo todavía tenían la nieve de invierno en las caras norte.
 
@@ -104,7 +104,7 @@ Santi dejó ir a Zakarin.
 
 Lo vio alejarse por la carretera del Agnello — la silueta pequeña del ruso disminuyendo en la distancia mientras el grupo de GC subía a su propio ritmo, sin apresurarse, con la paciencia del que sabe que el puerto tiene veintiún kilómetros y que quemar las piernas en el kilómetro cuatro para cerrar una brecha de un minuto y medio es el tipo de error que se paga en el último kilómetro.
 
-Cima del Agnello: dos mil setecientos cuarenta y ocho metros.
+Cima del Agnello: dos mil setecientos cuarenta y cuatro metros.
 
 Zakarin en la fuga. El grupo de GC llegó con seis corredores: Roglič, Nibali, Santi, Carapaz, Landa y Mollema. La diferencia con Zakarin: dos minutos y cuarenta segundos.
 
@@ -174,7 +174,7 @@ En el podio provisional de la etapa, Ferretti esperaba al pie del podio con la c
 
 No era lo que había dicho en la reunión de la mañana, que era noventa y cinco. Pero el noventa y tres después del Izoard y el Agnello y el Lago Serrù era un noventa y tres diferente al noventa y tres de después de nueve etapas — era el noventa y tres del corredor que ha usado el siete por ciento en exactamente el lugar correcto.
 
-— Mañana: Courmayeur — dijo Ferretti —. Nueve kilómetros al ocho punto tres. El Mont Blanc al fondo.
+— Mañana: Courmayeur — dijo Ferretti —. Ocho kilómetros y medio al nueve punto uno. El Mont Blanc al fondo.
 
 Santi asintió.
 
@@ -196,7 +196,14 @@ Por un día más.
 
 *Etapas 10–12: GC sin cambios entre favoritos.*
 *Etapa 13 (Lago Serrù): Zakarin gana la etapa. Santi 2º +0:57. Santi primero entre candidatos GC.*
-*GC favoritos tras E13: Roglič 1º. Nibali 2º +1:05. Santi 3º +1:38. Carapaz 4º +3:30.*
+*Nibali llega +1:19 sobre Santi. Roglič +1:28 sobre Santi.*
+
+*GC tras E13 (favoritos):*
+*1º Roglič (SLO / Jumbo-Visma)*
+*2º Nibali (ITA / Bahrain-Merida) +0:36*
+*3º Santi (COL / FCV-Procycling) +0:10*
+*4º Carapaz (ECU / Movistar) +2:22*
+*Maglia Rosa: Valerio Conti (UAE) — diferencia virtual con Santi: 3:40*
 
 *Mañana: Courmayeur. El Mont Blanc.*
 

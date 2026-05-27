@@ -124,6 +124,16 @@ Ferretti habló primero — el director deportivo con la lengua italiana que en 
 
 Los periodistas anotaron.
 
+Uno de los italianos levantó la mano.
+
+— Señor Ferretti, el equipo llega a este Giro con un nombre nuevo. ¿Qué significa FCV-Procycling para el proyecto?
+
+Ferretti asintió — el gesto del hombre al que no le sorprende la pregunta porque la esperaba.
+
+— El Élan Cycliste fue el nombre con el que construimos todo lo que somos. — Pausa. — El año pasado en este Giro, con un corredor de dieciocho años en el podio, y este invierno con el Romandia y París-Niza, llegaron patrocinadores que creyeron que valía la pena apostar por el proyecto. FCV es el grupo de inversión. *Procycling* es lo que somos. El nombre cambia. El trabajo es el mismo.
+
+Los periodistas anotaron.
+
 Luego Santi al micrófono.
 
 Las preguntas eran las preguntas del Giro: *¿cómo está la forma?, ¿puede ganar Roglič en las montañas?, ¿el objetivo es ganar o aprender?*
