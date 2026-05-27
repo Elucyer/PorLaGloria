@@ -14,21 +14,25 @@ Duchêne, en la reunión de las siete:
 
 — Sin viento, el crono es puro. No hay ventaja ni desventaja por posición de salida, no hay sectores donde el viento cambia la dirección. Solo el corredor y el cronómetro.
 
-— ¿Qué puede hacer Müller? — dijo Santi.
+— ¿Qué puede hacer Thomas? — dijo Santi.
 
-— Müller en condiciones neutrales pierde treinta y cinco a cuarenta segundos sobre un especialista. En el mejor escenario recupera diez segundos sobre vos. En el peor, veinte.
+— Thomas en condiciones neutrales pierde veinte a veinticinco segundos sobre un especialista puro. En el mejor escenario recupera diez segundos sobre vos. En el peor, diecisiete.
 
 Santi hizo el cálculo en la cabeza.
 
-Ventaja actual: veinticinco segundos sobre Müller. Si el suizo recuperaba veinte, la diferencia final sería de cinco segundos. Suficiente para ganar — si el cuerpo hacía lo que tenía que hacer durante doce kilómetros y medio después de cinco días de carrera.
+Ventaja actual: diecinueve segundos sobre Thomas. Si el galés recuperaba diecisiete, la diferencia final sería de dos segundos. Demasiado ajustado para dormir bien. Si recuperaba diez, quedaban nueve de margen.
 
-— ¿Y Pogačar?
+— ¿Y Roglič?
 
-— El esloveno en crono plano es mejor de lo que parece — dijo Duchêne —. No recupera los cincuenta y dos que tiene de desventaja, pero puede acercarse.
+— El esloveno es otro problema — dijo Duchêne —. Roglič viene del salto de esquí — tiene la posición aerodinámica más eficiente del pelotón. En este crono puede ganar. Pero lleva cincuenta y tantos segundos de desventaja en GC. No cambia la GC para nosotros aunque gane la etapa.
+
+— ¿Y Gaudu?
+
+— El francés en crono plano no es su terreno — dijo Duchêne —. Pierde más que Thomas. No recupera los cincuenta y dos que tiene de desventaja.
 
 Ferretti, desde el fondo:
 
-— Hoy no ganás el Romandia. Lo ganaste ayer. Hoy lo que hacés es no perderlo. — Se levantó —. Salís el penúltimo. Cuando llegués al arco, el tiempo de referencia de Müller ya va a estar puesto. Duchêne te va a decir en el kilómetro ocho cómo va la diferencia. Desde ahí, decidís vos.
+— Hoy no ganás el Romandia. Lo ganaste ayer. Hoy lo que hacés es no perderlo. — Se levantó —. Salís el penúltimo. Cuando llegués al arco, el tiempo de referencia de Thomas ya va a estar puesto. Duchêne te va a decir en el kilómetro ocho cómo va la diferencia. Desde ahí, decidís vos.
 
 ---
 
@@ -36,17 +40,17 @@ El orden de salida en la contrarreloj final era el orden inverso de la GC: el l�
 
 Santi esperó en el área de calentamiento — los rodillos detrás del arco de salida, el sol de la mañana suiza sobre el lago Lemán, las carpas blancas de los equipos y el sonido de los demás corredores que ya habían salido y que en los monitores del área de calentamiento aparecían como puntos en el circuito de la rive droite con sus tiempos parciales actualizándose cada treinta segundos.
 
-Müller salió cuatro minutos antes que Santi.
+Thomas salió cuatro minutos antes que Santi. Roglič había salido antes que Thomas.
 
-En el monitor: Müller al kilómetro cuatro. Tiempo parcial: cuatro minutos y cincuenta y dos segundos. El referencial de los especialistas en ese punto era cuatro cuarenta y seis.
+En el monitor: Thomas al kilómetro cuatro. Tiempo parcial: cuatro minutos y cincuenta y dos segundos. El referencial de los especialistas en ese punto era cuatro cuarenta y dos — el tiempo que Roglič había marcado en el mismo punto, porque Roglič en el crono plano era otra categoría.
 
-Seis segundos por detrás del ritmo de los especialistas.
+Diez segundos por detrás del ritmo de Roglič. Eso significaba que Thomas iba a perder en el crono final unos veinte segundos sobre el esloveno del Jumbo.
 
 Duchêne, por el pinganillo del área de calentamiento:
 
-— Müller está a ritmo de perder cuarenta y dos segundos sobre el ganador. A ese ritmo, te recupera diecisiete. Mantenés ocho de ventaja final.
+— Thomas está a ritmo de perder diecinueve segundos sobre el ganador. A ese ritmo, te recupera nueve. Mantenés diez de ventaja final.
 
-Ocho segundos.
+Diez segundos.
 
 Suficiente. Si el cuerpo respondía.
 
@@ -62,17 +66,17 @@ La primera mitad — los seis kilómetros y medio de la ida hacia el puente del 
 
 Duchêne, kilómetro cuatro:
 
-— Cuatro minutos y cuarenta y ocho. Vas bien.
+— Cuatro minutos y cuarenta y nueve. Vas bien.
 
-Cuatro cuarenta y ocho sobre el referencial de cuatro cuarenta y seis. Dos segundos de retraso. Manejable.
+Cuatro cuarenta y nueve sobre el referencial de Roglič en ese punto: cuatro cuarenta y dos. Siete segundos de retraso respecto al ganador — pero Roglič no era el rival de la GC. El rival de la GC era Thomas, que en ese mismo punto había pasado en cuatro cincuenta y dos. Tres segundos por delante de Santi. Manejable.
 
 La segunda mitad — el retorno por el otro lado del lago, la Promenade des Anglais en sentido contrario, la recta final hacia el Palais des Nations — fue el crono del corredor que ya no ejecuta sino que sostiene. La diferencia entre las dos mitades era la diferencia entre el principio y el final del esfuerzo: en el principio el cuerpo responde a las instrucciones de la mente, en el final la mente responde al estado del cuerpo y las instrucciones se vuelven más simples, más directas, sin espacio para la matización.
 
 Kilómetro ocho:
 
-— Müller terminó — dijo Duchêne —. Cuarenta y cuatro segundos sobre el ganador provisional. Te lleva quince.
+— Thomas terminó — dijo Duchêne —. Diecinueve segundos sobre Roglič. Te lleva nueve sobre el referencial de Thomas. Diez de margen si mantenés esto.
 
-Quince segundos recuperados sobre los veinticinco de ventaja.
+Nueve segundos recuperados por Thomas sobre los diecinueve de ventaja.
 
 Diez de diferencia si el ritmo se mantenía.
 
@@ -90,29 +94,30 @@ El cronómetro.
 
 Línea de llegada.
 
-Cincuenta y siete minutos y veintiocho segundos.
+Catorce minutos y cincuenta y dos segundos.
 
-Cuarenta y tres segundos por detrás del ganador — el especialista checo del Bora que había ganado con una autoridad que en los cronos de distancia media era su terreno natural y que en la montaña del día anterior había llegado a Thyon con cuatro minutos y treinta y siete segundos de desventaja, exactamente donde Duchêne había calculado que llegaría.
+Dieciséis segundos por detrás del ganador — Primož Roglič del Jumbo-Visma, que había ganado la contrarreloj con una eficiencia que venía de sus años de saltador de esquí: la posición aerodinámica que no era aprendida en el viento túnel sino que era parte del cuerpo desde antes de que el cuerpo supiera qué era un velódromo. Roglič había ganado la etapa. La GC era otro asunto.
 
-Müller: cincuenta y seis minutos y cuarenta y cuatro segundos. Cuarenta y cuatro segundos por detrás del ganador. Cuarenta y cuatro sobre cuarenta y tres: un segundo mejor que Santi en el crono.
+Thomas: catorce minutos y cuarenta y tres segundos. Nueve segundos por detrás de Roglič — y nueve segundos por delante de Santi en la etapa.
 
 GC final del Tour de Romandia:
 
 Santi primero.
-Müller segundo a doce segundos.
-Pogačar tercero a cuarenta y uno.
+Thomas segundo a diez segundos.
+Rui Costa tercero a diecisiete.
+Gaudu cuarto a cincuenta y nueve.
 
 ---
 
 La ceremonia del podio fue en la Promenade du Lac con el lago detrás y el Mont-Blanc visible en el horizonte sur en ese momento de la tarde — eran las cuatro y media y el sol estaba lo suficientemente bajo para que la nieve de la cumbre del Mont-Blanc recibiera la luz en diagonal, esa luz de las cuatro de la tarde de mayo que convierte el blanco de la nieve en algo entre el dorado y el naranja.
 
-Santi en el centro. Müller a su derecha. Pogačar a su izquierda.
+Santi en el centro. Thomas a su derecha. Rui Costa a su izquierda.
 
-El esloveno había cumplido veinte años en septiembre. Tenía la cara del corredor joven al que todavía no le había pasado suficiente en la carrera como para que la cara lo mostrara — la cara lisa del que está en el principio, no en el medio. Santi lo miró un momento en el podio con la atención que le dedicaba a los corredores que iba a volver a ver.
+El portugués había cumplido treinta y dos años. Tenía la cara del corredor que ya ha ganado suficiente — el Campeonato del Mundo en 2013, etapas del Giro y del Tour, años de carrera en el pelotón profesional — para que en el podio el tercer lugar no sea derrota sino resultado. Santi lo miró un momento con la atención que le dedicaba a los corredores que iba a volver a ver.
 
 Foto. Trofeo. Los nombres en el micrófono del locutor.
 
-*Santiago Reyes. Stefan Müller. Tadej Pogačar.*
+*Santiago Reyes. Geraint Thomas. Rui Costa.*
 
 ---
 
@@ -229,7 +234,7 @@ La segunda parte de la frase era:
 *Tour de Romandia, 28 de abril–4 de mayo de 2019.*
 
 *GC: 1º. Etapa ganada: Thyon 2000 (E4).*
-*+0:12 sobre Müller (SUI/INE). +0:41 sobre Pogačar (SLO/TRK).*
+*+0:10 sobre Thomas (WAL/INE). +0:17 sobre Rui Costa (POR/UAE). +0:59 sobre Gaudu (FRA/GRP).*
 
 ---
 

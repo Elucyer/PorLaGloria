@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 74 — Tour de Romandia I: Fribourg (Prólogo y Etapas 1–2, 28–29 de abril de 2019)
+### Capítulo 74 — Tour de Romandia I: Neuchâtel (Prólogo y Etapas 1–2, 28–29 de abril de 2019)
 
 ---
 
@@ -8,21 +8,21 @@ Suiza en abril tenía una calidad de luz que Santi no había encontrado en ning�
 
 No era el gris húmedo de Flandes ni el azul seco de la Côte d'Azur ni el blanco de alta altitud del Giro. Era una luz intermedia — la luz de un país que todavía no había decidido entre el invierno que terminaba y el verano que comenzaba, y que producía esa claridad particular de los días en que el cielo está limpio pero no es azul intenso sino azul claro, casi blanco en el horizonte, con las montañas al fondo que en esta época del año todavía tenían nieve en las cimas pero ya no en los valles.
 
-Santi llegó a Fribourg el veintiséis de abril.
+Santi llegó a Neuchâtel el veintiséis de abril.
 
-El equipo se instaló en un hotel del centro histórico de la ciudad — el Fribourg de los puentes medievales sobre el río Sarine y las calles empinadas del barrio de las beguinas y la catedral de Saint-Nicolas que dominaba la ciudad con la presencia silenciosa de las catedrales góticas suizas, que no son como las catedrales italianas o francesas sino más reservadas, más verticales, construidas por una gente que necesitaba que Dios estuviera arriba y no a los lados.
+El equipo se instaló en un hotel a orillas del lago — el Neuchâtel de las casas con fachadas rosas y ocres sobre el agua, el casco histórico con su colegiata románica en lo alto de la colina, y el lago que a esta hora de la tarde tenía esa superficie inmóvil de los lagos alpinos cuando el viento no ha llegado todavía y el reflejo de las montañas nevadas del Jura es tan preciso que cuesta saber dónde termina el agua y dónde empieza el cielo.
 
 La reunión del equipo fue la noche del veintisiete.
 
-Ferretti con los perfiles de las cinco etapas y el prólogo. Broeckx ya había corrido el Romandia dos veces. Hoffmann una. Nygaard — el *otro* Nygaard, el joven danés Lars que formaba parte del equipo de Santi y que no era el Nygaard del Jumbo sino el Nygaard del fichaje del año anterior que había llegado como sprinter para las etapas llanas y se había convertido en gregario de montaña a medida que la temporada avanzaba — estaba en su primer Romandia.
+Ferretti con los perfiles de las cinco etapas y el prólogo. Broeckx ya había corrido el Romandia dos veces. Hoffmann una. El joven danés del equipo estaba en su primer Romandia.
 
 — El Romandia — dijo Ferretti — es una carrera de seis días que se decide en uno.
 
 Nadie dijo nada. Era la misma fórmula que había usado para el París-Niza y era también verdad para el Romandia.
 
-— El prólogo es mañana. Tres kilómetros doscientos de contrarreloj urbana por las calles de Fribourg. — Duchêne proyectó el mapa en la pantalla —. Adoquín en los primeros ochocientos metros. Recta larga en el sector central. Subida de cuatrocientos metros al siete por ciento en el kilómetro dos y ocho.
+— El prólogo es mañana. Tres kilómetros cuatrocientos de contrarreloj urbana por las calles de Neuchâtel. — Duchêne proyectó el mapa en la pantalla —. Salida junto al lago. Recta larga en el sector central. Subida de seiscientos metros al cinco por ciento en el kilómetro dos y ocho.
 
-— La subida final es la clave — dijo Duchêne —. Los especialistas del crono pierden ahí lo que ganaron en la recta. Los escaladores recuperan. En un prólogo de tres kilómetros, esos cuatrocientos metros pesan más que en un crono largo.
+— La subida final es la clave — dijo Duchêne —. Los especialistas del crono pierden ahí lo que ganaron en la recta. Los escaladores recuperan. En un prólogo de tres kilómetros, esos seiscientos metros pesan más que en un crono largo.
 
 Santi miró el perfil.
 
@@ -30,17 +30,17 @@ Santi miró el perfil.
 
 Ferretti lo miró.
 
-— En el Romandia, los últimos tres años, el prólogo lo ha ganado siempre alguien que el resto de la carrera no existe. — Una pausa —. Lo que importa del prólogo es cuánto perdés con los candidatos a la GC. Si perdés menos de diez segundos con Müller, estamos bien.
+— En el Romandia, los últimos tres años, el prólogo lo ha ganado siempre alguien que el resto de la carrera no existe. — Una pausa —. Lo que importa del prólogo es cuánto perdés con los candidatos a la GC. Si perdés menos de diez segundos con Thomas, estamos bien.
 
-— ¿Müller?
+— ¿Thomas?
 
-— Stefan Müller. El suizo del Ineos — dijo Duchêne —. Ganó la Vuelta a Suiza el año pasado. Conoce estas carreteras mejor que nadie. En el Romandia siempre ha estado entre los cinco primeros. Este año viene con el equipo construido para él.
+— Geraint Thomas. El galés del Ineos — dijo Duchêne —. Ganó el Tour el año pasado. Conoce estas carreteras de haberlas entrenado durante años viviendo en Mónaco. En el Romandia siempre ha estado entre los favoritos. Este año viene con el equipo construido alrededor de él y de Bernal.
 
 Santi archivó el nombre.
 
-— ¿Y Pogačar?
+— ¿Y Gaudu?
 
-— El esloveno está en el Romandia — confirmó Ferretti —. Segundo en el Algarve, tercero en el París-Niza. Aprende rápido.
+— El francés del Groupama — confirmó Ferretti —. Veintidós años. Ganó una etapa en la Vuelta a España el año pasado. En el Romandia siempre aparecen los franceses jóvenes — las carreteras del Jura son sus carreteras. Aprende rápido.
 
 — Lo sé — dijo Santi.
 
@@ -50,59 +50,49 @@ Ferretti cerró la carpeta.
 
 ---
 
-El prólogo de Fribourg.
+El prólogo de Neuchâtel.
 
-Tres kilómetros doscientos a través del casco histórico — las calles que en la neutralización olían a café y a pastelería y a la humedad específica de los adoquines suizos que absorben el frío de la noche y lo devuelven durante las primeras horas de la mañana.
+Tres kilómetros cuatrocientos a través del casco histórico y por el paseo del lago — las calles que en la neutralización olían a café y a pastelería y a la humedad específica de los adoquines suizos que absorben el frío de la noche y lo devuelven durante las primeras horas de la mañana.
 
 Santi salió el antepenúltimo de los ciento cuarenta y tres corredores.
 
 El orden de salida en el prólogo era el orden inverso del ranking UCI — los mejores salían al final, cuando el tiempo de referencia ya estaba establecido y sabías exactamente cuánto tenías que ganar o cuánto podías perder.
 
-Los ochocientos metros del adoquín: el tipo de superficie que en la contrarreloj penalizaba a los corredores que no sabían mantener la posición aerodinámica en el asfalto irregular. Santi lo había entrenado específicamente en Waregem — el adoquín de las Clásicas de Flandes era el mejor entrenamiento posible para cualquier adoquín del mundo.
+La salida junto al lago: la recta del paseo con el agua a la derecha y las fachadas de la ciudad a la izquierda, el viento sobre el lago que en los primeros kilómetros era de frente y luego de costado cuando la carretera giraba hacia el interior.
 
 La recta larga del sector central: viento de frente, ligero, suficiente para que el disco trasero respondiera a las ráfagas con pequeñas correcciones de dirección. Santi corrigió cada vez sin perder el ritmo.
 
-La subida final: cuatrocientos metros al siete. En el casco de contrarreloj y la posición aerodinámica, el siete por ciento era el tipo de pendiente que obligaba a levantarse del sillín — o a quedarse y perder la potencia — o a encontrar ese punto intermedio que no era ni lo uno ni lo otro sino el gesto específico del corredor que ha subido en posición aerodinámica los suficientes miles de metros de entrenamiento como para que la posición sea parte del cuerpo.
+La subida final: seiscientos metros al cinco. En el casco de contrarreloj y la posición aerodinámica, el cinco por ciento era manejable — el tipo de pendiente que no obligaba a levantarse del sillín sino a encontrar ese punto donde la posición aerodinámica y la potencia de subida se equilibraban.
 
-Santi encontró ese punto en el metro ochenta de la subida.
+Cuatro minutos y cincuenta y seis segundos.
 
-Doce minutos y cuatro segundos.
+Cuarto del día, a ocho segundos del ganador — Jan Tratnik del Bahrain-Merida, un especialista del crono que en los prólogos de menos de cinco kilómetros encontraba una eficiencia que los climbers no podían igualar y que en el primer puerto de la primera etapa iba a perder ese tiempo y el doble más. Segundo Thomas, a cuatro segundos del ganador. Tercero Roglič, a seis. Gaudu sexto, a doce.
 
-Tercero del día, a seis segundos del ganador — un suizo local que en los prólogos de tres kilómetros era imbatible y que en el primer puerto de la primera etapa iba a desaparecer del grupo de GC con la misma inevitabilidad con que desaparecía siempre. Segundo Müller, a tres segundos del ganador. Pogačar cuarto, a ocho.
-
-GC tras el prólogo: Santi tercero, a seis segundos del suizo de la crono y a tres de Müller.
+GC tras el prólogo: Santi cuarto, a ocho segundos de Tratnik y a cuatro de Thomas.
 
 Bien.
 
 ---
 
-La etapa uno fue ciento cuarenta y ocho kilómetros de Fribourg hacia el norte del cantón — un recorrido por la meseta suiza que geográficamente era el territorio entre los Alpes y el Jura, el paisaje de praderas y granjas y lagos pequeños que en abril tenía el verde de la primavera y el agua de la nieve derretida en los riachuelos que cruzaban la carretera cada cinco kilómetros.
+La etapa uno fue ciento cuarenta y siete kilómetros de Neuchâtel a La Chaux-de-Fonds — el pelotón subiendo desde el lago hacia las mesetas del Jura, el paisaje de praderas y granjas y pueblos relojeros que en abril tenía el verde de la primavera y el agua de la nieve derretida en los riachuelos que cruzaban la carretera cada cinco kilómetros.
 
-Era una etapa de sprint.
+La Chaux-de-Fonds estaba a novecientos metros de altitud en el corazón del Jura. La llegada no era en sprint llano — era una ciudad de calles anchas y trazado en cuadrícula, el resultado de haberse reconstruido después de un incendio en el siglo diecinueve, y la llegada era en una recta larga con una inclinación final del cuatro por ciento que favorecía a los corredores con potencia en la subida.
 
-No porque el perfil fuera plano — había dos puertos de tercera categoría en el kilómetro cuarenta y el kilómetro ciento diez, ninguno suficientemente largo para producir diferencias en la GC. Era una etapa de sprint porque los velocistas que habían llegado al Romandia sabían que tenían dos oportunidades de ganar — la primera y la segunda etapa — antes de que las montañas del Jura y luego del Valais convirtieran la carrera en otro deporte.
+Primavera Roglič se aprovechó de eso.
 
-Santi rodó.
+El esloveno del Jumbo-Visma atacó en los últimos cuatrocientos metros — no el sprint de los velocistas puros sino el sprint del escalador que en los últimos cien metros tiene más piernas que cualquiera que no sea un climber de verdad. Era Roglič en el terreno donde se sentía cómodo: ni llano puro ni montaña, sino ese territorio intermedio donde su potencia explosiva convertía los últimos metros en una contrarreloj de bolsillo.
 
-Los dos puertos de tercera: subió en el grupo de GC, no gastó, llegó a la cima con los favoritos sin haber hecho nada que no fuera estar ahí. Era la economía del corredor que sabe que el día no le pertenece — que hay días que son del sprint y días que son de la montaña, y que confundir los dos cuesta más de lo que vale.
+Santi llegó cuarto en el mismo grupo. Thomas tercero.
 
-En el kilómetro ciento treinta y dos, Broeckx se puso a su rueda sin que nadie se lo pidiera.
-
-No hablaron.
-
-Era el gesto del gregario que entiende cuál es su trabajo en la etapa que no es la etapa del líder: estar ahí, cubrir, asegurarse de que el líder llega a la línea en el grupo de GC sin accidentes, sin caídas, sin el tipo de mala suerte que en las etapas de sprint puede costarle treinta segundos a un candidato de GC en el momento equivocado.
-
-El velocista del Deceuninck ganó el sprint con veinte metros de ventaja. Santi llegó en el pelotón, posición cuarenta y uno.
-
-GC sin cambios.
+GC tras la etapa uno: Roglič primero — las bonificaciones del sprint lo ponían al frente, por encima de Tratnik que conservaba el maillot de líder del prólogo por diferencia de tiempo total. Thomas segundo a cuatro segundos de Tratnik. Santi cuarto.
 
 ---
 
-La etapa dos fue ciento sesenta y tres kilómetros hacia el sur — el pelotón girando hacia el Jura, las primeras colinas del cantón de Vaud, el paisaje que empezaba a inclinarse con seriedad después de los kilómetros de meseta plana del día anterior.
+La etapa dos fue ciento sesenta kilómetros de Neuchâtel al sur — el pelotón girando hacia el Jura, las primeras colinas del cantón de Vaud, el paisaje que empezaba a inclinarse con seriedad.
 
-Había un puerto de segunda categoría en el kilómetro ciento veinticinco: el Col du Marchairuz. Trece kilómetros al cinco. No era el tipo de puerto que decidía una carrera de seis días, pero era el tipo de puerto que en el Romandia funcionaba como el primer test — el momento donde los equipos mostraban quién tenía gregarios reales en la montaña y quién venía con la ilusión de la montaña sin el equipo para sostenerla.
+Había un puerto de segunda categoría en el kilómetro ciento veinte: el Col du Mollendruz. Quince kilómetros al cinco y medio. No era el tipo de puerto que decidía una carrera de seis días, pero era el tipo de puerto que en el Romandia funcionaba como el primer test real — el momento donde los equipos mostraban quién tenía gregarios de montaña reales y quién venía con la ilusión de la montaña sin el equipo para sostenerla.
 
-El Ineos de Müller puso el tren en el kilómetro uno del Marchairuz.
+El Ineos de Thomas puso el tren en el kilómetro uno del Mollendruz.
 
 No para atacar — para seleccionar. El tren del equipo que tiene cuatro gregarios de montaña reales en una carrera donde la mayoría de los equipos tiene dos, y que puede darse el lujo de quemar a uno cada puerto antes de llegar a la montaña decisiva.
 
@@ -118,21 +108,19 @@ Broeckx, a la rueda de Santi, aguantó hasta el kilómetro ocho. Luego llegó al
 
 Hoffmann aguantó hasta el kilómetro once. Dos kilómetros para la cima.
 
-El grupo de GC llegó a la cima del Marchairuz con trece corredores: Santi, Müller, Pogačar, tres gregarios del Ineos, dos del Jumbo, el eslovaco del Bahrain que en el análisis de Ferretti aparecía como comodín, y cuatro más que iban a perder contacto en la bajada o en el sprint de Nyon donde terminaba la etapa.
+El grupo de GC llegó a la cima del Mollendruz con trece corredores: Santi, Thomas, Roglič, Gaudu, tres gregarios del Ineos, dos del Jumbo, Rui Costa del UAE que en el análisis de Ferretti aparecía como comodín, y cuatro más que iban a perder contacto en la bajada.
 
-Müller estaba a la rueda de Santi.
+Thomas estaba a la rueda de Santi.
 
-Pogačar estaba detrás de Müller.
+Gaudu estaba detrás de Thomas.
 
-Era el orden del día — el orden en que los tres candidatos principales habían llegado a la cima del primer puerto real del Romandia, y que Ferretti habría interpretado como: *el suizo nos marca, el esloveno nos estudia.*
+Era el orden del día — el orden en que los candidatos principales habían llegado a la cima del primer puerto real del Romandia, y que Ferretti habría interpretado como: *el galés nos marca, el francés nos estudia.*
 
-La bajada del Marchairuz fue rápida y sin incidentes.
+La bajada del Mollendruz fue rápida. Stefan Küng del Groupama atacó en el descenso — el suizo que en las carreras de su país siempre encontraba ese tramo técnico donde sacaba veinte segundos al grupo y los usaba para llegar al sprint final con margen suficiente para aguantar.
 
-En la recta final de Nyon, el eslovaco del Bahrain sorprendió al grupo de GC con un sprint que nadie esperaba de un escalador y que en la etapa equivalía a eso — una sorpresa, un resultado inesperado que el día después no iba a aparecer en ningún análisis táctico porque un eslovaco de escalada ganando un sprint de cinco es el tipo de resultado que el análisis descarta como ruido.
+Küng ganó la etapa en la llegada a Cossonay con cuarenta y cuatro segundos de ventaja sobre el grupo de GC.
 
-GC tras la etapa dos: el suizo del prólogo primero. Müller segundo a tres segundos. Santi tercero a seis.
-
-Igual que después del prólogo.
+GC tras la etapa dos: Tratnik primero. Thomas segundo a cuatro segundos. Roglič tercero a seis. Santi cuarto a ocho.
 
 La carrera seguía igual.
 
@@ -140,7 +128,7 @@ Hasta que no siguiera.
 
 ---
 
-Esa noche, en el hotel de Nyon con el lago Lemán afuera y las luces del lado francés reflejadas en el agua y el Mont Blanc invisible en la oscuridad pero presente en el fondo del cielo del sur, Santi llamó a Medellín.
+Esa noche, en el hotel de Cossonay — sin lago, sin vistas, el hotel de carretera suizo que olía a madera y a lana y que era exactamente lo que era: el alojamiento del equipo entre dos etapas de montaña —, Santi llamó a Medellín.
 
 Hernando respondió.
 
@@ -148,7 +136,7 @@ Hernando respondió.
 
 — Bien. Tercero.
 
-— Vi el Marchairuz.
+— Vi el Mollendruz.
 
 — ¿Y?
 
@@ -186,15 +174,15 @@ Fue la palabra de siempre. El tono de siempre. Nada en la voz de Hernando que Sa
 
 Y colgaron.
 
-Del lado de Santi: el lago Lemán, el Mont Blanc invisible, las luces de Francia en el agua.
+Del lado de Santi: la ventana del hotel de Cossonay, el Jura al norte, la oscuridad del valle.
 
 Del lado de Hernando: el apartamento de Laureles, Carmen que fue a la cocina a buscar el té que el oncólogo había recomendado para las náuseas, las palomas del vecino del cuarto piso ya quietas a esta hora, y la televisión apagada porque Hernando había apagado la televisión cuando había empezado a hablar con Santi y no la había vuelto a encender.
 
 ---
 
-*Tour de Romandia — Prólogo: Fribourg. 3º, +0:06. GC: 3º.*
-*Etapa 1: Meseta de Vaud. GC sin cambios.*
-*Etapa 2: Col du Marchairuz. GC: 3º, +0:06 de Müller.*
+*Tour de Romandia — Prólogo: Neuchâtel. Tratnik gana. 4º, +0:08. GC: 4º.*
+*Etapa 1: Neuchâtel–La Chaux-de-Fonds. Roglič gana. GC: 4º, +0:08 de Thomas.*
+*Etapa 2: Col du Mollendruz. Küng gana. GC: 4º, +0:08 de Thomas.*
 
 *Thyon 2000: jueves 2 de mayo.*
 

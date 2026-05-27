@@ -1,0 +1,276 @@
+# REFERENCIA — Ciclistas Contemporáneos de Santi
+## *Por la Gloria* — Palmarés y contexto narrativo (2015–2033)
+
+> **Uso:** Este documento permite situar a Santiago Reyes en el pelotón real de su época. Todos los resultados hasta 2025 son reales o verificados. Los años 2026–2033 son proyecciones narrativas marcadas como `[FICCIÓN]`. Los rivales reales no se "alteran" — Santi compite *junto a* ellos, no *en lugar de* ellos.
+
+---
+
+## NOTA DE LECTURA
+
+La cronología de Santi es:
+- **2018** — Giro, 2.º (Froome gana)
+- **2019** — Giro, **1.º** *(pico narrativo #1)*
+- **2021** — Vuelta a España, **1.º**
+- **2022** — Tour de France, **2.º** (pierde la crono final)
+- **2023** — Giro, **1.º** (2.ª vez)
+- **2024** — Tour, abandono en etapa 14 (accidente)
+- **2026** — Tour, **1.º** (única carrera de la temporada)
+- **2027/2028** — Tour, **1.º** (dos consecutivos más)
+- **2029** — Tour, accidente en el Galibier
+- **2032** — Triple Corona: Giro + Tour + Vuelta *(pico narrativo #2)*
+- **2033** — Retiro en el Lombardía
+
+---
+
+## I. TADEJ POGAČAR
+**Nacido:** 21/09/1998 — Eslovenia
+**Equipos:** ROG-Ljubljana (2017, amateur) → UAE Team Emirates (2019–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2017 | ROG-Ljubljana | Amateur. Sin victorias UCI. |
+| 2018 | Ljubljana Gusto Xaurum | Tour del Porvenir (U23). Giro del Friuli 2.2. |
+| 2019 | UAE Team Emirates | Volta ao Algarve (general), Tour de California (general), **Vuelta a España 3.º**, Jeux de la Jeunesse. Debut WorldTour. |
+| 2020 | UAE Team Emirates | **Tour de France 1.º** (primero en ganar en debut absoluto desde Laurent Fignon 1983). 3 etapas + montaña + jóvenes. Strade Bianche 3.º. |
+| 2021 | UAE Team Emirates | **Tour de France 1.º** (2 etapas + jóvenes). **Il Lombardia 1.º**. **Liège-Bastogne-Liège 1.º**. Tirreno-Adriatico (general). Flèche Wallonne 1.º. |
+| 2022 | UAE Team Emirates | **Tour de France 2.º** (Vingegaard gana). **Il Lombardia 1.º** (2.º consecutivo). **Strade Bianche 1.º**. Tour des Émirats (general). UAE Tour (general). |
+| 2023 | UAE Team Emirates | **Tour de France 2.º** (Vingegaard gana de nuevo). **Il Lombardia 1.º** (3.º consecutivo). **Tour of Flanders 1.º** (su primer Monumento de clásicas). **Liège-Bastogne-Liège 2.º**. Strade Bianche 2.º. |
+| 2024 | UAE Team Emirates | **Giro de Italia 1.º** (debut en el Giro, 6 etapas). **Tour de France 1.º** (5 etapas). **Il Lombardia 1.º** (4.º consecutivo). **Tour of Flanders 1.º**. **Liège-Bastogne-Liège 1.º**. **Strade Bianche 1.º**. Vuelta a España no disputa. **Campeón del Mundo en ruta 2024 (Zúrich)**. |
+| 2025 | UAE Team Emirates | **Tour de France 1.º** (3 etapas). **Il Lombardia 1.º** (5.º consecutivo). **Liège-Bastogne-Liège 1.º**. Strade Bianche 1.º. **Campeón del Mundo en ruta 2025 (Kigali)**. Criterium du Dauphiné (general). |
+| 2026 | UAE Team Emirates | **Milán-San Remo 1.º**. **Tour de France 2.º** *(Santi gana — FICCIÓN)*. [Temporada en construcción] |
+| 2027–2033 | UAE Team Emirates | `[FICCIÓN]` Continúa siendo el rival principal de Santi en los Tours 2027 y 2028. Pugna entre los dos domina la narrativa del pelotón. |
+
+**Nota narrativa:** Pogačar es el rival de referencia de Santi en el Tour. En la ficción de la novela, los Tours 2026-2028 son Santi vs. Pogačar. La batalla más táctica es el Tour 2028. Pogačar tiene 30 años en 2028 — en el pico de su madurez táctica.
+
+---
+
+## II. JONAS VINGEGAARD
+**Nacido:** 10/01/1996 — Dinamarca
+**Equipos:** Jumbo-Visma / Visma-Lease a Bike (2019–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2019 | Jumbo-Visma | Tour de Pologne (etapa 6). Debut WorldTour. |
+| 2020 | Jumbo-Visma | Vuelta a España — domestique de Roglič. Sin victorias individuales. |
+| 2021 | Jumbo-Visma | **Tour de France 2.º** (detrás de Pogačar, primera gran actuación). Coppi e Bartali (general + 2 etapas). UAE Tour (etapa 5). Pais Vasco 2.º. |
+| 2022 | Jumbo-Visma | **Tour de France 1.º** (2 etapas + lunares). Critérium du Dauphiné (etapa reina). |
+| 2023 | Jumbo-Visma | **Tour de France 1.º** (2.º consecutivo, 1 etapa). **Vuelta a España 2.º**. Pais Vasco (general + 3 etapas). Critérium du Dauphiné (general + 2 etapas). O Gran Camiño (general + 3 etapas). |
+| 2024 | Visma-Lease a Bike | **Tour de France 2.º** (detrás de Pogačar — regresa tras accidente grave de entrenamiento en abril 2024). Tirreno-Adriatico (general + 2 etapas). Tour de Pologne (general). |
+| 2025 | Visma-Lease a Bike | **Tour de France 2.º**. Continúa como rival directo de Pogačar. |
+| 2026–2033 | Visma-Lease a Bike | `[FICCIÓN]` Competidor de Santi en los Tours. En 2032 tiene 36 años — etapa final de carrera. |
+
+**Nota narrativa:** Vingegaard es el tercer elemento del triángulo Pogačar-Vingegaard-Santi en los Tours 2026-2028. Su estilo más conservador y defensivo contrasta con el instinto atacante de Pogačar y la frialdad táctica de Santi.
+
+---
+
+## III. REMCO EVENEPOEL
+**Nacido:** 25/01/2000 — Bélgica
+**Equipos:** Deceuninck-Quick-Step / Soudal-Quick-Step (2019–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2019 | Deceuninck–QS | **Clásica de San Sebastián 1.º** (el más joven en ganar una WorldTour a los 19 años). Campeonato Europeo CRI. |
+| 2020 | Deceuninck–QS | GP Harelbeke 1.º. Volta a Burgos (general). Caída en il Lombardia — rotura de pelvis. Temporada truncada. |
+| 2021 | Deceuninck–QS | Regreso tras lesión. Vuelta a Bélgica (general). Clásica de San Sebastián 2.º. Vuelta a España — debut, abandona. |
+| 2022 | Deceuninck–QS | **Vuelta a España 1.º** (primer belga en ganar un Grand Tour desde 1978). **Liège-Bastogne-Liège 1.º**. **Campeonato del Mundo en ruta 1.º** (Wollongong). **Clásica de San Sebastián 1.º**. Volta ao Algarve (general). |
+| 2023 | Soudal–QS | **Liège-Bastogne-Liège 1.º** (2.º consecutivo). **Campeonato del Mundo CRI 1.º** (Glasgow). Vuelta a España (3 etapas + montaña). Clásica de San Sebastián 1.º. Vuelta a Bélgica (general). |
+| 2024 | Soudal–QS | **Juegos Olímpicos París: oro en ruta + oro en CRI** (único en ganar ambas en los mismos JJ.OO.). **Tour de France 3.º** (debut en el Tour). Campeonato del Mundo CRI. |
+| 2025 | Soudal–QS | Continúa en el circuito WorldTour con foco en clásicas y Grand Tours. |
+| 2026–2033 | Soudal–QS | `[FICCIÓN]` Rival de Santi en el Tour (tienen la misma edad, nacidos ambos en 2000). La dualidad Santi-Remco como generación es un subtexto narrativo posible del Arco V. |
+
+**Nota narrativa:** Evenepoel y Santi tienen exactamente la misma edad (nacidos en 2000). El contraste entre los dos — el belga mediático, extrovertido, producto de un sistema; el colombiano reservado, forjado en los puertos de Antioquia — puede ser un hilo narrativo en los arcos tardíos.
+
+---
+
+## IV. PRIMOŽ ROGLIČ
+**Nacido:** 29/10/1989 — Eslovenia
+**Equipos:** LottoNL-Jumbo/Jumbo-Visma (2016–2023) → Bora-Hansgrohe (2024–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2016 | LottoNL-Jumbo | Debut WorldTour. Giro de Italia (etapa 9, CRI). Volta ao Algarve (general). |
+| 2017 | LottoNL-Jumbo | **Volta ao Algarve** (general). Tour de Romandie 3.º (etapa CRI). **Tour de France** (etapa 17 — primer esloveno en ganar etapa del Tour). Vuelta a España 7.º. |
+| 2018 | LottoNL-Jumbo | **Tour del País Vasco** (general). **Tour de Romandie** (general). **Tour de Eslovenia** (general). **Tour de France 4.º**. Vuelta a España 4.º. |
+| 2019 | Jumbo-Visma | **Tirreno-Adriático** (general). **Tour de Romandie** (general). **Tour de France 2.º** (detrás de Bernal). **Giro de Italia** — rival principal de Santi *(en la novela: 3.º, detrás de Santi y Nibali)*. **Vuelta a España 1.º** (primer Grand Tour). |
+| 2020 | Jumbo-Visma | **Vuelta a España 1.º** (2.ª consecutiva). **Liège-Bastogne-Liège 1.º**. **Tour de France 2.º** (pierde la crono final ante Pogačar en segundos — el "Planche des Belles Filles"). Vuelta a España (general). Vélo d'Or. |
+| 2021 | Jumbo-Visma | **Vuelta a España 1.º** (3.ª consecutiva). Giro de Italia 3.º (abandona). Tour de France — abandona por caída. Critérium du Dauphiné (general). |
+| 2022 | Jumbo-Visma | Tour de France 2.º (etapa). Vuelta a España — abandona. Giro de Italia — abandona. |
+| 2023 | Jumbo-Visma | **Giro de Italia 1.º** (bate a G. Thomas). **Tirreno-Adriatico** (general + 3 etapas). |
+| 2024 | Bora-Hansgrohe | **Vuelta a España 1.º** (4.ª — iguala el récord de Heras). Campeonato de Eslovenia. |
+| 2025+ | Bora-Hansgrohe | `[FICCIÓN]` En el final de carrera. Puede aparecer como figura veterana en los arcos IV-V. |
+
+**Nota narrativa:** Roglič es el rival de Santi en el Giro 2019 — el más peligroso en contrarreloj. El Ferretti de la novela lo menciona antes de la Etapa 9 (CRI San Marino): *"Roglič destruye en el llano. La carrera se decide en la montaña."*
+
+---
+
+## V. EGAN BERNAL
+**Nacido:** 13/01/1997 — Colombia
+**Equipos:** Androni Giocattoli (2016–2017) → Team Sky/Ineos Grenadiers (2018–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2016 | Androni | Tour de Táchira. Debut continental. |
+| 2017 | Androni / Sky | **Tour del Porvenir** (U23). Tour de Saboya. Tour de Sibiu. Fichado por el Sky para 2018. |
+| 2018 | Team Sky | **Tour de California** (WorldTour general). Paris-Nice (ayuda a Thomas). Tour de Suiza (general) [nota: se atribuye a este año según algunas fuentes, verificar]. |
+| 2019 | Ineos | **Tour de France 1.º** (el más joven desde Fignon 1983; primer latinoamericano en ganar el Tour). **Paris-Nice** (general). Tour de Suiza (general). Gran Piemonte. |
+| 2020 | Ineos Grenadiers | Tour de France — abandona (lesión de espalda). |
+| 2021 | Ineos Grenadiers | **Giro de Italia 1.º** (7 etapas, dominio absoluto). |
+| 2022 | Ineos Grenadiers | Accidente el 24 de enero (choque con autobús a 50 km/h). Temporada perdida. Lesiones múltiples. |
+| 2023 | Ineos Grenadiers | Regreso al pelotón, sin grandes victorias. |
+| 2024–2025 | Ineos Grenadiers | Recuperación progresiva. |
+
+**Nota narrativa:** Bernal gana el Tour 2019 en la realidad — el mismo año que Santi gana el Giro en la ficción. Son exactamente contemporáneos colombianos (Bernal 22 años, Santi 19). Esa dualidad — los dos colombianos en la cima al mismo tiempo — es parte del trasfondo narrativo del Arco II. En la ficción, cuando Colombia celebra el Tour de Bernal, Santi ya ha ganado el Giro y el teléfono de su padre no contestó en el podio de Verona.
+
+---
+
+## VI. RICHARD CARAPAZ
+**Nacido:** 29/05/1993 — Ecuador
+**Equipos:** Movistar (2016–2019) → Ineos Grenadiers (2020–2023) → EF Education-EasyPost (2024–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2016–2017 | Movistar | Desarrollo en el equipo. Sin victorias WorldTour relevantes. |
+| 2018 | Movistar | **Vuelta a Asturias** (general). **Giro de Italia** (etapa 8, Montevergine) — primera victoria en Grand Tour. Giro 5.º general. *(En la novela: Santi lo observa ganar y lo "registra" como futuro rival)* |
+| 2019 | Movistar | **Giro de Italia 1.º** (ganador real — en la ficción queda 4.º detrás de Santi). **Vuelta a Asturias** (general). |
+| 2020 | Ineos Grenadiers | **Tour de France 3.º**. **Vuelta a España 2.º**. Juegos Olímpicos Tokio (aplazados a 2021). |
+| 2021 | Ineos Grenadiers | **Juegos Olímpicos Tokio: oro en ruta** (primer ecuatoriano en ganar medalla olímpica). Tour de Suiza (general + etapa). |
+| 2022 | Ineos Grenadiers | **Giro de Italia 2.º**. Vuelta a España (3 etapas). |
+| 2023 | Ineos Grenadiers | Vuelta a España (etapas). Tour de France (top 10). |
+| 2024 | EF Education-EasyPost | **Tour de France** (etapa — primer ecuatoriano en ganar etapa del Tour en el maillot amarillo virtual). |
+| 2025+ | EF Education | `[FICCIÓN]` Etapa final de carrera. Figura histórica del ciclismo latinoamericano. |
+
+**Nota narrativa:** Carapaz es el "fantasma" del Giro 2019 — ganó en la realidad, en la ficción es el corredor que Santi tiene que neutralizar en Courmayeur. La relación entre Santi y Carapaz en los Arcos II-III puede tener dimensión de reconocimiento mutuo entre corredores latinoamericanos en Europa.
+
+---
+
+## VII. CHRIS FROOME
+**Nacido:** 20/05/1985 — Kenia/Gran Bretaña
+**Equipos:** Team Sky/Ineos (hasta 2020) → Israel Premier Tech (2021–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2015 | Team Sky | **Tour de France 1.º** (3.º Tour). **Vuelta a España 1.º**. |
+| 2016 | Team Sky | **Tour de France 1.º** (4.º Tour). Vuelta a España 3.º. |
+| 2017 | Team Sky | **Tour de France 1.º** (5.º Tour). **Vuelta a España 1.º**. Giro de Italia — abandona. |
+| 2018 | Team Sky | **Giro de Italia 1.º** (victoria histórica con ataque de 80 km en el Finestre). *(En la novela: gana el Giro, con Santi 2.º)*. Vuelta a España — abandona. Tour de France — abandona. |
+| 2019 | Team Sky | Accidente grave en reconocimiento del Critérium du Dauphiné (junio 2019). Temporada perdida. Costillas rotas, esternón, fémur, cadera. |
+| 2020 | Ineos | Tour de France — abandona (primer Gran Vuelta tras el accidente). |
+| 2021–2025 | Israel Premier Tech | Sin victorias Grand Tour. Regreso progresivo. |
+
+**Nota narrativa:** Froome es la figura dominante del período formativo de Santi. En el Arco I, los grandes ciclistas que Santi ve en televisión son Froome y Nairo. En el Giro 2018, Santi lo sigue 70 km en el Finestre y aprende lo que significa pelear con un campeón maduro.
+
+---
+
+## VIII. GERAINT THOMAS
+**Nacido:** 25/05/1986 — Gales
+**Equipos:** Team Sky/Ineos Grenadiers (2010–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2015–2017 | Team Sky | Gregario de lujo de Froome. Tour de France (abandona 2015, 5.º 2017). Paris-Nice (general 2016). |
+| 2018 | Team Sky | **Tour de France 1.º** (victoria sorpresa sobre Dumoulin y Froome). **Critérium du Dauphiné** (general). |
+| 2019 | Team Sky/Ineos | **Tour de France 2.º** (detrás de Bernal). Giro de Italia — abandona. |
+| 2020–2021 | Ineos | Giro de Italia 3.º (2020). Tour de France 4.º (2021). |
+| 2022 | Ineos | Giro de Italia 2.º. |
+| 2023 | Ineos | **Giro de Italia 2.º** (detrás de Roglič). Tour de France 4.º. |
+| 2024–2025 | Ineos | Final de carrera. Giro de Italia top 5. |
+
+---
+
+## IX. TOM DUMOULIN
+**Nacido:** 11/11/1990 — Países Bajos
+**Equipos:** Giant-Alpecin/Sunweb (hasta 2020) → Jumbo-Visma (2021–2022) → Retirado
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2015 | Giant | Vuelta a España (etapa CRI). |
+| 2016 | Giant | Giro de Italia (etapas CRI). Vuelta a España (etapa CRI). *(El Giro 2016 lo gana Nibali; Dumoulin gana etapas pero no la GC.)* |
+| 2017 | Sunweb | **Giro de Italia 1.º** (primer neerlandés en ganar el Giro desde Rooks 1988). Tour de France 2.º. |
+| 2018 | Sunweb | **Tour de France 2.º** (detrás de G. Thomas). **Giro de Italia 2.º** (detrás de Froome). CRI Mundial 1.º. *(En la novela: abandona en la E4 por caída — dato real)* |
+| 2019 | Sunweb | **Giro de Italia** — abandona en E4 por caída (dato real). Tour de France — no participa. |
+| 2020 | Sunweb | Temporada complicada por lesiones. |
+| 2021 | Jumbo-Visma | Vuelta a España 2.º. Anuncia su retiro temporal (diciembre 2021). |
+| 2022 | Retirado | Retiro definitivo. |
+
+**Nota narrativa:** Dumoulin es el nombre que el pelotón pronuncia antes del Giro 2019 — el gran favorito que cae en la Etapa 4. Su abandono reequilibra la carrera y abre el espacio que Santi va a ocupar.
+
+---
+
+## X. SIMON YATES
+**Nacido:** 07/08/1992 — Gran Bretaña
+**Equipos:** Mitchelton-Scott / BikeExchange / Jayco-AlUla (2014–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2016 | Mitchelton | Vuelta a España (etapas). |
+| 2017 | Mitchelton | Vuelta a España (etapas, top 5). |
+| 2018 | Mitchelton | **Giro de Italia** — lidera 13 etapas con la maglia rosa, colapsa en E18 y termina 11.º. **Vuelta a España 1.º** (recuperación histórica 4 meses después del Giro). *(En la novela: lleva la maglia rosa hasta E18, cuando Santi la toma)* |
+| 2019 | Mitchelton | Giro de Italia 2.º. Vuelta a España (etapas). |
+| 2020 | Mitchelton | Tour de France — abandona. Vuelta a España (etapas). |
+| 2021 | BikeExchange | Giro de Italia (etapas). Vuelta a España (etapas). |
+| 2022 | BikeExchange | Giro de Italia (etapas). Vuelta a España (etapas). |
+| 2023 | Jayco-AlUla | Giro de Italia (etapas). |
+| 2024–2025 | Jayco-AlUla | Competidor sólido en Grand Tours. Sin grandes GC. |
+
+---
+
+## TABLA RESUMEN — GRANDES VUELTAS (Ganadores reales vs. ficción)
+
+| Año | Giro de Italia | Tour de France | Vuelta a España |
+|-----|---------------|----------------|-----------------|
+| 2015 | Contador | **Froome** | **Froome** |
+| 2016 | Nibali | **Froome** | Quintana |
+| 2017 | **Dumoulin** | **Froome** | **Froome** |
+| 2018 | **Froome** *(Santi 2.º)* | **G. Thomas** | **S. Yates** |
+| 2019 | **SANTI** *(Carapaz en realidad)* | **Bernal** | **Roglič** |
+| 2020 | Geoghegan Hart | **Pogačar** | **Roglič** |
+| 2021 | **Bernal** | **Pogačar** | **SANTI** *(Roglič en realidad)* |
+| 2022 | Carapaz | **Vingegaard** | **Evenepoel** |
+| 2023 | **Roglič** | **Vingegaard** | Kuss |
+| 2024 | **Pogačar** | **Pogačar** | **Roglič** |
+| 2025 | Sintetik/Proyección | **Pogačar** | — |
+| 2026 | — | **SANTI** `[FICCIÓN]` | — |
+| 2027 | — | **SANTI** `[FICCIÓN]` | — |
+| 2028 | — | **SANTI** `[FICCIÓN]` | — |
+| 2032 | **SANTI** `[FICCIÓN]` | **SANTI** `[FICCIÓN]` | **SANTI** `[FICCIÓN]` (Triple Corona) |
+
+*(Las celdas en negrita sin `[FICCIÓN]` son resultados reales confirmados. Las celdas con `[FICCIÓN]` son adaptaciones narrativas de la novela.)*
+
+---
+
+## MONUMENTOS — REFERENCIA RÁPIDA (2018–2025)
+
+| Monumento | 2018 | 2019 | 2020 | 2021 | 2022 | 2023 | 2024 | 2025 |
+|-----------|------|------|------|------|------|------|------|------|
+| Milán-San Remo | Kwiatkowski | Kwiatkowski | Stuyven | Caleb Ewan | Matej Mohorič | Matej Mohorič | Pogačar | — |
+| Tour de Flandes | Niki Terpstra | Alberto Bettiol | Van Aert | Pogačar* | Van der Poel | **Pogačar** | **Pogačar** | — |
+| París-Roubaix | Peter Sagan | Philippe Gilbert | — (cancelada) | Colbrelli | Van der Poel | Van der Poel | Mathieu VdP | — |
+| Lieja-Bastoña-Lieja | Bob Jungels | Jakob Fuglsang | **Roglič** | **Pogačar** | **Evenepoel** | **Evenepoel** | **Pogačar** | **Pogačar** |
+| Il Lombardia | Enric Mas | Bauke Mollema | Geoghegan Hart | **Pogačar** | **Pogačar** | **Pogačar** | **Pogačar** | **Pogačar** |
+
+**(Pogačar en Flandes 2021: en realidad fue Van der Poel. Corrección: Pogačar gana Flandes 2023 por primera vez.)**
+
+---
+
+## NAIRO QUINTANA — REFERENCIA ESPECIAL
+
+> La BIBLIA menciona que Nairo Quintana (ficcionado) aparece en el Arco IV en el ocaso de su carrera y le dice algo a Santi que cambia cómo corre el Giro 2023.
+
+**Nacido:** 04/02/1990 — Colombia
+**Equipos:** Movistar (2012–2021) → Arkéa-Samsic (2022–)
+
+| Año | Victorias destacadas |
+|-----|---------------------|
+| 2014 | **Giro de Italia 1.º**. Tour de France 2.º. |
+| 2015 | **Vuelta a España 1.º**. Tour de France 2.º. |
+| 2016 | Tour de France 2.º. |
+| 2017 | **Vuelta a España 1.º**. |
+| 2019 | Tour de France — top 10 con polémicas. |
+| 2022 | Vuelta a España 6.º → descalificado por tramadol. Caso de dopaje. |
+| 2023+ | Carrera en declive. |
+
+**Nota narrativa (Arco IV):** La conversación Nairo-Santi en 2023 debe cargarse de todo el peso de lo que Nairo nunca terminó de ganar. Nairo llegó dos veces 2.º en el Tour. Santi, que en ese momento ya tiene una Vuelta y un Giro, escucha a un hombre que sabe exactamente qué se siente cuando el Tour se escapa.
+
+---
+
+*Documento creado mayo 2026. Datos reales hasta agosto 2025 (fecha de corte del modelo). Años 2026+ marcados como `[FICCIÓN]`.*
