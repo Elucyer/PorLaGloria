@@ -684,13 +684,13 @@ Afuera, en algún lugar del centro histórico de Verona, el campeón del Giro di
 
 *Giro di Italia 2019.*
 
-*Etapa 21 (CRI Verona, 17 km): Haga gana la etapa. Nibali 9º +0:23. Roglič 10º +0:26. Santi llega en el tiempo de su clase.*
+*Etapa 21 (CRI Verona, 17 km): Roglič gana la etapa. Santi llega en el tiempo de su clase.*
 
 *GC FINAL:*
 *1º — Santiago Reyes (COL / FCV-Procycling)*
 *2º — Vincenzo Nibali (ITA / Bahrain-Merida) +0:56*
 *3º — Primož Roglič (SLO / Jumbo-Visma) +1:55*
-*4º — Richard Carapaz (ECU / Movistar) +3:00 approx.*
+*4º — Richard Carapaz (ECU / Movistar) +3:00*
 
 *Maglia Rosa: Santiago Reyes. Maglia Bianca: Santiago Reyes. Etapas ganadas: E13, E14, E16.*
 

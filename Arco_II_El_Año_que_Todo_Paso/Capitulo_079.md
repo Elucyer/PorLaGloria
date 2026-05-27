@@ -134,7 +134,7 @@ Carmen fue a decir algo y Hernando levantó una mano. No para callarla — para 
 
 Carmen lo miró.
 
-— Bien — repitió Hernando —. Un treinta y ocho en un crono de treinta y cinco kilómetros con subida. La montaña va a compensar eso.
+— Bien — repitió Hernando —. Un treinta y ocho en un crono de treinta y cuatro kilómetros y ochocientos metros con subida. La montaña va a compensar eso.
 
 — ¿Estás seguro?
 
@@ -153,9 +153,14 @@ Ya sabía lo que necesitaba saber.
 *Giro de Italia 2019 — Primera semana.*
 
 *Etapas 5–8: GC sin cambios. Maglia Rosa: Valerio Conti (UAE, escapada).*
-*Etapa 9 (CRI San Marino): Roglič gana. Santi décimo, +1:38 de Roglič.*
-*GC favoritos tras E9: Roglič 1º. Nibali 2º +1:05. Santi 3º +1:38.*
+*GC tras E9 (favoritos):*
+*1º Roglič (SLO / Jumbo-Visma)*
+*2º Nibali (ITA / Bahrain-Merida) +1:05*
+*3º Santi (COL / FCV-Procycling) +1:38*
+*4º Carapaz (ECU / Movistar) +3:30*
+*Maglia Rosa: Valerio Conti (UAE)*
 
+*Etapa 9 (CRI San Marino): Roglič gana. Santi décimo, +1:38 de Roglič.*
 *Primer descanso: lunes 20 de mayo.*
 *La carrera empieza en la trece.*
 

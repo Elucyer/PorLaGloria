@@ -60,7 +60,7 @@ Duchêne proyectó el perfil del ecuatoriano. Veintiséis años. Cuarto en el Gi
 
 — Carapaz es peligroso en la media montaña — dijo Duchêne —. No tiene el fondo de Nibali para la tercera semana pero tiene el instinto del atacante. Si ataca temprano y los demás se duermen, puede hacer daño.
 
-Santi archivó el nombre con el mismo cuidado con que había archivado el nombre de Müller antes del Romandia.
+Santi archivó el nombre con el mismo cuidado con que había archivado el nombre de Thomas antes del Romandia.
 
 — ¿Y Dumoulin?
 
@@ -166,7 +166,14 @@ Todavía faltaban dieciocho días para el Colle dell'Agnello.
 
 *Etapa 1 (CRI Bologna): 10º, +0:23 de Roglič. Maglia Rosa: Roglič.*
 *Etapa 2–3: grupo de GC. GC sin cambios.*
-*Etapa 4 (Frascati): Dumoulin abandona. Carapaz gana la etapa. GC: Roglič 1º, Santi ~6º, +0:45.*
+*Etapa 4 (Frascati): Dumoulin abandona. Carapaz gana la etapa.*
+
+*GC tras E4 (favoritos):*
+*1º Roglič (SLO / Jumbo-Visma)*
+*2º Nibali (ITA / Bahrain-Merida) +1:05*
+*3º Santi (COL / FCV-Procycling) +1:38*
+*4º Carapaz (ECU / Movistar) +3:30*
+*Maglia Rosa: Valerio Conti (UAE)*
 
 *La carrera empieza en la trece.*
 

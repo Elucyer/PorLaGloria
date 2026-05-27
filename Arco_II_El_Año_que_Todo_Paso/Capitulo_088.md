@@ -46,7 +46,7 @@ Nibali estaba en tercera.
 
 Era una posición táctica — el siciliano había subido dos posiciones respecto a la etapa anterior, lo que en el lenguaje del pelotón significaba que el equipo Bahrain estaba preparando algo. No era sutil. No pretendía serlo. Nibali llevaba dos Giros ganados y un Giro en el cuerpo y sabía exactamente lo que Santi sabía: que después del Stelvio las piernas no están al cien por ciento, que el momento para atacar a un líder no es cuando está fresco sino cuando acaba de darlo todo y tiene tres días para defenderse con lo que le queda.
 
-El Passo di Giovo. Dos mil doscientos once metros.
+El Passo di Giovo. Dos mil noventa y cuatro metros.
 
 El nombre oficial era Jaufenpass en alemán — el puerto que separa el Alto Adige del valle del Inn, la carretera que durante siglos fue la ruta comercial entre los mercados del norte y los del sur antes de que los túneles modernos convirtieran la necesidad en la opción pintoresca para los turistas en verano. En mayo, el Giovo todavía tenía los bordes blancos — no la nieve profunda del invierno sino la nieve residual de las caras norte, los parches que en la altitud persisten hasta junio como la memoria de lo que el invierno fue.
 
@@ -351,7 +351,12 @@ Quedaba un día.
 *Etapa 17 (Anterselva): Peters gana la etapa. Nibali intenta en el Giovo. GC sin cambios.*
 *Etapa 18 (Santa Maria di Sala): Cima gana desde escapada. GC sin cambios.*
 *Etapa 19 (San Martino di Castrozza): Chaves gana la etapa. Nibali intenta en el Rolle. GC sin cambios.*
-*GC tras E19: Santi 1º. Nibali 2º +1:42. Roglič 3º +2:15. Carapaz 4º +3:10.*
+
+*GC tras E19:*
+*1º Santi (COL / FCV-Procycling) — Maglia Rosa*
+*2º Nibali (ITA / Bahrain-Merida) +1:42*
+*3º Roglič (SLO / Jumbo-Visma) +2:15*
+*4º Carapaz (ECU / Movistar) +3:10*
 
 *Mañana: Feltre → Monte Avena. El último intento.*
 

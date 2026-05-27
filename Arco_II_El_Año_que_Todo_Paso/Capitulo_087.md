@@ -453,7 +453,12 @@ Cuando Hernando pudiera verla también.
 *Giro de Italia 2019.*
 
 *Etapa 16 (Lovere → Stelvio → Ponte di Legno): Ciccone gana (Trek, desde escapada). Santi 2º +1:08.*
-*GC tras E16: Santi 1º (Maglia Rosa). Nibali 2º +1:42. Roglič 3º +2:15. Carapaz 4º +3:10.*
+
+*GC tras E16:*
+*1º Santi (COL / FCV-Procycling) — Maglia Rosa*
+*2º Nibali (ITA / Bahrain-Merida) +1:42*
+*3º Roglič (SLO / Jumbo-Visma) +2:15*
+*4º Carapaz (ECU / Movistar) +3:10*
 
 *Noche del 28 de mayo: Hernando Reyes, UCI, Hospital San Vicente, Medellín. Estable.*
 *Carmen en la sala de espera. Santi no sabe.*

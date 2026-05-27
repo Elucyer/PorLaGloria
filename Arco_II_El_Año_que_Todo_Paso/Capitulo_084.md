@@ -14,7 +14,7 @@ Ferretti proyectó el perfil de la etapa: los primeros ochenta kilómetros ondul
 
 Luego el Colle di Saint-Pantaléon. El Colle di Joux a mil seiscientos cuarenta metros.
 
-Y finalmente: los nueve kilómetros al ocho punto tres desde Courmayeur hacia el Skyway Monte Bianco — la llegada al pie del cable que sube hasta los cuatro mil metros del Mont Blanc, a mil trescientos setenta metros de altitud, con la montaña más alta de Europa tapando el horizonte norte como una declaración geológica de lo que *grande* significa antes de que las palabras humanas empezaran a usarlo.
+Y finalmente: los ocho kilómetros y medio al nueve punto uno desde Courmayeur hacia el Skyway Monte Bianco — la llegada al pie del cable que sube hasta los cuatro mil metros del Mont Blanc, a mil trescientos setenta metros de altitud, con la montaña más alta de Europa tapando el horizonte norte como una declaración geológica de lo que *grande* significa antes de que las palabras humanas empezaran a usarlo.
 
 — Carapaz va a atacar en los últimos cuatro kilómetros — dijo Ferretti.
 
@@ -206,6 +206,11 @@ Le estaba hablando a Santi.
 
 *Etapa 14 (Courmayeur / Skyway Monte Bianco): Santi 1º. Carapaz 2º +0:43. Roglič 3º +0:55. Nibali 4º +1:04.*
 *Maglia Rosa: Santiago Reyes (FCV-Procycling).*
-*GC tras E14: Santi 1º. Roglič 2º +0:12. Carapaz 3º +0:45. Nibali 4º +1:20.*
+
+*GC tras E14:*
+*1º Santi (COL / FCV-Procycling) — Maglia Rosa*
+*2º Roglič (SLO / Jumbo-Visma) +0:12*
+*3º Carapaz (ECU / Movistar) +0:45*
+*4º Nibali (ITA / Bahrain-Merida) +1:20*
 
 ---

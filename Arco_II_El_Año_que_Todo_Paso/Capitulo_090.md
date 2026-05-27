@@ -489,7 +489,12 @@ Era, como las cosas de Hernando, una declaración de lo que tenía que ser.
 *Giro de Italia 2019.*
 
 *Etapa 20 (Monte Avena): Bilbao gana la etapa. Landa 2º s.t. Nibali 3º +0:16. Santi 4º +0:50.*
-*GC tras E20: Santi 1º. Nibali 2º +1:08. Roglič 3º +2:10. Carapaz 4º +3:00.*
+
+*GC tras E20:*
+*1º Santi (COL / FCV-Procycling) — Maglia Rosa*
+*2º Nibali (ITA / Bahrain-Merida) +1:08*
+*3º Roglič (SLO / Jumbo-Visma) +2:10*
+*4º Carapaz (ECU / Movistar) +3:00*
 
 *Mañana: Verona. La Arena. El crono final.*
 
