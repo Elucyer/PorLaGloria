@@ -80,7 +80,7 @@ Duchêne miró a Ferretti.
 
 Santi asintió.
 
-— El kilómetro doce es tuyo — dijo Ferretti —. Desde el doce, hacés tu carrera. Thomas lleva el Tour ganado encima, pero Thyon no es el Tour. Es Thyon.
+— El kilómetro doce es tuyo — dijo Ferretti —. Desde el doce, hacés tu carrera. Thomas lleva el Tour de France ganado encima, pero Thyon no es el Tour. Es Thyon — y el Romandia el año pasado fue de Roglič, no de Thomas.
 
 ---
 
@@ -188,7 +188,7 @@ Thomas no era Quintana del París-Niza.
 
 Thomas era diferente de Quintana del París-Niza.
 
-Lo había mostrado en el Mollendruz, en la transición de la etapa tres, en el modo en que llevaba la carrera sin moverse de su posición y sin gastar lo que no tenía que gastar. Era el corredor que había ganado el Tour el año anterior — no con los ataques espectaculares de los escaladores colombianos sino con la consistencia del corredor que en los ocho días anteriores a la cima decisiva nunca comete el error que te cuesta la carrera. El galés que había vivido en Mónaco durante años y que conocía estas montañas no como las conocía un suizo de nacimiento pero sí como las conoce un profesional que ha entrenado aquí todos los inviernos.
+Lo había mostrado en el Mollendruz, en la transición de la etapa tres, en el modo en que llevaba la carrera sin moverse de su posición y sin gastar lo que no tenía que gastar. Era el corredor que había ganado el Tour de France el año anterior — no con los ataques espectaculares de los escaladores colombianos sino con la consistencia del corredor que en tres semanas nunca comete el error que te cuesta la carrera. No era el campeón vigente del Romandia — eso era Roglič — pero era el hombre que había vivido en Mónaco durante años y que conocía estas montañas suizas no como las conocía un local pero sí como las conoce un profesional que ha entrenado aquí todos los inviernos.
 
 Kilómetro catorce.
 
@@ -196,7 +196,7 @@ Dos kilómetros para la cima.
 
 Santi subió el ritmo.
 
-No de golpe — con la misma progresión de los tres o cuatro vatios que había aprendido en el Turini. La progresión que en La Madone había sido suficiente para dejar a Quintana y que aquí, con el ganador del Tour al lado y la altitud de los dos mil metros, era también suficiente pero por un margen más estrecho.
+No de golpe — con la misma progresión de los tres o cuatro vatios que había aprendido en el Turini. La progresión que en La Madone había sido suficiente para dejar a Quintana y que aquí, con el campeón del Tour de France al lado y la altitud de los dos mil metros, era también suficiente pero por un margen más estrecho.
 
 Thomas aguantó.
 

@@ -34,7 +34,7 @@ Ferretti lo miró.
 
 — ¿Thomas?
 
-— Geraint Thomas. El galés del Ineos — dijo Duchêne —. Ganó el Tour el año pasado. Conoce estas carreteras de haberlas entrenado durante años viviendo en Mónaco. En el Romandia siempre ha estado entre los favoritos. Este año viene con el equipo construido alrededor de él y de Bernal.
+— Geraint Thomas. El galés del Ineos — dijo Duchêne —. Ganó el Tour de France el año pasado. No el Romandia — el Romandia 2018 fue Roglič. Pero Thomas en esta carrera siempre ha estado entre los cinco primeros, conoce las carreteras del Jura de haberlas entrenado durante años viviendo en Mónaco, y este año viene con el equipo construido alrededor de él y de Bernal.
 
 Santi archivó el nombre.
 
