@@ -10,17 +10,19 @@ Ciento veintidós kilómetros de Nyon hacia el interior del cantón de Vaud — 
 
 Hubo una fuga de seis.
 
-El pelotón la dejó ir hasta los doce minutos y luego el Ineos la trajo de vuelta en los últimos treinta kilómetros con el mismo tren metódico del día anterior. El grupo de GC llegó unido al esprint de Aigle, donde ganó un corredor del Groupama que llevaba tres días esperando su oportunidad y que en el sprint de quince había la velocidad necesaria para aprovecharla.
+Gaudu fue el primero en escapar — en el kilómetro dieciséis, con la decisión del corredor joven que sabe que en las etapas de transición la ventana de la fuga se abre durante diez kilómetros y que si no la usás en ese tiempo no la usás más. El Ineos dejó ir la fuga hasta once minutos y luego la trajo de vuelta metódicamente en los últimos cuarenta kilómetros, pero Gaudu fue el más difícil de recuperar — el francés que en el tramo de bajada hacia Aigle encontró la separación dentro de la fuga, y que en los últimos seis kilómetros llegó a la línea con cuarenta y dos segundos de ventaja sobre el grupo de GC.
+
+Gaudu ganó la etapa.
 
 Santi llegó en el grupo de GC.
 
-GC sin cambios.
+GC sin cambios en los tiempos de los candidatos. Pero Gaudu había mostrado algo: que en las carreteras del Jura podía llegar antes que nadie cuando el pelotón lo dejaba.
 
 Pero la etapa tres no era la etapa tres.
 
 Era la etapa antes de Thyon.
 
-Y todo lo que pasaba en la etapa tres — las posiciones en el pelotón, los gestos de los directores deportivos en los coches, la manera en que Müller rodaba en el último kilómetro con las manos en el manillar y la vista fija al frente sin mirar a los lados — era la preparación silenciosa de los corredores y los equipos para el día que llegaba al día siguiente.
+Y todo lo que pasaba en la etapa tres — las posiciones en el pelotón, los gestos de los directores deportivos en los coches, la manera en que Thomas rodaba en el último kilómetro con las manos en el manillar y la vista fija al frente sin mirar a los lados, la manera en que Gaudu había ganado la etapa con esa facilidad del corredor que no gasta lo que no tiene que gastar — era la preparación silenciosa de los corredores y los equipos para el día que llegaba al día siguiente.
 
 En el autobús de regreso al hotel de Sierre — donde los equipos se instalaban para las dos etapas de montaña —, Ferretti dijo una sola cosa:
 
@@ -42,7 +44,7 @@ Los veinte o treinta minutos entre apagar la luz y el sueño. En esos veinte min
 
 Los kilómetros uno al cuatro: el asentamiento. El cuerpo encontrando el ritmo de la subida, saliendo del pelotón neutralizado, la transición de la velocidad del llano al paso de la montaña.
 
-Los kilómetros cinco al ocho: el filtro. El punto donde los gregarios empezaban a descolgarse y el grupo de GC se definía. En el Romandia, ese filtro sería el tren del Ineos — cuatro hombres que tiraban hasta vaciarse para dejar a Müller en posición.
+Los kilómetros cinco al ocho: el filtro. El punto donde los gregarios empezaban a descolgarse y el grupo de GC se definía. En el Romandia, ese filtro sería el tren del Ineos — cuatro hombres que tiraban hasta vaciarse para dejar a Thomas en posición — y también el del Jumbo-Visma, que en Thyon iba a defender a Roglič.
 
 El kilómetro nueve: el primer sector duro. La rampa del once por ciento que en el análisis de Duchêne era el punto de fractura — el lugar donde en 2017 el ganador del Romandia había atacado y donde en 2016 el suizo que llevaba la GC había cedido treinta segundos que no recuperó en los siete kilómetros restantes.
 
@@ -66,19 +68,19 @@ Ferretti lo miró durante un momento.
 
 — Mañana me pregunta en el kilómetro doce de Thyon — dijo Santi.
 
-Era la misma respuesta que había dado la noche antes de La Colmiane. Ferretti lo sabía. No dijo nada.
+Era la misma respuesta que había dado la noche antes del Turini. Ferretti lo sabía. No dijo nada.
 
-— El plan es este — dijo Duchêne —. Broeckx y Hoffmann tirán hasta el kilómetro seis. Después de seis, estás solo. El Ineos va a poner el ritmo hasta el nueve o el diez. No respondás a Müller si ataca antes del doce. Dejá que gaste.
+— El plan es este — dijo Duchêne —. Broeckx y Hoffmann tirán hasta el kilómetro seis. Después de seis, estás solo. El Ineos va a poner el ritmo hasta el nueve o el diez. No respondás a Thomas si ataca antes del doce. Dejá que gaste.
 
-— ¿Y si Pogačar ataca antes? — dijo Santi.
+— ¿Y si Gaudu ataca antes? — dijo Santi.
 
 Duchêne miró a Ferretti.
 
-— El esloveno — dijo Ferretti — no tiene el fondo todavía para atacar antes del doce. Lo intentará. Si lo intenta, lo seguís sin acelerar — lo alcanzás con tu ritmo, no con el sprint.
+— El francés — dijo Ferretti — no tiene el fondo todavía para atacar antes del doce en este perfil. Lo intentará — ganó la etapa tres de este Romandia con eso, atacando antes de tiempo. Si lo intenta, lo seguís sin acelerar — lo alcanzás con tu ritmo, no con el sprint.
 
 Santi asintió.
 
-— El kilómetro doce es tuyo — dijo Ferretti —. Desde el doce, hacés tu carrera.
+— El kilómetro doce es tuyo — dijo Ferretti —. Desde el doce, hacés tu carrera. Thomas lleva el Tour ganado encima, pero Thyon no es el Tour. Es Thyon.
 
 ---
 
@@ -114,7 +116,7 @@ Y Broeckx se descolgó del grupo con la elegancia del gregario que ha hecho exac
 
 Diez corredores en el grupo.
 
-El Ineos con dos gregarios todavía. Müller en cuarta posición. Pogačar detrás de Müller. Santi en sexta posición — no ideal, demasiado lejos del frente, pero con Hoffmann todavía a su rueda para tapar el viento de costado que en el kilómetro seis de Thyon venía del noreste.
+El Ineos con dos gregarios todavía. Thomas en cuarta posición. Gaudu detrás de Thomas. Santi en sexta posición — no ideal, demasiado lejos del frente, pero con Hoffmann todavía a su rueda para tapar el viento de costado que en el kilómetro seis de Thyon venía del noreste.
 
 El kilómetro siete: el primer gregario del Ineos cedió.
 
@@ -126,13 +128,13 @@ El segundo gregario del Ineos subió el ritmo veinte vatios antes de la rampa �
 
 Tres corredores se descolgaron.
 
-Cinco quedaron: Müller, Pogačar, el eslovaco del Bahrain que seguía apareciendo donde no debería aparecer, el segundo gregario del Ineos, y Santi.
+Cinco quedaron: Thomas, Gaudu, el eslovaco del Bahrain que seguía apareciendo donde no debería aparecer, el segundo gregario del Ineos, y Santi.
 
 En la rampa del once por ciento, el segundo gregario del Ineos tiró durante doscientos metros al límite y luego cedió — el cuerpo que ha dado todo lo que tenía y que en los últimos metros del doscientos se convierte en alguien que simplemente pedalea hacia adelante.
 
 Cuatro corredores.
 
-Müller al frente. Pogačar. El eslovaco. Santi.
+Thomas al frente. Gaudu. El eslovaco. Santi.
 
 El kilómetro nueve. El diez. El once.
 
@@ -140,11 +142,11 @@ Silencio en el pinganillo.
 
 Ferretti no hablaba en los kilómetros que no eran su kilómetro — esperaba el doce.
 
-En el kilómetro once y trescientos metros, Pogačar atacó.
+En el kilómetro once y trescientos metros, Gaudu atacó.
 
 No fue un ataque de sprint — fue una aceleración sostenida, el tipo de aceleración que un corredor de veinte años con las piernas de una generación que había crecido con los medidores de potencia hacía cuando el cuerpo le decía que podía y la cabeza decidía que era el momento.
 
-Müller respondió inmediatamente.
+Thomas respondió inmediatamente.
 
 Santi siguió.
 
@@ -170,23 +172,23 @@ Santi atacó en el kilómetro doce.
 
 No con la violencia del que ha esperado demasiado — con la progresión del que ha esperado exactamente lo suficiente. Tres vatios por encima del ritmo que llevaban. Cinco. Ocho. La aceleración que no es un sprint sino una subida del suelo — el tipo de esfuerzo que en la montaña no se ve de lejos pero que se siente inmediatamente en las piernas del que está detrás.
 
-Pogačar respondió.
+Gaudu respondió.
 
 Durante cuatrocientos metros.
 
-Luego la altitud le cobró lo que la altitud cobra a los cuerpos que todavía no tienen el fondo suficiente para los dos mil metros al final del día cuatro de bloque de preparación. No era debilidad — era tiempo. El esloveno tenía veinte años y dos temporadas profesionales y la altitud de Thyon era una deuda que su cuerpo iba a aprender a pagar con los años. Ese día no podía pagarla todavía.
+Luego la altitud le cobró lo que la altitud cobra a los cuerpos que todavía no tienen el fondo suficiente para los dos mil metros al final del día cuatro. No era debilidad — era tiempo. Gaudu tenía veintidós años y tres temporadas profesionales y la altitud de Thyon era una deuda que su cuerpo iba a aprender a pagar con los años. Ese día no podía pagarla todavía.
 
-Pogačar se descolgó.
+Gaudu se descolgó.
 
-Müller aguantó.
+Thomas aguantó.
 
 El suizo al lado de Santi durante un kilómetro y medio — dos corredores subiendo al mismo vataje por la carretera de Thyon con el sonido de los dos respirando en el aire frío de los dos mil metros y los aficionados suizos con las banderas y los cuernos de los Alpes y los gritos en tres idiomas que en el Valais no son el francés de Ginebra ni el alemán de Zúrich sino el *patois* de los valles y el italiano de los corredores del sur y el inglés de los ciclistas de los países que no tienen montañas propias pero que aman las montañas de los demás.
 
-Müller no era el danés del París-Niza.
+Thomas no era Quintana del París-Niza.
 
-Müller era más fuerte que el danés del París-Niza.
+Thomas era diferente de Quintana del París-Niza.
 
-Lo había mostrado en el Marchairuz, en la transición de la etapa tres, en el modo en que llevaba la carrera sin moverse de su posición y sin gastar lo que no tenía que gastar. Era el corredor de casa en esta carrera — el suizo que conocía Thyon desde los dieciséis años, que lo había subido cien veces en entrenamiento, que tenía la montaña en el cuerpo de una manera que no se aprende en los análisis de vídeo.
+Lo había mostrado en el Mollendruz, en la transición de la etapa tres, en el modo en que llevaba la carrera sin moverse de su posición y sin gastar lo que no tenía que gastar. Era el corredor que había ganado el Tour el año anterior — no con los ataques espectaculares de los escaladores colombianos sino con la consistencia del corredor que en los ocho días anteriores a la cima decisiva nunca comete el error que te cuesta la carrera. El galés que había vivido en Mónaco durante años y que conocía estas montañas no como las conocía un suizo de nacimiento pero sí como las conoce un profesional que ha entrenado aquí todos los inviernos.
 
 Kilómetro catorce.
 
@@ -194,11 +196,11 @@ Dos kilómetros para la cima.
 
 Santi subió el ritmo.
 
-No de golpe — con la misma progresión de los tres o cuatro vatios que había aprendido en La Colmiane. La progresión que en La Madone había sido suficiente para dejar a Nygaard y que aquí, con el suizo de montaña al lado y la altitud de los dos mil metros, era también suficiente pero por un margen más estrecho.
+No de golpe — con la misma progresión de los tres o cuatro vatios que había aprendido en el Turini. La progresión que en La Madone había sido suficiente para dejar a Quintana y que aquí, con el ganador del Tour al lado y la altitud de los dos mil metros, era también suficiente pero por un margen más estrecho.
 
-Müller aguantó.
+Thomas aguantó.
 
-Diez metros. Luego doce. Luego la diferencia dejó de crecer durante treinta segundos — Müller encontrando su propio límite, el punto donde el cuerpo y el ritmo encontraban un equilibrio que en la montaña es el equilibrio del corredor que no puede ir más rápido pero que tampoco va a ir más despacio.
+Diez metros. Luego doce. Luego la diferencia dejó de crecer durante treinta segundos — Thomas encontrando su propio límite, el punto donde el cuerpo y el ritmo encontraban un equilibrio que en la montaña es el equilibrio del corredor que no puede ir más rápido pero que tampoco va a ir más despacio.
 
 Santi apretó un grado más.
 
@@ -220,11 +222,11 @@ Cruzó la línea.
 
 El suizo llegó diecinueve segundos después.
 
-Pogačar, cuarenta y uno.
+Gaudu, cuarenta y uno.
 
 ---
 
-La clasificación general del Tour de Romandia con una etapa por delante: Santi primero. Müller segundo a veinticinco segundos. Pogačar tercero a cincuenta y dos.
+La clasificación general del Tour de Romandia con una etapa por delante: Santi primero. Thomas segundo a diecinueve segundos. Rui Costa tercero a veintiséis. Gaudu cuarto a cincuenta y dos.
 
 En el autobús de regreso al hotel de Sierre, Ferretti dijo:
 
@@ -234,9 +236,9 @@ No dijo qué fue bien. No hizo falta.
 
 ---
 
-*Tour de Romandia Etapa 3: Aigle. GC sin cambios.*
+*Tour de Romandia Etapa 3: Aigle. Gaudu (FRA/GRP) gana etapa.*
 *Etapa 4: Thyon 2000. Etapa ganada.*
-*GC: 1º. +0:25 sobre Müller (SUI/INE). +0:52 sobre Pogačar (SLO/TRK).*
+*GC: 1º. +0:19 sobre Thomas (WAL/INE). +0:26 sobre Rui Costa (POR/UAE). +0:52 sobre Gaudu (FRA/GRP).*
 
 *Mañana: CRI Ginebra. Defender.*
 
