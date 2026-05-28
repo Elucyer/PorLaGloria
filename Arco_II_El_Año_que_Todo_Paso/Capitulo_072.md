@@ -4,7 +4,7 @@
 
 ---
 
-La etapa tres fue ciento noventa y cuatro kilómetros de Chablis a Chalon-sur-Saône, una de esas etapas largas del París-Niza que en el argot de la organización existían para mover la carrera hacia el sur y en el argot del pelotón existían para dos cosas: para que los velocistas se pelearan el sprint y para que los equipos de GC tuvieran un día de recuperación activa después de las dos primeras etapas de selección.
+La etapa tres fue doscientos kilómetros de Cepoy hacia el sur — un recorrido llano que cruzaba el Loira y la planicie de la Beauce antes de llegar a Moulins-Yzeure sobre el Allier, una de esas etapas largas del París-Niza que en el argot de la organización existían para mover la carrera hacia el sur y en el argot del pelotón existían para dos cosas: para que los velocistas se pelearan el sprint y para que los equipos de GC tuvieran un día de recuperación activa después de las dos primeras etapas de selección.
 
 Santi lo sabía. El pelotón lo sabía. La organización lo sabía.
 
@@ -36,7 +36,7 @@ No era el tren del esprint.
 
 Era el tren del equipo que quiere controlar la posición de su líder en los últimos veinte kilómetros.
 
-Casper Nygaard estaba a dos posiciones de Santi.
+Quintana estaba a dos posiciones de Santi.
 
 No era casualidad.
 
@@ -44,9 +44,9 @@ Era el tipo de decisión que toman los directores deportivos que saben que la ca
 
 Santi mantuvo la posición.
 
-El velocista del Trek ganó el esprint con veinte metros de autoridad sobre el del Groupama. El del AG2R llegó cuarto. Suficiente para mantener el maillot de líder por las bonificaciones acumuladas.
+Sam Bennett ganó el sprint con esa eficiencia suya del corredor irlandés que en los últimos doscientos metros encontraba una velocidad que los rivales no podían seguir. El de la Movistar llegó cuarto. Suficiente para mantener el maillot de líder por las bonificaciones acumuladas.
 
-GC al final de la etapa tres: el del AG2R primero. Santi segundo a dos segundos. Nygaard tercero a los mismos dos segundos. Tres hombres separados por dos segundos, como al final de la etapa dos.
+GC al final de la etapa tres: Groenewegen primero — la bonificación del sprint lo sostenía. Santi segundo a dos segundos. Quintana tercero, mismo tiempo. Tres hombres separados por dos segundos, como al final de la etapa dos.
 
 La carrera no había cambiado nada.
 
@@ -54,33 +54,39 @@ Excepto que la mañana siguiente era la contrarreloj.
 
 ---
 
-La noche de Chalon-sur-Saône, Ferretti reunió a Santi y a Duchêne.
+La noche de Sisteron, Ferretti reunió a Santi y a Duchêne.
 
 Duchêne era el director que manejaba los números — el belga callado que en las reuniones de equipo siempre estaba con la pantalla del ordenador y los datos del recorrido y que hablaba poco y cuando hablaba era porque tenía algo que decir.
 
-— La contrarreloj de mañana — dijo Duchêne — son veintiocho kilómetros. Sale de Villefranche. Llana en los primeros doce, ligero repecho en el kilómetro dieciséis, descenso técnico, llegada en Belleville-en-Beaujolais.
+— La contrarreloj de mañana — dijo Duchêne — son veinticinco kilómetros y medio. Sale de Barbentane y vuelve a Barbentane — un circuito por la llanura del Ródano. Llano en los primeros doce, repecho de un kilómetro al cuatro por ciento en el kilómetro dieciséis, llegada con una pequeña cuesta final.
 
 Puso el mapa en la mesa.
 
-— Bardet hizo este mismo recorrido en el 2017. Ochenta y un minutos. Küng lo ganó en setenta y nueve. El perfil favorece a los especialistas — el repecho del dieciséis es suficiente para que un rodador puro lo recupere en el descenso, pero no lo suficientemente largo para que un escalador compense. — Pausa —. Nygaard hace el crono bien. Estuvo tercero en el Dauphiné el año pasado detrás de dos especialistas. Le calculo una pérdida de cuarenta segundos sobre el ganador. Vos perdés más.
+— El perfil favorece a los especialistas puros. Sin viento, es un crono limpio — cada segundo ganado en la recta central no se recupera después. — Pausa —. Quintana hace el crono razonablemente bien para ser escalador. Le calculo una pérdida de cuarenta segundos sobre el ganador. Vos perdés más.
 
 — ¿Cuánto? — dijo Santi.
 
-— En el mejor escenario — dijo Duchêne —, cincuenta y cinco segundos. En el realista, un minuto y cinco a un minuto y diez.
+— En el mejor escenario — dijo Duchêne —, cincuenta y cinco segundos. En el realista, un minuto a un minuto diez.
 
 Santi miró el mapa.
 
-— O sea que mañana noche estoy a un minuto de la cabeza de la GC y Nygaard a cuarenta y cinco segundos de mí.
+— ¿Y Bernal?
 
-— Aproximadamente — dijo Duchêne.
+Duchêne hizo una pausa.
 
-— ¿El ganador de la contrarreloj sube a la Colmiane?
+— Bernal en el crono es el problema. El año pasado en el Tour lo hizo bien. Le calculo una pérdida de veinte a veinticinco segundos sobre el ganador. Mejor que vos. Mejor que Quintana.
 
-— No. Es un rodador. Perderá cuatro minutos en La Colmiane. No es candidato.
+— O sea que mañana noche Bernal puede estar primero o segundo en la GC.
+
+— Aproximadamente — dijo Duchêne —. Y vos a cuarenta y cinco segundos de él.
+
+— ¿El ganador de la contrarreloj sube al Turini?
+
+— No. Es un especialista puro. Perderá cuatro minutos en las etapas de montaña. No es candidato a la GC final.
 
 Ferretti, que había escuchado todo esto en silencio desde el fondo:
 
-— El resultado de mañana no te preocupa — dijo —. La GC después de la contrarreloj es el punto de partida del viernes y del sábado. No el resultado.
+— El resultado de mañana no te preocupa — dijo —. La GC después de la contrarreloj es el punto de partida del seis y del siete. No el resultado.
 
 — Lo sé — dijo Santi.
 
@@ -92,17 +98,31 @@ Era una distinción que Ferretti hacía con precisión: saber era tener la infor
 
 Ferretti asintió.
 
-— Bien. Entonces mañana: salís con todo desde el kilómetro uno. No administrás — en la contrarreloj no hay táctica, hay ejecución. Cada segundo que no perdés mañana es un segundo que no tenés que remontar el viernes en La Colmiane. — Se levantó —. Cená, dormí, y mañana me decís en el kilómetro dieciséis cómo están las piernas.
+— Bien. Entonces mañana: salís con todo desde el kilómetro uno. No administrás — en la contrarreloj no hay táctica, hay ejecución. Cada segundo que no perdés mañana es un segundo que no tenés que remontar el seis en el Turini. — Se levantó —. Cená, dormí, y mañana me decís en el kilómetro dieciséis cómo están las piernas.
 
 ---
 
-La contrarreloj de Villefranche a Belleville fue el día más difícil de las primeras cinco etapas.
+Pero antes de la contrarreloj hubo una etapa cuatro.
 
-No porque fuera la más dura — físicamente, veintiocho kilómetros de terreno relativamente llano era manejable. Era difícil por la exposición específica de la contrarreloj: el formato que ponía a cada corredor solo contra el cronómetro, sin pelotón, sin la protección del grupo, sin la posibilidad de responder en tiempo real a lo que hacían los demás. El resultado llegaba después — en los números que aparecían en el tiempo del juez en la línea de llegada — y no había nada que hacer con esa información excepto recibirla.
+Ciento ochenta kilómetros de Sisteron hacia el este — un recorrido por la Haute-Provence ondulado, con tres puertos de segunda y tercera categoría en el corazón de la jornada, el tipo de etapa que en la hoja del recorrido parecía una etapa de transición pero que en el pelotón generaba el nerviosismo específico de los días antes de la contrarreloj: todos querían llegar al crono sin incidentes.
+
+La fuga del día se estableció en el kilómetro doce.
+
+Magnus Cort, el danés del Astana, fue el protagonista — un escalador-rodador que en las escapadas de media montaña tenía una resistencia que los puristas de la montaña no podían igualar y que los sprinters puros no podían alcanzar. Cort y cuatro compañeros de escapada llegaron a la meta en Apt con un minuto cuarenta de ventaja sobre el pelotón, que venía controlado por la Movistar de Quintana con una eficiencia que decía claramente que el único objetivo era llegar al crono sin rozaduras.
+
+Santi llegó en el pelotón. Quintana a su lado. Bernal a dos posiciones detrás — el colombiano del Ineos que en estas etapas de transición rodaba con la tranquilidad del corredor que sabe que su carrera empieza en el CRI.
+
+GC sin cambios significativos tras la etapa cuatro.
+
+---
+
+La contrarreloj de Barbentane fue el día más difícil de las primeras cinco etapas.
+
+No porque fuera la más dura — físicamente, veinticinco kilómetros y medio de terreno llano era manejable. Era difícil por la exposición específica de la contrarreloj: el formato que ponía a cada corredor solo contra el cronómetro, sin pelotón, sin la protección del grupo, sin la posibilidad de responder en tiempo real a lo que hacían los demás. El resultado llegaba después — en los números que aparecían en el tiempo del juez en la línea de llegada — y no había nada que hacer con esa información excepto recibirla.
 
 Santi salió el antepenúltimo.
 
-El recorrido de Villefranche: el adoquín del primer kilómetro, la recta larga del sector central donde el viento de costado hacía que el disco trasero tirara hacia el arcén, el repecho del kilómetro dieciséis que Duchêne había descrito exactamente como lo que era — cuatro por ciento durante ochocientos metros, suficiente para que las piernas acusaran pero no suficiente para que el ritmo colapsara.
+El circuito de Barbentane: la salida junto al canal del Ródano, la recta larga del sector central donde el viento de costado hacía que el disco trasero respondiera con pequeñas correcciones de dirección, el repecho del kilómetro dieciséis que Duchêne había descrito exactamente como lo que era — cuatro por ciento durante un kilómetro, suficiente para que las piernas acusaran pero no suficiente para que el ritmo colapsara — y la pequeña cuesta final hacia la línea.
 
 En el kilómetro dieciséis:
 
@@ -114,111 +134,85 @@ Ferretti, por el pinganillo del casco aerodinámico:
 
 No era el número perfecto. Era el número real.
 
-— Duchêne dice que llevás ocho segundos de ventaja sobre Nygaard en el referencial.
+— Duchêne dice que llevás ocho segundos de ventaja sobre Quintana en el referencial. Y que Bernal ya terminó — veintidós segundos sobre el ganador provisional.
 
-Ocho segundos sobre Nygaard en el referencial del kilómetro dieciséis. Eso significaba que si los últimos doce kilómetros eran iguales para los dos, Santi llegaría a Belleville ocho segundos mejor que Nygaard.
+Veintidós segundos. Duchêne había calculado entre veinte y veinticinco. El colombiano del Ineos había hecho exactamente el crono que Duchêne había previsto. Lo que significaba que en este momento Bernal estaba por delante de Santi en la GC provisional.
 
 Apretó.
 
-El descenso técnico de los kilómetros diecisiete al veintiuno — cuatro kilómetros de descenso donde el límite era la confianza en el manillar y en los frenos y en la línea que se elegía en las curvas. Santi había practicado el descenso en vídeo la noche anterior. Lo había recorrido mentalmente dos veces antes de salir. La curva del kilómetro dieciocho era la curva más cerrada y la que en el análisis de Duchêne era donde los escaladores perdían más tiempo por exceso de precaución.
-
-Santi la tomó limpia.
-
-Cuatro kilómetros de descenso sin frenar una sola vez más de lo necesario.
-
-La recta final hacia Belleville — tres kilómetros llanos, el cronómetro en el campo visual del casco, los últimos vatios de las piernas que a estas alturas del día estaban funcionando con algo más parecido al orgullo que al oxígeno.
+La recta final de regreso — el circuito cerrándose, el cronómetro en el campo visual del casco, los últimos vatios de las piernas que a estas alturas del día estaban funcionando con algo más parecido al orgullo que al oxígeno.
 
 Línea de llegada.
 
-Cincuenta y ocho minutos y catorce segundos.
+Treinta minutos y cuarenta y un segundos.
 
-Cuarto del día, a cincuenta y un segundos de Küng — el especialista suizo del CCC que había ganado con autoridad y que tenía la posición aerodinámica de los corredores que nacen para el cronómetro. A cuarenta y tres segundos de Dumoulin. A veintidós segundos del tercero — un danés del Astana que en contrarreloj siempre rendía por encima de lo esperado.
+Cuarto del día, a cincuenta segundos de Simon Yates — el escalador británico del Mitchelton que contra todo pronóstico había ganado la contrarreloj con una autoridad que nadie esperaba de un corredor de su perfil: la posición aerodinámica perfecta, el ritmo de potencia sin fluctuaciones, el tipo de crono que se gana una vez en la carrera y que después te citan cada vez que alguien dice que los escaladores no pueden hacer cronos.
 
-Nygaard llegó veintinueve segundos después. Cuarenta y uno en total, incluyendo la diferencia de partido.
+Quintana llegó veintisiete segundos después que Santi.
 
-Nueva GC al final de la etapa cuatro: Küng primero — por la suma de su tiempo total. El del AG2R segundo a treinta y seis segundos. Santi tercero a cuarenta y ocho. Nygaard cuarto a cincuenta y tres.
+Nueva GC al final de la etapa cinco: Yates primero — la suma de su tiempo total lo ponía al frente por las bonificaciones y el crono. Bernal segundo a dieciséis segundos. Santi tercero a cuarenta y cuatro segundos. Quintana cuarto a cincuenta y uno.
 
-Cinco segundos entre Santi y Nygaard.
+Veintiocho segundos entre Santi y Bernal. Siete entre Santi y Quintana.
 
-Cuarenta y ocho segundos para remontar en dos etapas de montaña.
+Cuarenta y cuatro segundos para remontar en dos etapas de montaña.
 
 En el autobús, Ferretti dijo:
 
 — Perdiste menos de lo calculado.
 
-— Veintidós segundos menos — dijo Santi.
+— Veintidós segundos menos — dijo Santi —. Pero Bernal hizo el crono que Duchêne dijo que iba a hacer.
 
-— ¿Cuánto necesitás remontar para ganar la GC?
+— Lo sé.
 
-— Cuarenta y ocho segundos en dos etapas.
+— ¿Cuánto necesito remontar para ganar la GC?
+
+— Cuarenta y cuatro sobre Yates. Veintiocho sobre Bernal. — Ferretti lo miró —. El Turini decide con Bernal. No con Yates.
 
 — ¿Es posible?
 
 Santi lo miró.
 
-— Es la Colmiane y la Madone — dijo —. ¿Qué me pregunta?
+— Es el Turini y la Madone — dijo —. ¿Qué me pregunta?
 
 Ferretti hizo el gesto con la mano que hacía cuando la respuesta era la respuesta correcta pero no iba a decírselo en voz alta.
 
 ---
 
-La etapa cinco fue el día del viaje.
+La etapa seis fue el día del viaje.
 
-Doscientos veintiún kilómetros de Fontaine-de-Vaucluse hacia el sur — por la Provence, el Luberon, los campos de lavanda que en marzo todavía no habían florecido pero que en el paisaje ya insinuaban el violeta del verano, y luego la bajada hacia la costa y las primeras curvas de la carretera que en la Côte d'Azur dejaba de ser planicie y empezaba a ser colina y luego montaña.
+Ciento setenta kilómetros de Sisteron hacia el sur y luego hacia el este — por la Haute-Provence, los primeros olores del Mediterráneo que llegaban todavía mezclados con el frío de la montaña en este marzo que en la Provence era primavera solo a mediodía, y luego la bajada hacia la costa y las primeras curvas de la carretera que en la Côte d'Azur dejaba de ser planicie y empezaba a ser colina.
 
 Era el día del paisaje. Del cambio de latitud. Del pelotón que sale del norte y empieza a oler el Mediterráneo.
 
-Santi lo notó en el kilómetro ciento cincuenta cuando el viento cambió de dirección — ya no venía del Rhône sino del sur, ya no traía el frío húmedo de Flandes sino algo más seco, más cálido, algo que no era exactamente calor pero que prometía una temperatura diferente para los dos días siguientes.
+Santi lo notó en el kilómetro ciento veinte cuando el viento cambió de dirección — ya no venía del Rhône sino del sur, ya no traía el frío seco de la Provence interior sino algo más suave, más húmedo, algo que prometía una temperatura diferente para los dos días siguientes.
 
-La carrera fue calma durante los primeros ciento ochenta kilómetros.
+La carrera fue controlada durante los primeros ciento cuarenta kilómetros.
 
-Una fuga de cinco se estableció en el kilómetro doce y duró hasta el kilómetro ciento noventa y tres, cuando el Jumbo-Visma — que llevaba la etapa con tres hombres al frente desde el ciento cuarenta — la trajo de vuelta con una eficiencia que no era agresiva sino simplemente metódica: el equipo que controla porque puede controlar, que tiene los hombres para hacerlo y que lo hace sin prisa.
+Sam Bennett ganó el sprint en Brignoles — el irlandés de la Bora que en esta primera semana había demostrado que cuando la carrera llegaba al llano era simplemente imbatible. Santi llegó en el pelotón.
 
-En el kilómetro ciento noventa, en la subida al Col de Vence — veinte kilómetros al cuatro y medio, el último obstáculo antes de la llegada en Vence que era el punto más alto de la etapa pero no suficientemente alto para ser decisivo —, el ritmo subió.
-
-No fue el Jumbo-Visma.
-
-Fue el Ineos.
-
-Un gregario suizo del Ineos que no tenía corredor de GC en esta carrera — el equipo había mandado a sus hombres jóvenes al París-Niza como preparación — pero que en el Col de Vence decidió subir a un ritmo que en tres kilómetros redujo el grupo de GC de diecisiete a nueve.
-
-Nygaard a la rueda del Ineos.
-
-Santi a la rueda de Nygaard.
-
-Broeckx cubriendo.
-
-El grupo de nueve subió el Col de Vence en cuarenta y un minutos — un tiempo respetable para un puerto de esa categoría al final de doscientos kilómetros — y en la cima el paisaje se abrió hacia el sur con el Mediterráneo visible en la lejanía, azul y quieto y absolutamente real debajo del cielo de la tarde.
-
-El descenso hacia Vence fue rápido.
-
-El corredor del Burgos-BH — el equipo español que había mandado a un escalador joven con más coraje que táctica — atacó en el kilómetro ocho del descenso y llegó a la línea con cuarenta y tres segundos de ventaja sobre el grupo de GC.
-
-Santi llegó con el grupo.
-
-GC sin cambios tras la etapa cinco: Küng primero. El del AG2R segundo a treinta y seis. Santi tercero a cuarenta y ocho. Nygaard cuarto a cincuenta y tres.
+GC sin cambios tras la etapa seis: Yates primero. Bernal segundo a dieciséis. Santi tercero a cuarenta y cuatro. Quintana cuarto a cincuenta y uno.
 
 ---
 
-Esa noche, en el hotel de Vence — un hotel pequeño con las ventanas que daban al casco viejo del pueblo, las piedras medievales y los campanarios y el olor a lavanda y a pino que a esta hora de la noche era casi excesivo —, Santi salió al balcón.
+Esa noche, en el hotel de Niza — el primer hotel de la carrera con el Mediterráneo visible desde la ventana, el azul profundo de la bahía y las luces del puerto y el ruido amortiguado de la Promenade —, Santi salió al balcón.
 
-La Colmiane estaba a cuarenta y ocho horas.
+El Col de Turini estaba a cuarenta y ocho horas.
 
-Había hecho el ascenso en vídeo diecisiete veces. Sabía el perfil de memoria: dieciséis kilómetros al seis y medio de media, con tres rampas del diez y medio en los kilómetros ocho, once y quince. El kilómetro ocho era donde la carrera siempre se había fragmentado en ediciones anteriores. El kilómetro once era donde los que sobrevivían al ocho empezaban a mostrar si iban a llegar solos o acompañados. El kilómetro quince era el muro final — un kilómetro y ochocientos metros al nueve por ciento antes de la cima.
+Había hecho el ascenso en vídeo diecisiete veces. Sabía el perfil de memoria: veintiún kilómetros desde la costa al seis por ciento de media, con las rampas del nueve y el diez en el sector final. El Turini no tenía el muro del Zoncolan ni la rampa del Angliru — era un puerto que se ganaba por acumulación, kilómetro a kilómetro, con la presión constante del ascenso que sube siempre al mismo ritmo exigente y cobra el tiempo al final y no en un kilómetro específico.
 
-Cuarenta y ocho segundos.
+Cuarenta y cuatro segundos.
 
-Podía remontarlos en La Colmiane.
+Podía remontarlos en el Turini.
 
-La pregunta no era si podía. La pregunta era qué haría Nygaard.
+La pregunta no era si podía. La pregunta era qué haría Quintana.
 
-El danés tenía cinco segundos menos que recuperar que Santi. Tenía piernas — lo había demostrado en el Col des Vallées, en el test del Roquefort, en la contrarreloj donde había sido veintinueve segundos más lento que Santi pero donde había mostrado la cadencia de alguien que sube así también cuando está cansado. Era el corredor de GC de la generación nueva — el que había crecido con los medidores de potencia desde los catorce años, que medía todo, que sabía exactamente qué vatios podía sostener y durante cuánto tiempo.
+El colombiano tenía siete segundos menos que recuperar que Santi. Tenía piernas — lo había demostrado en el abanico, en la contrarreloj donde había sido veintisiete segundos más lento que Santi pero donde había mostrado la cadencia del corredor que sube así también cuando está cansado. Era Nairo Quintana: el hombre que había llegado segundo en el Tour de France dos veces, que conocía el Puerto de Turini mejor que la mayoría del pelotón, que en las carreras de preparación del Giro siempre terminaba mejor de lo que empezaba.
 
 Santi pensó en la conversación de febrero con Clarke en la carretera entre Waregem y Kruishoutem.
 
 *La curva que es la tuya.*
 
-Mañana — la etapa seis, La Colmiane — él iba a encontrar su curva.
+Mañana — la etapa siete, el Turini — él iba a encontrar su curva.
 
 Entró al hotel.
 
@@ -226,13 +220,14 @@ Se sentó en la cama.
 
 Abrió el cuaderno.
 
-*París-Niza E3: Chalon. Esprint masivo. GC sin cambios.*
-*París-Niza E4: CRInd Villefr.–Belleville. 4º, +0:51 de Küng. GC: 3º, −0:48.*
-*París-Niza E5: Col de Vence–Vence. GC sin cambios.*
+*París-Niza E3: Moulins. Sprint masivo. Bennett gana. GC sin cambios.*
+*París-Niza E4: Sisteron–Apt. Escapada Cort. GC sin cambios.*
+*París-Niza E5: CRInd Barbentane. 4º, +0:50 de Yates. Bernal 2º de la GC. GC: 3º, −0:44.*
+*París-Niza E6: Sisteron–Brignoles. Sprint masivo. Bennett gana. GC sin cambios.*
 
-*Mañana: La Colmiane.*
+*Mañana: El Turini.*
 
-*48 segundos. 16km. El kilómetro 8 es la carrera.*
+*44 segundos a Yates. 28 segundos a Bernal (INE). Quintana a 7seg. El km 19 es la carrera.*
 
 Cerró el cuaderno.
 

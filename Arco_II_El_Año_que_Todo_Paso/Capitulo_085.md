@@ -245,7 +245,12 @@ Santi volvió a intentar dormir, y esta vez el cuerpo — agotado de los último
 *Giro de Italia 2019.*
 
 *Etapa 15 (Ivrea → Como): Cataldo gana desde la fuga. Roglič cae en descenso, pierde 16 segundos.*
-*GC tras E15: Santi 1º. Roglič 2º +0:28. Nibali 3º +1:20. Carapaz 4º +0:45.*
+
+*GC tras E15:*
+*1º Santi (COL / FCV-Procycling) — Maglia Rosa*
+*2º Roglič (SLO / Jumbo-Visma) +0:28*
+*3º Carapaz (ECU / Movistar) +0:45*
+*4º Nibali (ITA / Bahrain-Merida) +1:20*
 
 *Segundo descanso: lunes 27 de mayo. Lovere (lago Iseo).*
 

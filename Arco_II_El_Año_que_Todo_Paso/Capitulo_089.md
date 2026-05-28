@@ -248,7 +248,12 @@ Carmen esperó.
 
 *Giro de Italia 2019 — Etapa 19 (San Martino di Castrozza):*
 *Chaves gana la etapa. Nibali 2º entre candidatos GC. Santi 3º a 4 segundos.*
-*GC tras E19: Santi 1º. Nibali 2º +1:42. Roglič 3º +2:15. Carapaz 4º +3:10.*
+
+*GC tras E19 (favoritos):*
+*1º Santi (COL / FCV-Procycling) — Maglia Rosa*
+*2º Nibali (ITA / Bahrain-Merida) +1:42*
+*3º Roglič (SLO / Jumbo-Visma) +2:15*
+*4º Carapaz (ECU / Movistar) +3:10*
 
 *Mañana: Monte Avena. El último intento.*
 

@@ -25,11 +25,13 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 | Arco | Período | Capítulos | Estado |
 |------|---------|-----------|--------|
 | I — El Hijo del Frío | 2000–2018 | 1–39 | Completo (pendientes correcciones menores) |
-| II — El Año que Todo Pasó | 2018–2019 | 40–83 | No iniciado |
+| II — El Año que Todo Pasó | 2018–2019 | 40–83 | Iniciado (caps. 40–94 en `Arco_II_El_Año_que_Todo_Paso/`) |
 | III — Aprender a Matar | 2020–2022 | 84–136 | No iniciado |
 | IV — El Reinado Incompleto | 2022–2025 | 137–194 | No iniciado |
 | V — La Cosecha | 2025–2028 | 195–256 | No iniciado |
 | VI — El Cóndor y el Silencio | 2029–2033 | 257–300 | No iniciado |
+
+**Nota:** El `README.md` tiene una estructura de arcos desactualizada. `BIBLIA_PorLaGloria.md` es la fuente de verdad.
 
 ---
 
@@ -49,6 +51,17 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 - **Hernando Reyes** — El padre. Exgregario. Muere en el Arco II (Giro 2019, Stelvio). Presente en flashbacks durante toda la novela.
 - **Mariana López** — La fotógrafa bogotana. Entra en el Arco IV (2026). No sabe de ciclismo — eso es exactamente lo que Santi necesita.
 - **Maurizio Ferretti** — Director deportivo italiano. Figura paterna real. Muere de enfermedad en el Arco V.
+
+---
+
+## Continuidad entre capítulos (personajes con hilo abierto)
+
+Extraído de `MAPA_Capitulos_Arco_I.md`. Verificar antes de escribir o corregir capítulos que involucren estos personajes:
+
+- **Rodrigo Torres** (caps. 3, 4, 16, 22): operado de cáncer de pulmón en mayo 2017 (operable). Pendiente: llamada de Santi desde Bélgica (entre caps. 33–34).
+- **Julián Estrada** (caps. 6, 7, 16, 24): parte a Bogotá, periodismo deportivo en la Javeriana. Reaparece en Arco II.
+- **Carmen (madre)** (caps. 3, 5, 11, 28): pendiente escena antes del vuelo de Santi a Europa.
+- **David Arroyave** (caps. 17, 21, 23, 26, 27): gana Porvenir 2017 por 4 segundos. Rival definitivo del Arco I. Reaparece en Arco II como profesional.
 
 ---
 

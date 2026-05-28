@@ -46,7 +46,19 @@ Duchêne proyectó los números. El de San Marino era crono ondulado con ascenso
 
 Un minuto cuarenta y dos. Santi no lo anotó. Era la sensación ya calculada — los vatios de Roglič versus los suyos en terreno mixto. Lo que el crono cobraba, la montaña tenía que devolver con intereses.
 
-— Los rivales ya los analizamos anoche — dijo Ferretti. — No cambiaron de un día para el otro. Lo que cambia hoy es la carrera. — Cerró la carpeta.
+— ¿Carapaz?
+
+Duchêne proyectó el perfil del ecuatoriano. Veintiséis años. Cuarto en el Giro del año anterior. Ganador de la Vuelta a Romanía, del Tour de Wallonie.
+
+— Carapaz es peligroso en la media montaña — dijo Duchêne —. No tiene el fondo de Nibali para la tercera semana pero tiene el instinto del atacante. Si ataca temprano y los demás se duermen, puede hacer daño.
+
+Santi archivó el nombre con el mismo cuidado con que había archivado el nombre de Thomas antes del Romandia.
+
+— ¿Y Dumoulin?
+
+— Dumoulin viene — dijo Ferretti —. Pero Dumoulin tiene once meses sin competir. La rodilla está bien en el papel. Cómo está en la carretera lo sabremos en la primera semana.
+
+Eso fue todo. Ferretti cerró la carpeta.
 
 — Mañana: ocho kilómetros y doscientos metros por las calles de Bolonia. Prioridad: sin caídas.
 
@@ -146,7 +158,14 @@ Todavía faltaban dieciocho días para el Colle dell'Agnello.
 
 *Etapa 1 (CRI Bologna): 10º, +0:23 de Roglič. Maglia Rosa: Roglič.*
 *Etapa 2–3: grupo de GC. GC sin cambios.*
-*Etapa 4 (Frascati): Dumoulin abandona. Carapaz gana la etapa. GC: Roglič 1º, Santi ~6º, +0:45.*
+*Etapa 4 (Frascati): Dumoulin abandona. Carapaz gana la etapa.*
+
+*GC tras E4 (favoritos):*
+*1º Roglič (SLO / Jumbo-Visma)*
+*2º Nibali (ITA / Bahrain-Merida) +1:05*
+*3º Santi (COL / FCV-Procycling) +1:38*
+*4º Carapaz (ECU / Movistar) +3:30*
+*Maglia Rosa: Valerio Conti (UAE)*
 
 *La carrera empieza en la trece.*
 

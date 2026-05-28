@@ -52,7 +52,7 @@ A las doce y veinte, Ferretti se acercó al rodillo.
 
 Santi procesó.
 
-Cuatro cero en el kilómetro doce era el ritmo de los especialistas en las mejores condiciones. Roglič no era Campenaerts — era mejor que Campenaerts en los cronos con subida porque el esloveno tenía la potencia del especialista y la capacidad en la rampa del escalador. Cuatro cero en el kilómetro doce de este crono era, Santi calculó, un tiempo final de cincuenta y un, cincuenta y dos minutos.
+Cuatro cero en el kilómetro doce era el ritmo de los especialistas en las mejores condiciones. Roglič no era Campenaerts — era mejor que Campenaerts en los cronos con subida porque el esloveno tenía la potencia del especialista y la capacidad en la rampa del escalador. Cuatro cero en el kilómetro doce de este crono era, Santi calculó, un tiempo final de cincuenta y un minutos.
 
 — ¿Mi tiempo proyectado?
 
@@ -204,7 +204,7 @@ El mensaje de Hernando llegó a las once y cuarto de la noche, hora colombiana.
 
 Un mensaje de texto. Sin saludo. Sin firma.
 
-*Un treinta y ocho en treinta y cinco kilómetros con subida. La montaña compensa.*
+*Un treinta y ocho en treinta y cuatro kilómetros y ochocientos metros con subida. La montaña compensa.*
 
 Santi lo leyó en la cama del hotel de Rávena donde el equipo había llegado después de tres horas de autobús desde San Marino.
 
@@ -229,8 +229,13 @@ Durmió.
 ---
 
 *Giro de Italia 2019 — Etapa 9 (CRI San Marino):*
-*Roglič 1º — 51'52". Campenaerts 2º +0:11. Mollema 3º +1:00. Nibali 4º +1:05. Santi 10º +1:38.*
-*GC favoritos: Roglič 1º. Nibali 2º +1:05. Santi 3º +1:38. Carapaz 4º +3:30.*
+*Roglič 1º — 51'33". Campenaerts 2º +0:11. Mollema 3º +1:00. Nibali 4º +1:05. Santi 10º +1:38.*
+
+*GC tras E9 (favoritos):*
+*1º Roglič (SLO / Jumbo-Visma)*
+*2º Nibali (ITA / Bahrain-Merida) +1:05*
+*3º Santi (COL / FCV-Procycling) +1:38*
+*4º Carapaz (ECU / Movistar) +3:30*
 *Maglia Rosa: Valerio Conti (UAE). La carrera empieza en la trece.*
 
 ---

@@ -96,7 +96,7 @@ Santi no miraba la diferencia de Zakarin. Miraba el kilómetro que tenía delant
 
 ---
 
-La cima del Colle dell'Agnello era dos mil setecientos cuarenta y ocho metros sobre el mar.
+La cima del Colle dell'Agnello era dos mil setecientos cuarenta y cuatro metros sobre el mar.
 
 Aquí la carretera terminaba de ser carretera de montaña y empezaba a ser carretera de alta montaña — el tramo donde el verde desaparecía y solo quedaban la roca y la nieve de los bordes y el cielo que a esta altitud era más azul y más cercano que en el valle, como si la atmósfera se hubiera adelgazado hasta el punto donde el azul tenía otra categoría.
 
@@ -198,7 +198,7 @@ No el mejor de los posibles — el mejor del día: el que Santi llegara primero 
 
 El noventa y tres después del Izoard y el Agnello y el Lago Serrù era el noventa y tres correcto — el que quedaba después de usarlo bien.
 
-— Mañana: Courmayeur — dijo Ferretti. — Nueve kilómetros al ocho punto tres. El Mont Blanc al fondo.
+— Mañana: Courmayeur — dijo Ferretti. — Ocho kilómetros y medio al nueve punto uno. El Mont Blanc al fondo.
 
 — ¿Conti?
 
@@ -206,7 +206,7 @@ Duchêne revisó los números.
 
 — Tres minutos y cuarenta segundos de diferencia con Conti. Para tomar la maglia hay que recuperar eso mañana.
 
-Santi procesó. Tres cuarenta en nueve kilómetros al ocho punto tres. Con el diferencial entre Santi y los favoritos que el Lago Serrù acababa de establecer, era posible.
+Santi procesó. Tres cuarenta en ocho kilómetros y medio al nueve punto uno. Con el diferencial entre Santi y los favoritos que el Lago Serrù acababa de establecer, era posible.
 
 Era exactamente posible.
 
@@ -262,7 +262,7 @@ Era insuficiente. Era lo que había.
 
 *Mañana Courmayeur*, había dicho Santi.
 
-Hernando sabía lo que significaba mañana Courmayeur. Había estudiado el perfil durante dos días — los nueve kilómetros al ocho punto tres, las rampas al catorce en el tramo medio, el hecho de que la diferencia con Conti era de tres minutos y cuarenta segundos y que si mañana Santi ganaba la etapa y recuperaba ese tiempo la Maglia Rosa era de Santi.
+Hernando sabía lo que significaba mañana Courmayeur. Había estudiado el perfil durante dos días — los ocho kilómetros y medio al nueve punto uno, las rampas al catorce en el tramo medio, el hecho de que la diferencia con Conti era de tres minutos y cuarenta segundos y que si mañana Santi ganaba la etapa y recuperaba ese tiempo la Maglia Rosa era de Santi.
 
 La primera Maglia Rosa de Santi.
 
@@ -285,8 +285,14 @@ Apagó la lámpara.
 ---
 
 *Giro de Italia 2019 — Etapa 13 (Lago Serrù):*
-*Zakarin gana la etapa. Santi 2º +0:57. Primero entre candidatos GC.*
-*GC favoritos tras E13: Roglič 1º. Nibali 2º +1:05. Santi 3º +1:38. Carapaz 4º +3:30.*
+*Zakarin gana la etapa. Santi 2º +0:57. Nibali 3º +1:19 sobre Santi. Roglič 4º +1:28 sobre Santi.*
+
+*GC tras E13 (favoritos):*
+*1º Roglič (SLO / Jumbo-Visma)*
+*2º Nibali (ITA / Bahrain-Merida) +0:36*
+*3º Santi (COL / FCV-Procycling) +0:10*
+*4º Carapaz (ECU / Movistar) +2:22*
+*Maglia Rosa: Valerio Conti (UAE) — diferencia virtual con Santi: 3:40*
 
 *Mañana: Courmayeur. El Mont Blanc. La Maglia Rosa virtual a 3:40 de distancia.*
 
