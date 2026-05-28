@@ -40,33 +40,13 @@ Clarke levantó una mano.
 
 — ¿Y el crono de San Marino?
 
-— El crono de San Marino — dijo Ferretti — vamos a perderlo. Roglič va a ganar ese crono. La pregunta no es si Santi pierde tiempo en el crono sino cuánto pierde. Si perdemos menos de dos minutos, la carrera sigue abierta.
+— El crono de San Marino — dijo Ferretti — vamos a perderlo. Roglič va a ganar ese crono. La pregunta no es si Santi pierde tiempo sino cuánto. Si perdemos menos de dos minutos, la carrera sigue abierta.
 
-Duchêne proyectó los números del análisis de potencia de Roglič en los últimos tres cronos del año.
+Duchêne proyectó los números. El de San Marino era crono ondulado con ascenso final — treinta y cinco kilómetros. La pérdida esperada de Santi: entre un minuto cuarenta y dos minutos diez.
 
-— El esloveno en crono llano hace cuatro vatios por kilo. En crono ondulado, tres setenta y cinco. El de San Marino es ondulado con ascenso final a San Marino — treinta y cinco kilómetros. A ese ritmo, la pérdida esperada de Santi es entre un minuto cuarenta y dos minutos diez. — Una pausa —. Si Santi está al cien por ciento el día del crono, perdemos menos.
+Un minuto cuarenta y dos. Santi no lo anotó. Era la sensación ya calculada — los vatios de Roglič versus los suyos en terreno mixto. Lo que el crono cobraba, la montaña tenía que devolver con intereses.
 
-Santi escuchó todo. No tomó notas. Las notas en el ciclismo son para los que necesitan recordar los números porque los números no se les han vuelto parte del cuerpo todavía. Para Santi, después de dieciocho meses en el equipo y un Giro completo, los números ya no eran información abstracta. Eran sensaciones anticipadas.
-
-Un minuto cuarenta y dos sobre los treinta y cinco kilómetros del crono de San Marino era exactamente lo que sentía cuando calculaba los vatios que Roglič producía versus los que él podía sostener en terreno mixto.
-
-— ¿Rivales de GC aparte de Roglič? — dijo Hoffmann.
-
-— Nibali — dijo Ferretti. El nombre solo. Sin necesidad de explicación. Nibali era Nibali: dos Giros ganados, una Vuelta, un Tour. El corredor que en los descensos técnicos hacía cosas que nadie más hacía en el pelotón y que en la tercera semana nunca se rompía cuando todos los demás empezaban a ceder.
-
-— ¿Carapaz?
-
-Duchêne proyectó el perfil del ecuatoriano. Veintiséis años. Cuarto en el Giro del año anterior. Ganador de la Vuelta a Romanía, del Tour de Wallonie.
-
-— Carapaz es peligroso en la media montaña — dijo Duchêne —. No tiene el fondo de Nibali para la tercera semana pero tiene el instinto del atacante. Si ataca temprano y los demás se duermen, puede hacer daño.
-
-Santi archivó el nombre con el mismo cuidado con que había archivado el nombre de Müller antes del Romandia.
-
-— ¿Y Dumoulin?
-
-— Dumoulin viene — dijo Ferretti —. Pero Dumoulin tiene once meses sin competir. La rodilla está bien en el papel. Cómo está en la carretera lo sabremos en la primera semana.
-
-Eso fue todo. Ferretti cerró la carpeta.
+— Los rivales ya los analizamos anoche — dijo Ferretti. — No cambiaron de un día para el otro. Lo que cambia hoy es la carrera. — Cerró la carpeta.
 
 — Mañana: ocho kilómetros y doscientos metros por las calles de Bolonia. Prioridad: sin caídas.
 
