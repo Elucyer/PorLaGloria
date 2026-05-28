@@ -214,6 +214,40 @@ No lo procesó en ese momento. Lo procesó dos horas después, en la habitación
 
 ---
 
+*En la sala de espera de la UCI del Hospital San Vicente, a las cuatro y diez de la tarde:*
+
+Carmen había llegado a las doce.
+
+La enfermera le había permitido entrar a las dos — quince minutos al lado de la cama cuatro, la mano de Hernando sin responder del todo pero tampoco ausente. Había salido a las dos y dieciséis y se había sentado en la silla anaranjada con el teléfono.
+
+*— ¡Kilómetro siete del Monte Avena! ¡Nibali ataca! ¡El gran Vincenzo Nibali ataca en el kilómetro siete de la última montaña del Giro de Italia! ¡Este es su último intento, señoras y señores, su última bala — el siciliano que ha ganado dos Giros y que hoy necesita recuperar tiempo en este bosque del Bellunese! ¡Diez metros, quince — el gregario del FCV-Procycling cierra! ¡Pero Nibali se va!*
+
+Carmen vio la brecha crecer en la pantalla pequeña del teléfono.
+
+*— ¡Kilómetro ocho! ¡El gregario cede — y ahora Santi Reyes solo! ¡El Maglia Rosa a siete metros de Nibali, señoras y señores — siete metros en el bosque del Bellunese! ¡El colombiano persigue con lo que tiene, gente — lo que queda de veinte días de Giro en las piernas — y la brecha no crece! ¡No crece! ¡Nibali no puede alejarse!*
+
+Carmen no respiró.
+
+*— ¡Kilómetro diez! ¡Cuatro metros, señoras y señores, cuatro metros entre los dos mejores corredores de este Giro de Italia! ¡El Monte Avena decide — el Monte Avena y lo que cada uno de estos dos corredores tiene todavía en el cuerpo después de veinte días! ¡Colombia no suelta, gente — Colombia no suelta!*
+
+Carmen miró la puerta de la UCI.
+
+El monitor cardiaco adentro marcando su ritmo. La línea verde. El *sigue*.
+
+Bajó los ojos al teléfono.
+
+*— ¡La cima del Monte Avena! ¡Nibali llega primero entre los candidatos de GC — treinta y cuatro segundos, señoras y señores, treinta y cuatro segundos entre Nibali y la Maglia Rosa Santi Reyes! ¡La diferencia en la GC: un minuto y ocho! ¡Un minuto y ocho sobre Nibali para el crono de Verona mañana! ¡Señoras y señores — este Giro de Italia es de Colombia!*
+
+Carmen cerró los ojos.
+
+Los abrió.
+
+Guardó el teléfono en el bolsillo del abrigo y se levantó a buscar agua en la máquina del pasillo.
+
+Cuando volvió, se sentó de nuevo en la silla anaranjada y esperó.
+
+---
+
 Pello Bilbao cruzó la línea del Monte Avena con la cara de quien no puede creer que ha aguantado.
 
 Mikel Landa cruzó cuatro segundos después.

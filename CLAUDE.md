@@ -16,7 +16,16 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 
 - **`BIBLIA_PorLaGloria.md`** — Documento definitivo. Contiene logline, protagonista, cronología oficial, estructura de arcos, personajes secundarios, romance, los dos picos narrativos, tono/estilo e influencias literarias. Leer siempre antes de escribir o corregir un capítulo.
 - **`MAPA_Capitulos_Arco_I.md`** — Estado actual de cada capítulo del Arco I (escrito / corregido / pendiente) y lista de correcciones pendientes específicas.
-- **`REFERENCIA_Puertos_y_Escenarios.md`** — Datos técnicos reales de los puertos ciclistas: altitudes, pendientes, distancias, carácter narrativo. Usar para verificar precisión geográfica.
+
+### Archivos de referencia técnica
+
+- **`REFERENCIA_Puertos_y_Escenarios.md`** — Puertos ciclistas europeos: altitudes, pendientes, distancias, carácter narrativo.
+- **`REFERENCIA_Puertos_Colombia_Medellin.md`** — Puertos colombianos y escenarios de Medellín.
+- **`REFERENCIA_Ciclistas_Contemporaneos.md`** — Fichas de corredores reales del pelotón (rivales de Santi en el Arco II).
+- **`PERFILES_Corredores.md`** — Perfiles detallados de personajes ciclistas.
+- **`GIRO_2018_Referencia.md`** — Datos del Giro de Italia 2018 (primer Giro de Santi).
+- **`GIRO_2019_Referencia.md`** — Datos del Giro de Italia 2019 (segundo Giro, donde muere Hernando).
+- **`REGLAS_Geografia.md`** — Reglas de consistencia geográfica para no inventar datos.
 
 ---
 
@@ -25,7 +34,7 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 | Arco | Período | Capítulos | Estado |
 |------|---------|-----------|--------|
 | I — El Hijo del Frío | 2000–2018 | 1–39 | Completo (pendientes correcciones menores) |
-| II — El Año que Todo Pasó | 2018–2019 | 40–83 | Iniciado (caps. 40–94 en `Arco_II_El_Año_que_Todo_Paso/`) |
+| II — El Año que Todo Pasó | 2018–2019 | 40–94 | En curso (caps. 40–94 escritos en `Arco_II_El_Año_que_Todo_Paso/`) |
 | III — Aprender a Matar | 2020–2022 | 84–136 | No iniciado |
 | IV — El Reinado Incompleto | 2022–2025 | 137–194 | No iniciado |
 | V — La Cosecha | 2025–2028 | 195–256 | No iniciado |
@@ -62,16 +71,6 @@ Extraído de `MAPA_Capitulos_Arco_I.md`. Verificar antes de escribir o corregir 
 - **Julián Estrada** (caps. 6, 7, 16, 24): parte a Bogotá, periodismo deportivo en la Javeriana. Reaparece en Arco II.
 - **Carmen (madre)** (caps. 3, 5, 11, 28): pendiente escena antes del vuelo de Santi a Europa.
 - **David Arroyave** (caps. 17, 21, 23, 26, 27): gana Porvenir 2017 por 4 segundos. Rival definitivo del Arco I. Reaparece en Arco II como profesional.
-
----
-
-## Correcciones pendientes en Arco I
-
-Ver tabla completa en `MAPA_Capitulos_Arco_I.md`. Correcciones previas aplicadas:
-- Cap. 029–031: reescritos con presencia total del Avenir (ceremony, equipos, etapa 9, regreso, bicicleta Postobón).
-- Cap. 031: capítulo nuevo (Albiez-Montrond + regreso Colombia + Postobón).
-- Caps. 032–039: renumerados correctamente tras inserción del nuevo 031.
-- Encabezados internos de caps. 032–039: actualizados.
 
 ---
 

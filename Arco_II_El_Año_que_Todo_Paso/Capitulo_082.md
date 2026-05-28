@@ -1,38 +1,36 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 82 — Giro III: El Agnello (Etapas 10–13, 21–24 de mayo de 2019)
-
----
-
-El primer descanso del Giro de Italia no era descanso.
-
-Era recuperación activa — el masaje de dos horas a las nueve de la mañana que Gilles, el fisioterapeuta belga del equipo, hacía con una presión que en los músculos exhaustos de la novena etapa producía ese dolor preciso y agradecido del cuerpo que está siendo reparado. Era la reunión táctica de las once donde Duchêne proyectaba los perfiles de la segunda semana y los números del primer bloque. Era la revisión de las bicicletas que los mecánicos hacían con el silencio concentrado de quienes saben que en los puertos de tres mil metros una pieza mal ajustada es la diferencia entre la cima y el arcén.
-
-Y era también — para Santi — la única hora del día donde el cuerpo y la mente no tenían nada que hacer y que en la cama del hotel de Rávena producía ese estado intermedio entre el sueño y la vigilia donde los pensamientos venían sin pedir permiso.
-
-Pensó en su padre.
-
-No lo llamó. Habían hablado el dieciséis — Hernando había seguido la séptima etapa por la televisión, había dicho *bien*, había preguntado por las piernas, había escuchado *al noventa y cuatro* con el silencio de su versión de la aprobación, y habían colgado. La llamada de siempre. El tono de siempre.
-
-Pero en la hora sin actividad del primer descanso del Giro, en la cama de un hotel de Rávena con la ventana hacia un canal que a las dos de la tarde de un lunes de mayo tenía el color del agua que no sabe si es verde o marrón, Santi sintió algo que no supo nombrar del todo.
-
-Una inquietud sin objeto.
-
-No sobre el Giro — el Giro estaba en su lugar, los números donde tenían que estar, el cuerpo donde tenía que estar. Era otra cosa. Algo en la voz de su padre en las últimas llamadas que Santi no había sabido identificar en el momento pero que en la cama del hotel de Rávena empezaba a perfilarse como una textura diferente. No lo que decía. Lo que no decía. El silencio de Hernando era siempre denso — lleno de lo que no se verbalizaba porque no hacía falta — pero en las últimas semanas el silencio tenía una capa adicional que Santi no sabía cómo leer.
-
-Se durmió antes de poder resolverlo.
-
-El sueño del primer descanso del Giro es el sueño más profundo de las tres semanas.
+### Capítulo 82 — Giro III: Pinerolo (Etapas 10–12, 21–23 de mayo de 2019)
 
 ---
 
 Las etapas diez, once y doce fueron las etapas que existían para llegar a la trece.
 
-Ciento cuarenta y cinco kilómetros de Rávena a Módena. Doscientos veintiuno de la llanura padana a Novi Ligure. Ciento cincuenta y ocho kilómetros con el primer sabor real de los Alpes — el Colle del Monginevro como aperitivo, la llegada en esprint reducido a Pinerolo que ganó Benedetti desde la fuga con esa cara de sorpresa del corredor que pensó que no iba a ganar y que a quinientos metros de la línea todavía no lo cree.
+Ciento cuarenta y cinco kilómetros de Rávena a Módena por la llanura padana — el Po a la izquierda, invisible pero presente en la humedad del aire, los campos de la Emilia-Romaña todavía verdes con el verde específico de mayo antes del calor. Ackermann ganó el esprint con la autoridad del corredor que en las llegadas masivas simplemente es más rápido que los demás y no necesita estrategia para demostrarlo.
 
-Santi rodó. El equipo cubrió. La GC se mantuvo.
+Santi llegó en el pelotón. La GC sin cambios.
 
-En la doceava etapa, en el kilómetro ciento veinte del tramo hacia Pinerolo, Roglič se acercó a la rueda de Santi. No fue un gesto táctico — fue un gesto de ese tipo de conversación que en el pelotón se hace pedalando a treinta y cinco kilómetros por hora sin que los demás la escuchen.
+La undécima fue doscientos veintiún kilómetros — la etapa más larga de la segunda semana, el tipo de etapa que en el argot del pelotón existe para mover la carrera hacia el norte sin que nadie haga nada que valga la pena recordar. La fuga del día duró hasta el kilómetro doscientos cuatro. El pelotón la absorbió con la eficiencia del equipo que lleva el tren del esprint y que en los últimos diecisiete kilómetros no permite que nada quede sin controlar. Viviani ganó en Novi Ligure.
+
+Santi llegó en el pelotón. La GC sin cambios.
+
+Pero los kilómetros se acumulan. Doscientos veintiuno no se borran de las fibras musculares solo porque la etapa termine — quedan depositados en el cuerpo con la constancia silenciosa de los días que en la primera semana todavía son manejables y que en la segunda empiezan a pesar de una manera diferente. No el dolor: el peso. La diferencia entre el cuerpo que está fresco y el cuerpo que lleva once días de Giro es la diferencia entre correr y cargar mientras corrés.
+
+Santi lo sentía. Lo había sentido desde la décima etapa — no en las piernas, que respondían, sino en el tiempo que tardaban en responder. Un cuarto de segundo más entre la intención y la acción. Suficiente para notarlo. No suficiente para que importara todavía.
+
+La duodécima etapa fue donde los Alpes dijeron buenas noches.
+
+Ciento cincuenta y ocho kilómetros con el Colle del Monginevro como única montaña catalogada — mil ochocientos cincuenta metros, once kilómetros al cinco y medio — antes de la bajada hacia Pinerolo. El Monginevro no era el Agnello. Era el Alpe que el recorrido ponía para que el pelotón recordara que mañana venía el Agnello: la prueba de vestuario, el aviso cortés de lo que esperaba al día siguiente.
+
+En el Monginevro, el pelotón de GC llegó unido a la cima.
+
+El descenso a Pinerolo fue rápido y técnico — la carretera alpina con las curvas de montaña que en mayo tienen el asfalto en el estado exacto entre el invierno que terminó hace poco y el verano que todavía no calentó del todo. Benedetti salió desde la fuga en el kilómetro ciento cuarenta y entró solo al arco de llegada de Pinerolo con esa cara de sorpresa del corredor que pensó que no iba a ganar y que a quinientos metros de la línea todavía no lo cree.
+
+Santi llegó en el pelotón. La GC sin cambios.
+
+---
+
+En el kilómetro ciento veinte del tramo hacia Pinerolo, Roglič se acercó a la rueda de Santi. No fue un gesto táctico — fue un gesto de ese tipo de conversación que en el pelotón se hace pedalando a treinta y cinco kilómetros por hora sin que los demás la escuchen.
 
 — Mañana es el Agnello — dijo Roglič.
 
@@ -52,159 +50,53 @@ Santi miró su espalda alejarse. Era, pensó, el respeto del profesional por el 
 
 ---
 
-La decimotercera etapa del Giro de Italia de 2019 recorrió ciento noventa y seis kilómetros de Pinerolo al Lago Serrù.
+El hotel de Pinerolo estaba en el centro histórico, con las ventanas que daban a la piazza Cavalieri d'Italia y con el ruido amortiguado de la ciudad que a las diez de la noche todavía tenía gente en los bares y el olor de la noche piamontesa de mayo — algo entre la piedra vieja y la humedad del valle y la fritura de los restaurantes que cerraban tarde.
 
-En el papel, los números:
+Santi subió a la habitación a las nueve.
 
-Colle d'Izoard: dos mil trescientos sesenta metros de altitud. Catorce kilómetros y cien metros al siete punto tres de pendiente media.
+Comió lo que le había dejado el nutricionista del equipo — arroz, pollo, un poco de fruta — sin prestarle demasiada atención al sabor porque el duodécimo día de Giro el sabor no era información relevante. Luego abrió el cuaderno y la tablet donde Duchêne había guardado el perfil de la decimotercera etapa.
 
-Colle dell'Agnello: dos mil setecientos cuarenta y cuatro metros. El más alto de todo el Giro. Veintiún kilómetros al seis punto nueve. En mayo, con la nieve que los últimos quinientos metros del puerto todavía guardaban en los bordes de la carretera, el Agnello tenía esa atmósfera de frontera que los puertos altos tienen cuando el asfalto termina en un mundo donde el verde ya no existe y solo quedan la roca y el cielo.
+Ciento noventa y seis kilómetros de Pinerolo a Ceresole Reale.
 
-Lago Serrù: la llegada en alto a dos mil doscientos cuarenta metros. Doce kilómetros al cinco punto seis. Un lago glacial rodeado de montañas que en mayo todavía tenían la nieve de invierno en las caras norte.
+Tres puertos.
 
-Total: ciento noventa y seis kilómetros con tres puertos. El Giro empezaba aquí.
+El Izoard primero — catorce kilómetros al siete punto tres. Lo conocía: había estudiado el segmento en vídeo ocho veces. La rampa del kilómetro nueve era donde el grupo de GC se iba a fragmentar por primera vez.
 
----
+El Agnello después. Veintiún kilómetros al seis punto nueve. Dos mil setecientos cuarenta y cuatro metros de altitud. El puerto más alto del Giro y, en mayo, el puerto donde la nieve todavía guardaba los últimos quinientos metros en los bordes de la carretera y donde el frío de la alta montaña era el frío del invierno que todavía no se había ido del todo.
 
-Los primeros cien kilómetros fueron los cien kilómetros de la fuga.
+Y luego el Lago Serrù — los doce kilómetros finales al cinco punto seis donde el Giro iba a decir lo que tenía que decir sobre quién era quién en la montaña.
 
-Ocho corredores salieron en el kilómetro cuatro. El pelotón los dejó ir — nadie de GC en la fuga, nadie que representara amenaza real para la clasificación general. El Jumbo de Roglič controló la diferencia entre seis y nueve minutos durante los primeros ochenta kilómetros: suficiente para que los fugados creyeran que tenían opciones, no tanto como para que se relajaran.
+Santi lo miró todo una vez más. No para aprender algo nuevo — el perfil ya estaba en el cuerpo desde semanas antes. Lo miró con la misma atención con que se mira algo que se conoce bien y que mañana va a ser real.
 
-El pie del Izoard.
+Cerró la tablet.
 
-El pelotón se transformó.
+*Mañana el Agnello*, escribió en el cuaderno.
 
-Era la transformación que ocurre al comienzo de la primera montaña de una vuelta grande: el pelotón llano de ciento cuarenta corredores que durante nueve días había rodado como un organismo único se fragmentó en sus partes verdaderas. Los velocistas cedieron en el primer kilómetro. Los gregarios de llano cedieron en el tercero. Para el kilómetro seis del Izoard, el pelotón era ya un grupo de cuarenta con el Jumbo al frente tirando a un ritmo que en los siguientes cuatro kilómetros iba a reducir ese cuarenta a quince.
+*Conti está a 3:40. La Maglia no es mañana. Mañana es el primero de los candidatos de GC.*
 
-Broeckx, a la rueda de Santi:
+Debajo, sin pensar demasiado:
 
-— Hasta el ocho.
+*Noventa y cinco. Roglič también al noventa y cinco.*
 
-— Hasta el ocho.
+*Mañana se ve quién tiene el cinco.*
 
-Llegó al ocho y cedió sin drama — el gregario que ha hecho exactamente lo que tenía que hacer y que al hacerlo se convierte en alguien que bajará el puerto solo y llegará al final veinte minutos después y nadie recordará porque esa es la naturaleza del trabajo del gregario, que es invisible mientras sale bien y visible únicamente cuando sale mal.
-
-En la cima del Izoard: catorce corredores. Roglič, Nibali, Carapaz, Landa, Mollema, Majka, y otros ocho que en el Agnello iban a reducirse a la mitad.
-
-Hoffmann tiró durante los primeros cinco kilómetros del Agnello.
-
-Ilnur Zakarin, el ruso del Katusha-Alpecin que en el análisis de Ferretti había aparecido como *atacante de largo aliento en los puertos largos*, se fue en el kilómetro cuarenta de la carrera a la cima. No era el momento que Ferretti había calculado — era veinte kilómetros antes de lo esperado.
-
-El pelotón de GC no reaccionó.
-
-Santi tampoco.
-
-La diferencia de Zakarin creció: cuarenta segundos. Un minuto. Un minuto y treinta.
-
-Ferretti, por el pinganillo:
-
-— Dejalo ir. La diferencia no afecta la GC. No tenés los minutos de escapada de Conti para preocuparte.
-
-Santi dejó ir a Zakarin.
-
-Lo vio alejarse por la carretera del Agnello — la silueta pequeña del ruso disminuyendo en la distancia mientras el grupo de GC subía a su propio ritmo, sin apresurarse, con la paciencia del que sabe que el puerto tiene veintiún kilómetros y que quemar las piernas en el kilómetro cuatro para cerrar una brecha de un minuto y medio es el tipo de error que se paga en el último kilómetro.
-
-Cima del Agnello: dos mil setecientos cuarenta y cuatro metros.
-
-Zakarin en la fuga. El grupo de GC llegó con seis corredores: Roglič, Nibali, Santi, Carapaz, Landa y Mollema. La diferencia con Zakarin: dos minutos y cuarenta segundos.
-
-El descenso al lago.
-
----
-
-Los doce kilómetros al Lago Serrù fueron la primera vez en el Giro que Santi sintió el cuerpo respondiendo de una manera que no era esfuerzo sino flujo. Los cinco meses de trabajo en Mallorca y Livigno habían producido algo en las piernas que en los nueve días previos había estado contenido — guardado, gestionado, administrado con la disciplina del que sabe que el capital tiene que estar disponible para cuando lo necesite.
-
-El Lago Serrù era cuando lo necesitaba.
-
-Kilómetro dos de la llegada: seis corredores. Zakarin a dos minutos y veinte adelante.
-
-Kilómetro cuatro: Landa cedió. Mollema cedió. Cuatro corredores.
-
-Kilómetro seis: la pendiente sube del cinco al siete. El frío de los dos mil metros. El lago a la izquierda, quieto, sin viento, con la superficie que refleja las montañas de nieve con una exactitud que a esa altitud tiene algo de irreal.
-
-Nibali subió el ritmo.
-
-No un ataque — un incremento. Dos vatios más. Tres. La manera en que los escaladores de experiencia prueban sin comprometer: si el que va detrás responde, ahorran energía; si no responde, tienen la brecha sin haberla pagado cara.
-
-Santi respondió.
-
-Carapaz respondió.
-
-Roglič respondió.
-
-Cuatro corredores a siete kilómetros de la cima del Lago Serrù, subiendo juntos en la altitud de los dos mil metros con el silencio de los que están dando lo que tienen y lo saben.
-
-Kilómetro ocho: Carapaz aceleró.
-
-Era el tipo de aceleración que Santi ya había estudiado — la aceleración corta y brutal del ecuatoriano, la que en media montaña podía decidir una etapa y que en los puertos largos costaba más de lo que rendía. Cuarenta segundos de separación. Cinquenta. Roglič no respondió. Nibali tampoco.
-
-Santi fue.
-
-No con el sprint — con la progresión. Tres vatios. Cinco. Siete. La diferencia con Carapaz se mantuvo en cincuenta metros durante un kilómetro y luego empezó a cerrarse.
-
-Kilómetro diez: Santi alcanzó a Carapaz.
-
-El ecuatoriano lo miró. Santi no lo miró.
-
-Siguieron juntos durante doscientos metros. Luego Santi subió el ritmo un grado más y Carapaz no pudo ir con él.
-
-Kilómetro once: Santi solo.
-
-Dos minutos y dos segundos de diferencia con Zakarin. Faltaba un kilómetro.
-
-Santi apretó. No calculó. El cuerpo sabía lo que tenía que hacer y Santi confió en que el cuerpo lo hiciera — la confianza que en el ciclismo de montaña es la única táctica que funciona en el último kilómetro, cuando el cerebro ya no tiene recursos para el análisis y lo único que queda es la cadencia y la voluntad de mantenerla.
-
-El arco de llegada.
-
-Zakarin cruzó la línea. El cronómetro marcó el tiempo del ruso.
-
-Santi cruzó cincuenta y siete segundos después.
-
-Primero entre los candidatos de GC.
-
-Nibali llegó a un minuto y diecinueve. Roglič a un minuto y veintiocho. Carapaz a un minuto y cincuenta y cuatro.
-
----
-
-En el podio provisional de la etapa, Ferretti esperaba al pie del podio con la cara del hombre que ha calculado tres escenarios y acaba de ver cumplirse el mejor.
-
-— ¿Las piernas? — dijo.
-
-— Al noventa y tres — dijo Santi.
-
-No era lo que había dicho en la reunión de la mañana, que era noventa y cinco. Pero el noventa y tres después del Izoard y el Agnello y el Lago Serrù era un noventa y tres diferente al noventa y tres de después de nueve etapas — era el noventa y tres del corredor que ha usado el siete por ciento en exactamente el lugar correcto.
-
-— Mañana: Courmayeur — dijo Ferretti —. Ocho kilómetros y medio al nueve punto uno. El Mont Blanc al fondo.
-
-Santi asintió.
-
-— ¿Conti? — dijo.
-
-Duchêne revisó los números en el teléfono.
-
-— La Maglia Rosa virtual sigue con Conti. Tenemos que recuperar tres minutos y cuarenta segundos sobre él para tomarla.
-
-Tres cuarenta no se recuperan en una etapa de media montaña sin un ataque suicida.
-
-La Maglia Rosa seguía siendo la maglia de Valerio Conti.
-
-Por un día más.
+Cerró el cuaderno. Apagó la luz.
 
 ---
 
 *Giro de Italia 2019 — Segunda semana.*
 
-*Etapas 10–12: GC sin cambios entre favoritos.*
-*Etapa 13 (Lago Serrù): Zakarin gana la etapa. Santi 2º +0:57. Santi primero entre candidatos GC.*
-*Nibali llega +1:19 sobre Santi. Roglič +1:28 sobre Santi.*
+*Etapa 10 (Módena): Ackermann gana el esprint. GC sin cambios entre favoritos.*
+*Etapa 11 (Novi Ligure): Viviani gana. GC sin cambios entre favoritos.*
+*Etapa 12 (Pinerolo): Benedetti gana desde fuga. Monginevro sin selección en GC.*
 
-*GC tras E13 (favoritos):*
+*GC tras E12 (favoritos):*
 *1º Roglič (SLO / Jumbo-Visma)*
-*2º Nibali (ITA / Bahrain-Merida) +0:36*
-*3º Santi (COL / FCV-Procycling) +0:10*
-*4º Carapaz (ECU / Movistar) +2:22*
-*Maglia Rosa: Valerio Conti (UAE) — diferencia virtual con Santi: 3:40*
+*2º Nibali (ITA / Bahrain-Merida) +1:05*
+*3º Santi (COL / FCV-Procycling) +1:38*
+*4º Carapaz (ECU / Movistar) +3:30*
+*Maglia Rosa: Valerio Conti (UAE) — diferencia virtual con Santi: 5:08*
 
-*Mañana: Courmayeur. El Mont Blanc.*
+*Mañana: Pinerolo–Lago Serrù. El Izoard, el Agnello, el Serrù. El Giro empieza aquí.*
 
 ---

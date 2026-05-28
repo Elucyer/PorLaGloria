@@ -134,6 +134,24 @@ No los veinte del kilómetro diez. Los cuatro del kilómetro veintidós. La dife
 
 ---
 
+*En la sala de espera de la UCI del Hospital San Vicente, a las cuatro y veinte de la tarde:*
+
+Carmen tenía el teléfono horizontal sobre las rodillas.
+
+Le habían dicho que podía entrar a las seis — el turno de visita de la tarde. Faltaba hora y cuarenta.
+
+*— ¡La cima del Passo Rolle! ¡Nibali en primer lugar entre los candidatos de GC — cuatro segundos, señoras y señores, cuatro segundos entre el siciliano y la Maglia Rosa Santi Reyes! ¡El colombiano controló el daño, gente — el corredor que lleva diecinueve días de Giro y que en el decimonoveno día limita la pérdida a cuatro segundos tiene suficiente para mañana! ¡Pero el Monte Avena viene, señoras y señores — el último intento de Nibali antes del crono de Verona!*
+
+Carmen miró el número en la pantalla.
+
+Cuatro segundos.
+
+Hernando le había dicho el lunes — en los treinta segundos de lucidez entre la sedación y el sueño — que el corredor que había ganado el Stelvio ganaba el Giro. El Stelvio había sido de Santi.
+
+Cuatro segundos en el Rolle no eran el Stelvio.
+
+---
+
 El descenso a Primiero — los quince kilómetros de bajada técnica de la cara norte del Rolle que en el ciclismo de descenso eran los quince kilómetros donde la destreza del descenso superaba a la potencia del motor, donde el corredor que bajaba mejor recuperaba lo que el motor no había podido en la subida.
 
 Santi bajó.
@@ -143,6 +161,20 @@ No con el riesgo innecesario — con la precisión del corredor que conoce sus l
 Recuperó dos segundos en el descenso.
 
 Al pie: Nibali a dos segundos. El grupo de GC con Roglič a veintitrés segundos.
+
+---
+
+*En la sala de espera de la UCI, a las cinco menos cuarto:*
+
+*— ¡El grupo de GC entra en los cuatro kilómetros finales de San Martino di Castrozza! ¡Nibali al frente, Santi Reyes a dos segundos — el siciliano conserva dos segundos de ventaja todavía! ¡Señoras y señores, cuatro kilómetros en las Pale di San Martino — esas torres de dolomita de doscientos millones de años que miran desde arriba y que no saben que abajo se decide el Giro de Italia! ¡Queda poco, gente — queda muy poco!*
+
+Carmen levantó la vista del teléfono hacia la puerta de la UCI. Adentro, la línea del monitor seguía su ritmo. La enfermera pasó por el pasillo.
+
+*— ¡Nibali entra primero entre los candidatos! ¡Y a cuatro segundos, la Maglia Rosa Santi Reyes! ¡La diferencia en la GC no cambia, señoras y señores — el Giro sigue siendo del colombiano! ¡Mañana el Monte Avena — el último intento!*
+
+Carmen bajó el teléfono.
+
+Esperó a que llegaran las seis.
 
 ---
 

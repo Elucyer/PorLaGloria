@@ -130,6 +130,28 @@ La bajada fue técnica y rápida.
 
 ---
 
+*En la sala de espera de la UCI del Hospital San Vicente, a la una y veinte de la tarde:*
+
+Carmen tenía el teléfono encendido sobre las rodillas.
+
+Lo había sacado del bolso cuando la enfermera del turno de la mañana le había dicho que podía pasar a ver a Hernando a las tres. Faltaban hora y cuarenta minutos.
+
+*— ¡Nibali ataca en el kilómetro tres del Mortirolo! ¡El siciliano se va en el puerto de Pantani, señoras y señores! ¡Cuarenta metros, cincuenta — y la Maglia Rosa Santi Reyes no responde! ¡El colombiano deja ir a Nibali — el director deportivo le dice que controle, que no gaste aquí lo que va a necesitar en el Stelvio!*
+
+Carmen miró la imagen del teléfono: Nibali solo en la pendiente al catorce por ciento, el estilo en la montaña que era todo ángulos. Y más atrás, en el grupo, Santi.
+
+Quieto.
+
+Esperando.
+
+*— ¡Cincuenta y cinco segundos de diferencia en el kilómetro cinco, señoras y señores! ¡El Mortirolo se lo lleva Nibali — pero el Stelvio viene después, gente, y el Stelvio es otro idioma! ¡Santi Reyes controla porque el corredor que controla en el Mortirolo llega entero al Stelvio!*
+
+Carmen bajó el volumen. Miró la puerta de la UCI — el cristal esmerilado, el pasillo blanco detrás.
+
+Volvió a mirar el teléfono.
+
+---
+
 **La Gavia: 2.618 metros. El techo frío del Giro.**
 
 Entre el Mortirolo y la Gavia hay un tramo de veinte kilómetros por el fondo del Valle Camonica — la carretera plana que después de la bajada del Mortirolo parece casi cómica, como si el valle estuviera descansando entre dos monstruos y no supiera cómo disculparse.
@@ -163,6 +185,24 @@ Santi bajó detrás de Nibali, con la concentración de quien sabe que en este d
 En el fondo del descenso: Prato allo Stelvio.
 
 El kilómetro cero del Stelvio.
+
+---
+
+*En la sala de espera de la UCI, a las tres menos cuarto:*
+
+La enfermera la llamó exactamente a las tres.
+
+Carmen entró. Cinco minutos — el tiempo que el protocolo de la UCI permitía. Hernando estaba despierto. No le preguntó del Giro. Ella no le dijo. Hablaron de cosas pequeñas — la temperatura del cuarto, el té que Carmen había traído del bar de abajo, la ventana que daba al patio del hospital. Cinco minutos que duraron lo que duran las cosas que no alcanzan.
+
+Salió a las tres y seis.
+
+Se sentó de nuevo en la silla de plástico anaranjado de la sala de espera y encendió el teléfono.
+
+*— ¡El pie del Stelvio! ¡Cuatro corredores en el valle después de la bajada de la Gavia — Nibali, Santi Reyes, Roglič, Mollema — y el Colle dello Stelvio delante! ¡Veintiún kilómetros y medio, señoras y señores, cuarenta y ocho curvas, dos mil setecientos cincuenta y ocho metros de altitud! ¡El Giro se juega ahora — en este asfalto, en estas curvas, en este frío de mayo que en el Stelvio no es el frío de mayo sino el frío del invierno que no se ha ido todavía!*
+
+Carmen subió un poco el volumen.
+
+Y esperó.
 
 ---
 
@@ -281,6 +321,50 @@ La brecha creció.
 Doce metros. Veinte. Treinta.
 
 Santi solo en el kilómetro diecisiete del Stelvio.
+
+---
+
+*En la sala de espera de la UCI del Hospital San Vicente, a las cuatro y treinta de la tarde:*
+
+Carmen tenía el teléfono horizontal sobre las rodillas.
+
+La pantalla pequeña del canal deportivo con el volumen casi al mínimo — lo justo para escuchar al comentarista sin que el sonido llegara a la puerta de la UCI ni a la enfermera que pasaba por el pasillo del cuarto piso con la bandeja de las cuatro.
+
+La imagen del helicóptero mostraba la carretera del Stelvio desde arriba: las curvas numeradas en la ladera blanca, la nieve continua en los bordes, y dos corredores juntos todavía en la curva dieciséis — Nibali y Santi — con Roglič comenzando a ceder a tres metros.
+
+*— ¡Kilómetro quince del Stelvio! ¡Roglič cede, señoras y señores — el esloveno pierde la rueda de Nibali! ¡Solo dos corredores en la parte alta de la carretera más alta del Giro — Nibali y la Maglia Rosa Santi Reyes! ¡El campeón del crono de San Marino ya no puede seguir el ritmo — la montaña cobra lo que el llano prestó!*
+
+Carmen vio a Roglič quedarse.
+
+Tres metros. Cinco.
+
+*— ¡Curva dieciséis! ¡Quince! ¡Nibali y Santi Reyes solos en el Stelvio a dos mil cuatrocientos metros! ¡Cinco kilómetros para la cima, gente — cinco kilómetros donde el Giro de Italia se va a decidir! ¡Y todavía nadie sabe quién va a atacar primero!*
+
+Carmen bajó la vista del teléfono por un segundo. Luego la subió.
+
+La imagen del helicóptero mostraba la carretera del Stelvio desde arriba: las curvas numeradas en la ladera blanca, la nieve continua en los bordes, y un corredor solo en el asfalto gris entre esas dos paredes de nieve.
+
+Solo.
+
+*— ¡En la curva doce del Colle dello Stelvio, señoras y señores, a más de dos mil cuatrocientos metros de altitud, Santiago Reyes ataca! ¡Va solo! ¡El líder del Giro de Italia deja a Nibali y sale solo hacia la cima! ¡Diecinueve años en el Stelvio en mayo, gente, con la nieve en los bordes de la carretera y la Maglia Rosa en los hombros!*
+
+Carmen miró la pantalla.
+
+La brecha en la imagen: diez metros. Quince. Veinte.
+
+*— ¡Nibali intenta responder! ¡El siciliano que ha ganado dos Giros y que conoce esta montaña desde antes de que Santi Reyes aprendiera a montar en bicicleta — Nibali sube los vatios y no puede! ¡El colombiano se va! ¡Solo en el Stelvio!*
+
+Carmen levantó la vista del teléfono.
+
+La puerta de metal y cristal esmerilado de la UCI estaba a cuatro metros. Por el cristal se veía el pasillo interior — las luces blancas, la cama cuatro, el monitor cardíaco con su línea de siempre.
+
+Bajó más el volumen.
+
+*— ¡Curva diez! ¡Nueve! ¡Treinta metros, cuarenta — la diferencia crece y Nibali no puede cerrarla! ¡Santi Reyes está solo en el Stelvio con cinco kilómetros para la cima, gente! ¡El corredor de San José de la Montaña, Antioquia, Colombia, solo en la carretera más alta del Giro de Italia!*
+
+No le dijo a nadie que su hijo estaba en el Stelvio.
+
+No hacía falta decírselo a nadie.
 
 ---
 

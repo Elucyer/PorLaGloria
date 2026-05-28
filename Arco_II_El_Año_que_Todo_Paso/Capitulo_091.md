@@ -642,31 +642,67 @@ Entró.
 
 ---
 
+*La tarde del dos de junio, en el Hospital San Vicente de Paúl, Medellín:*
+
+Carmen había encendido el televisor del cuarto a las once y veinte de la mañana.
+
+El televisor pequeño de la pared que tres días atrás había pedido que pusieran — la solicitud que había pasado por la enfermera jefe, por el médico de turno, que había dicho que sí con la condición de que el volumen fuera bajo y que si el paciente necesitaba descansar la televisión se apagaba. La solicitud que Carmen había hecho sabiendo que el Giro iba a terminar mientras Hernando estuviera en esta cama y que Hernando iba a verlo desde aquí o no iba a verlo.
+
+Hernando estaba despierto.
+
+No con la lucidez completa de los días buenos — con la lucidez intermitente del segundo ciclo de tratamiento, los momentos donde todo era claro y los momentos donde el cuerpo pedía cerrar los ojos antes de volver. Pero estaba despierto. Los ojos de Hernando en la pantalla.
+
+En la pantalla: el interior de la Arena di Verona.
+
+El anfiteatro romano que en la imagen del helicóptero mostraba la estructura oval llena hasta los ocho mil asientos — las gradas con las banderas y los colores, la masa de humanidad dentro de la piedra de dos mil años, el podio al centro con la alfombra roja y los tres escalones.
+
+*— ¡Señoras y señores, estamos en la Arena di Verona para la ceremonia de premiación del Giro de Italia de 2019! ¡Y el hombre que va a subir al escalón más alto de este podio es un colombiano, gente! ¡Un colombiano de diecinueve años! ¡Un corredor de Antioquia que en tres semanas de mayo italiano subió el Stelvio y el Mont Blanc y el Colle dell'Agnello con la Maglia Rosa!*
+
+Hernando miraba la pantalla.
+
+Carmen miraba a Hernando.
+
+*— ¡Roglič al podio! ¡El esloveno del Jumbo-Visma en el tercer puesto! ¡Y Nibali — el gran Nibali, dos Giros ganados, que peleó hasta Verona y que en el escalón del segundo tiene la cara del profesional que lo dio todo! ¡Y ahora —*
+
+Pausa del comentarista. La pausa de los que saben que el silencio también narra.
+
+*— ¡Santiago Reyes Cardona! ¡Colombia! ¡FCV-Procycling! ¡Campeón del Giro d'Italia de 2019!*
+
+El sonido de ocho mil personas dentro del anfiteatro de piedra romana llegó a través del televisor pequeño del cuarto de la UCI del Hospital San Vicente de Paúl de Medellín a las once y treinta y dos de la mañana del dos de junio.
+
+Hernando Reyes lo escuchó.
+
+En la pantalla: Santi en el escalón más alto. La Maglia Rosa en los hombros. El trofeo en las manos. El himno de Colombia en el interior de la Arena.
+
+Hernando no apartó los ojos de la pantalla durante los cuatro minutos que duró la ceremonia. No habló. No se movió. El monitor cardíaco en el ritmo de siempre — el ritmo que los médicos llamaban *estable* y que en este cuarto era el sonido de fondo de todo lo demás.
+
+Cuando la imagen mostró a Santi buscando la cámara y mirándola — mirándola directamente, con la quietud del corredor que en el escalón más alto del Giro sabe exactamente a dónde tiene que mirar — Hernando dijo:
+
+— Bien.
+
+Y cerró los ojos.
+
+Carmen esperó.
+
+Hernando dormía. La saturación al noventa y cuatro. El ritmo de la respiración que era el ritmo del sueño verdadero.
+
+Carmen apagó el volumen del televisor. Dejó la imagen.
+
+---
+
 *La noche del dos de junio, en el Hospital San Vicente de Paúl, Medellín:*
 
-Carmen apagó el teléfono y lo puso en el bolsillo del abrigo.
+Carmen apagó el teléfono después de hablar con Santi y lo puso en el bolsillo del abrigo.
 
-El abrigo de la UCI — el abrigo que había traído el primer día porque los pasillos del hospital tenían el aire acondicionado de los hospitales colombianos que en las áreas clínicas era frío independiente de la temperatura afuera, y que en seis días había sido la misma prenda que en el hospital se convierte en parte del uniforme de la vigilia.
+El abrigo de la UCI — el abrigo del primer día, la prenda que en seis días se había convertido en parte del uniforme de la vigilia.
 
-Entró a la UCI.
+Entró al cuarto.
 
 Hernando dormía.
 
-La cara de Hernando dormido que Carmen había aprendido a leer en cuarenta y dos años de matrimonio con la precisión con que se aprenden los idiomas de una sola persona — el ritmo de la respiración que era el ritmo del sueño verdadero, la posición de las manos sobre el cobertor que era la posición de relax, la expresión de la cara que sin la máscara diurna de Hernando era la cara de un hombre que estaba descansando de algo que le había costado.
+En el televisor pequeño de la pared la imagen del podio de la Arena di Verona seguía congelada — el canal deportivo la había repetido cuatro veces desde las seis de la tarde italiana, y a cada repetición la imagen siempre terminaba en lo mismo: Santi en el escalón más alto, la Maglia Rosa, el himno.
 
-En el televisor pequeño de la pared — el televisor del cuarto de UCI que Carmen había pedido que pusieran tres días antes — la imagen congelada del podio de la Arena di Verona. El canal deportivo que transmitía la carrera había repetido el podio cuatro veces desde las seis de la tarde.
-
-La imagen de Santi en el escalón más alto.
-
-La Maglia Rosa.
-
-El himno.
-
-Hernando lo había visto a las cinco y media — quince minutos de lucidez antes de volver a dormirse, el monitor cardiaco igual, la saturación al noventa y cuatro, los ojos de Hernando Reyes abiertos y enfocados en la pantalla pequeña del televisor del cuarto de UCI del Hospital San Vicente de Paúl de Medellín donde su hijo ganaba el Giro d'Italia a diecinueve años.
-
-Había dicho *bien*.
-
-Y se había dormido.
+La imagen que Hernando había visto a las once y media de la mañana con los ojos abiertos y la concentración de siempre.
 
 Carmen se sentó en la silla junto a la cama.
 

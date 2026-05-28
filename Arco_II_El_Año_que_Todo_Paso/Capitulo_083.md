@@ -146,6 +146,66 @@ Kilómetro seis: Nibali, Santi, Carapaz. Tres.
 
 La diferencia con Zakarin: un minuto y cuarenta y dos.
 
+---
+
+*En el apartamento de Laureles, a las dos y cincuenta de la tarde:*
+
+Hernando había dibujado los tres puertos en la primera página del cuaderno — el Izoard, el Agnello, el Serrù — con los perfiles de memoria desde el dossier que había imprimido cuatro días antes. Tres montañas. Seis horas de carrera para llegar a ellas.
+
+La pantalla mostraba la cima del Izoard.
+
+*— ¡La cima del Colle dell'Izoard! ¡A dos mil trescientos sesenta metros sobre el mar el grupo de candidatos a la GC llega unido! ¡Señoras y señores: Roglič, Nibali, Santi Reyes, Carapaz — los cuatro grandes del Giro sobre la misma rueda en la cima del primer puerto grande del día! ¡El Izoard no hizo la selección, gente — la selección viene después! ¡El Agnello: veintiún kilómetros al seis noventa — y después el Lago Serrù! ¡La etapa está abierta todavía!*
+
+Hernando escribió: *Cima Izoard 14h52. GC unido. Dif. fugados: 4:20.*
+
+Dejó el bolígrafo sobre la mesa. Miró el perfil del Agnello en la página siguiente.
+
+Todavía faltaba lo más difícil.
+
+---
+
+*En el apartamento de Laureles, a las cuatro y cincuenta de la tarde:*
+
+Hernando tenía el cuaderno en la rodilla con los splits de la jornada anotados desde el pie del Izoard: los tiempos de cada puerto, la diferencia con Zakarin kilómetro a kilómetro, la proyección que él mismo había calculado sobre si tres corredores subiendo juntos podían cerrar un minuto cuarenta y dos en seis kilómetros de subida al cinco y medio.
+
+*— ¡El pie del Lago Serrù! ¡El grupo de GC completa el descenso del Agnello y entra en el último puerto del día! ¡Doce kilómetros al cinco punto seis, señoras y señores! ¡Santi Reyes, Roglič, Nibali, Carapaz — los cuatro juntos todavía al pie del Serrù! ¡Y Zakarin tiene un minuto cuarenta y dos arriba — ¿alcanza el tiempo, gente? ¡En el Giro la calculadora siempre miente un poco — lo que no miente son las piernas!*
+
+Hernando calculó la diferencia en la columna del cuaderno. Un minuto cuarenta y dos en doce kilómetros al cinco y medio. Matemáticamente sí. Pero en el Giro la matemática no era el único factor.
+
+En la pantalla: el lago Serrù a la izquierda del cuadro, el azul glacial del agua de deshielo. Tres corredores en la carretera: Nibali adelante, Santi segundo, Carapaz tercero. El helicóptero de la transmisión tomaba el plano desde arriba y el lago entero entraba en el encuadre — el lago y la carretera y los tres corredores como puntos de color en la gris del asfalto de alta montaña.
+
+Carmen estaba en el sofá, a su lado. Hacía cuatro etapas que Carmen veía el Giro desde el sofá del salón y ninguno de los dos había comentado el cambio.
+
+*— ¡Señoras y señores, seis kilómetros para el arco de llegada del Lago Serrù! ¡Nibali, el gran siciliano! ¡Richard Carapaz del Movistar! ¡Y Santi Reyes, el colombiano del FCV-Procycling, que lleva trece etapas de Giro en las piernas y que en este lago glacial de los Alpes todavía tiene piernas, gente, todavía tiene piernas! ¡Roglič viene a cuarenta y cinco segundos — el líder de la GC pagando en la montaña lo que ganó en San Marino!*
+
+Hernando anotó el split.
+
+*— ¡Dos minutos y dos segundos de diferencia con Zakarin! ¡El ruso del Katusha-Alpecin espera arriba en la meta y hay dos minutos que cerrar en seis kilómetros! La calculadora dice que es posible si los tres candidatos empujan — pero en el Giro la calculadora siempre miente un poco. Lo que no miente son las piernas.*
+
+— Va Carapaz — dijo Hernando, sin apartar los ojos de la pantalla.
+
+Carmen lo miró.
+
+— ¿Cómo sabés?
+
+— Lleva dos kilómetros en posición de ataque — dijo Hernando —. El ecuatoriano ataca cuando cree que nadie lo espera.
+
+Miró la pantalla con la evaluación de siempre — la misma con que había leído el pelotón durante doce años de gregario, la misma con que leía a Santi desde el sofá de Laureles: no la emoción del aficionado sino el cálculo del corredor que ha estado ahí y que sabe lo que la imagen de televisión no dice pero que el cuerpo de un corredor dice siempre.
+
+*— ¡Kilómetro ocho! ¡Carapaz! ¡El ecuatoriano ataca! ¡Brutal, gente, brutal — cuarenta metros en veinte segundos! ¡Nibali no puede! ¡Y Santi Reyes...*
+
+Hernando dejó el bolígrafo.
+
+*— ¡Santi Reyes va! ¡El colombiano sale detrás de Carapaz! ¡La progresión, la progresión del escalador que conoce su ritmo y lo aplica sin dudar! ¡Cien metros entre los dos, ochenta, sesenta — Santi Reyes está cerrando!*
+
+Carmen tenía la mano sobre la boca.
+
+*— ¡Kilómetro nueve! ¡Juntos! ¡Santi Reyes y Carapaz juntos en el Lago Serrù! ¡Nibali suelta la rueda — el siciliano cede — y son dos! ¡Dos corredores de Sudamérica en los Alpes italianos peleando la etapa del Giro de Italia!*
+
+Hernando abrió una nueva línea en el cuaderno.
+
+---
+
 Quilómetro ocho: Carapaz aceleró.
 
 Era el ataque que Ferretti había anticipado — la aceleración corta y brutal del ecuatoriano que en los puertos largos podía desestabilizar incluso a los corredores con más fondo si el timing era correcto. Carapaz abrió cuarenta metros en veinte segundos. Cincuenta metros.
@@ -289,9 +349,9 @@ Apagó la lámpara.
 
 *GC tras E13 (favoritos):*
 *1º Roglič (SLO / Jumbo-Visma)*
-*2º Nibali (ITA / Bahrain-Merida) +0:36*
-*3º Santi (COL / FCV-Procycling) +0:10*
-*4º Carapaz (ECU / Movistar) +2:22*
+*2º Santi (COL / FCV-Procycling) +0:10*
+*3º Nibali (ITA / Bahrain-Merida) +0:56*
+*4º Carapaz (ECU / Movistar) +3:56*
 *Maglia Rosa: Valerio Conti (UAE) — diferencia virtual con Santi: 3:40*
 
 *Mañana: Courmayeur. El Mont Blanc. La Maglia Rosa virtual a 3:40 de distancia.*

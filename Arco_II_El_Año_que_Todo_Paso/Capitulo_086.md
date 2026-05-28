@@ -350,8 +350,8 @@ Quedaban seis días.
 
 *GC en el segundo descanso (tras E15):*
 *1º Santi (COL / FCV-Procycling) — Maglia Rosa*
-*2º Roglič (SLO / Jumbo-Visma) +0:28*
-*3º Carapaz (ECU / Movistar) +0:45*
-*4º Nibali (ITA / Bahrain-Merida) +1:20*
+*2º Roglič (SLO / Jumbo-Visma) +1:01*
+*3º Nibali (ITA / Bahrain-Merida) +1:50*
+*4º Carapaz (ECU / Movistar) +2:59*
 
 ---

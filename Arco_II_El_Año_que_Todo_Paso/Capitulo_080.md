@@ -122,6 +122,50 @@ Roglič estaba siendo todavía mejor de lo proyectado.
 
 No como satisfacción. Como confirmación de que el cálculo era claro y que lo que venía en los seis kilómetros de subida era exactamente lo que era: la única parte del crono donde Santi tenía la ventaja real.
 
+---
+
+*En el apartamento de Laureles, a las tres y veinte de la tarde:*
+
+Hernando tenía el cuaderno abierto en la mesa de centro.
+
+Dos columnas. La izquierda: los tiempos de Roglič, kilómetro a kilómetro, que el canal deportivo había dado durante la salida del esloveno veinte minutos atrás. La derecha: los tiempos de Santi, que el comentarista había ido dando desde el kilómetro siete.
+
+*— ¡Cuatro minutos y tres segundos en el kilómetro siete para Santi Reyes! ¡El colombiano del FCV-Procycling está en el tiempo proyectado, señoras y señores! ¡Roglič al mismo punto hizo tres cuarenta y tres — veinte segundos de diferencia en el llano, gente, veinte segundos que la subida va a tener que responder! ¡El crono no termina en el kilómetro siete — queda la roca, queda San Marino!*
+
+Hernando escribió *7km: 4'03* en la columna derecha. La izquierda decía *7km: 3'43 (Roglič)*. Veinte segundos en el llano. Exactamente lo que el análisis proyectaba. Cerró el bolígrafo por un momento y miró la pantalla.
+
+Carmen no había entrado todavía desde la cocina. Hernando no la llamó.
+
+*— ¡Doce minutos y cuarenta en el kilómetro doce para Santi Reyes! ¡El colombiano del FCV-Procycling en camino hacia la roca de San Marino con cuarenta y cinco segundos de diferencia sobre Roglič en el referencial! ¡Señoras y señores, cuarenta y cinco segundos después de doce kilómetros — y ahora la subida, gente, ahora la subida donde los escaladores cobran lo que perdieron en el llano!*
+
+Hernando escribió *12km: 12'40 / −0:45 Roglič* en la columna derecha.
+
+*— ¡Kilómetro trece! ¡Santi Reyes deja el llano y pone la rueda en la rampa de San Marino! ¡Trece minutos y cincuenta y ocho — la subida empieza ahora, gente, la subida empieza ahora! ¡Roglič al mismo punto fue a doce cincuenta y seis — seis kilómetros al ocho por ciento separando al especialista del escalador! ¡Aquí es donde el colombiano tiene que decir algo, señoras y señores!*
+
+Hernando no escribió nada. Miró la pantalla.
+
+Carmen entró desde la cocina con el té del oncólogo Urquijo.
+
+— ¿Cómo va?
+
+— Bien — dijo Hernando —. Roglič fue muy fuerte en el llano. Pero esto se decide en la subida.
+
+*— ¡Kilómetro catorce! ¡Santi Reyes está subiendo la rampa de San Marino y los tiempos están cayendo a su favor! ¡Está ganando terreno a Roglič! ¡Nibali al mismo punto: dieciséis minutos y once — Santi está por delante de Nibali en el referencial de la subida! ¡El escalador colombiano recupera en el ocho por ciento lo que el especialista esloveno hizo en el llano!*
+
+Carmen dejó el té en la mesa y se sentó en el sofá sin apartar los ojos de la pantalla.
+
+Hernando escribió el nuevo split. Calculó. La diferencia con Roglič, si este ritmo se mantenía en los cuatro kilómetros restantes, iba a quedar entre un minuto veinte y un minuto cuarenta. Más de lo proyectado por Duchêne — Roglič había sido mejor en el llano de lo esperado. Pero dentro de lo que la montaña podía compensar.
+
+*— ¡Kilómetro dieciséis! ¡La roca de San Marino visible desde la carretera! ¡Dos kilómetros para el arco de llegada y Santi Reyes está al noventa y seis, gente, al noventa y seis después de doce kilómetros de contrarreloj — miren esa cadencia, miren esa cadencia en el ocho por ciento! ¡Eso es lo que hace el escalador cuando llega a la rampa — eso es Colombia en los Alpes!*
+
+— La montaña lo es todo — dijo Hernando, en voz baja.
+
+No le estaba hablando a Carmen.
+
+Se estaba dando la razón a sí mismo.
+
+---
+
 La subida final de San Marino.
 
 ---
