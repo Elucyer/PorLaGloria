@@ -144,37 +144,61 @@ A las dos y cincuenta y tres, durmió.
 
 ---
 
-*La misma noche, a las once y cuarenta y tres, hora colombiana:*
+*La misma noche, en el Hospital San Vicente de Paúl:*
 
-El teléfono de Carmen sonó.
+A las ocho de la tarde, Hernando había empezado con escalofríos.
 
-Era el número del Hospital San Vicente Fundación — el número del hospital que Carmen tenía guardado desde la primera consulta con el doctor Urquijo y que en las últimas semanas había aprendido a reconocer con la rapidez de los números que uno esperaría y no esperaría al mismo tiempo.
+No de golpe — con la progresión de las cosas del cuerpo que se anuncian antes de llegar: primero el frío en las manos que Carmen notó cuando le pasó el té de las ocho, luego el temblor en los hombros que Hernando intentó ignorar con la economía del hombre que no considera el malestar propio información relevante para compartir. Carmen lo vio todo.
 
-Carmen respondió.
+A las nueve y cuarto le tomó la temperatura.
 
-— ¿Señora Carmen Cardona de Reyes?
+Treinta y ocho y siete.
 
-— Sí.
+A las diez y veinte, treinta y nueve y dos.
 
-— La llamamos del área de urgencias del Hospital San Vicente. Su esposo, el señor Hernando Reyes, ingresó hace veinte minutos con dificultad respiratoria severa. Estamos evaluando. Necesitamos que venga.
+Carmen fue a la habitación, buscó el bolso y las llaves del Renault Logan, y dijo:
 
-Carmen no dijo nada durante un segundo.
+— Nos vamos al San Vicente.
 
-— ¿Cómo está?
+Hernando no discutió. Era la señal de que el cuerpo estaba en un estado que Hernando reconocía como serio — no había discusión posible con treinta y nueve y dos durante el segundo ciclo, y Hernando Reyes sabía distinguir las batallas que valía la pena pelear.
 
-— Estable por el momento. Pero necesita su presencia.
+Llegaron a urgencias a las once menos cuarto.
 
-— Ya voy.
+Hernando puso la mano en el brazo de Carmen en la entrada y dijo *esperame afuera* con el tono que no admitía discusión. Carmen lo dejó entrar solo y se sentó en las sillas de plástico anaranjado de la sala de espera — las sillas del hospital colombiano, el plástico sin temperatura propia a las once de la noche de un domingo.
 
-Colgó.
+Esperó.
 
-Se levantó de la cama con la rapidez de quien ha estado preparada para esto aunque no quisiera estarlo — la preparación que en las semanas del segundo ciclo de quimioterapia había existido en el fondo como la preparación para lo que podía pasar pero que uno espera que no pase.
+El reloj de la pared: once y ocho. Once y veinte. Once y cuarenta.
 
-Buscó el abrigo. Las llaves del carro. El bolso con los documentos.
+Los otros en la sala de espera — la mujer con el niño dormido en el regazo, el hombre mayor con la bolsa de plástico de las pertenencias. La sala de espera del hospital de madrugada donde todos esperan algo diferente con la misma resignación de quien sabe que esperar es lo único que puede hacer.
 
-Miró el teléfono.
+A las once y cuarenta y tres, una mujer de bata blanca salió por la puerta de metal del área de urgencias.
 
-Santi.
+— ¿Señora Carmen Cardona?
+
+Carmen se levantó.
+
+La doctora era joven — treinta y pocos años, el pelo recogido, la expresión de quien ha dado este tipo de noticias antes y ha aprendido que la claridad es la única forma de respeto que el momento permite.
+
+— Soy la doctora Morales, del servicio de urgencias. — Le tendió la mano. — Acompáñeme un momento, por favor.
+
+Fueron a un rincón de la sala. No a un consultorio — al rincón donde se podía hablar sin que los demás oyeran.
+
+— El señor Hernando tiene fiebre alta y dificultad respiratoria. El hemograma indica una infección pulmonar — lo que encaja con el segundo ciclo de quimioterapia que lo tiene con las defensas bajas. Está estable por ahora, pero hemos decidido trasladarlo a la UCI para monitoreo mientras los antibióticos empiezan a actuar.
+
+Carmen escuchó la frase con la atención de quien sabe que no puede perderse ninguna palabra.
+
+— ¿Puedo verlo?
+
+— Esta noche no. El traslado a la UCI requiere que el área esté cerrada para visitas. Mañana a partir de las diez tiene permitido el ingreso.
+
+La doctora le puso la mano brevemente en el brazo — el gesto profesional que en ese rincón de la sala de espera a las once y cuarenta y tres era lo correcto.
+
+— Va a estar bien cuidado — dijo.
+
+Carmen asintió.
+
+La doctora volvió al área de urgencias. Carmen se quedó de pie en el rincón.
 
 Pensó en llamar a Santi.
 
@@ -182,21 +206,15 @@ Pensó en Santi en Lovere. En el Stelvio mañana. En lo que Hernando había dich
 
 No antes.
 
-Carmen puso el teléfono en el bolso.
+Carmen no llamó.
 
-Salió del apartamento.
+Se sentó de nuevo en la silla anaranjada de plástico. Puso el bolso sobre las rodillas. Miró el reloj de la pared.
 
-El ascensor del edificio de Laureles a las once y cuarenta y tres de la noche — el ascensor de los edificios de Laureles que en esa hora tenía el silencio de los espacios que no esperan visitas, con el olor específico del cloro del aseo de la noche y la luz fría del tubo fluorescente que en el espejo del ascensor devolvía la imagen de una mujer de cincuenta y ocho años con el abrigo mal puesto y las llaves en la mano y la cara de quien va adonde tiene que ir sin importar si quiere ir.
+Las once y cuarenta y siete de la noche.
 
-El carro en el garaje.
+En Italia eran las seis y cuarenta y siete de la madrugada del lunes.
 
-Carmen no lloraba — no era el momento de llorar. El momento de llorar era después, cuando hubiera pasado lo que tuviera que pasar y cuando la información fuera completa y cuando Hernando estuviera en algún lado y ella pudiera estar en el pasillo del hospital y llorar en silencio con la mano sobre la boca para que el sonido no llegara a ningún lado.
-
-Ahora: el carro, la carretera, el hospital.
-
-La avenida Las Vegas en la medianoche de Medellín — los buses todavía circulando, los rumberos de los bares del parque Envigado saliendo a esta hora, el tráfico mínimo de la ciudad que no duerme del todo pero que a la medianoche de un domingo tiene solo lo necesario en la carretera.
-
-Carmen condujo.
+En menos de cuatro horas salía el equipo para el Stelvio.
 
 ---
 
