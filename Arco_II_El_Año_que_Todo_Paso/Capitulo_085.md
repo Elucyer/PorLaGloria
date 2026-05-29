@@ -186,27 +186,63 @@ Pero intentaría.
 
 ---
 
-*La noche del veintisiete de mayo, en Laureles:*
+*La noche del veintisiete de mayo, en el Hospital San Vicente de Paúl:*
 
-A las once y cuarenta y tres de la noche, el teléfono de Carmen sonó.
+A las ocho de la tarde, Hernando había empezado con escalofríos.
 
-Era el número del Hospital San Vicente. El número que en los meses del tratamiento del oncólogo Urquijo había aparecido en la pantalla tres veces — dos para confirmar turnos, una para cambiar el horario de un control — y que esta noche producía en Carmen, antes de contestar, la certeza de que esta llamada era diferente a las otras.
+No de golpe — con la progresión de las cosas del cuerpo que se anuncian antes de llegar: primero el frío en las manos que Carmen notó cuando le pasó el té de las ocho, luego el temblor en los hombros que Hernando intentó ignorar con la economía del hombre que no considera el malestar propio información relevante para compartir. Carmen lo vio todo.
+
+A las nueve y cuarto le tomó la temperatura.
+
+Treinta y ocho y siete.
+
+A las diez y veinte, treinta y nueve y dos.
+
+Carmen fue a la habitación, buscó el bolso y las llaves del Renault Logan, y dijo:
+
+— Nos vamos al San Vicente.
+
+Hernando no discutió.
+
+Era la señal de que el cuerpo estaba en un estado que Hernando reconocía como serio: no había discusión posible con treinta y nueve y dos durante el segundo ciclo de quimioterapia, y Hernando Reyes, que en cuarenta y dos años de vida había aprendido a distinguir las batallas que valía la pena pelear, sabía que esta no era una de ellas.
+
+Llegaron a urgencias del San Vicente a las once menos cuarto.
+
+Carmen no entró con él hasta el mostrador de triage — Hernando puso la mano en el brazo de ella cuando estaban en la puerta y dijo *esperame afuera* con el tono que no admitía discusión, el tono de Hernando para las cosas que le pertenecían a él y que no necesitaban testigo. Carmen lo dejó entrar solo. Se sentó en las sillas de plástico de la sala de espera de urgencias del San Vicente de Paúl — las sillas anaranjadas del hospital colombiano, las mismas de todos los hospitales, el plástico que no tiene temperatura propia sino la temperatura del ambiente y que a las once de la noche en el pasillo de urgencias era el frío del aire acondicionado del piso.
+
+Esperó.
+
+El reloj de la pared: once y ocho. Once y veinte. Once y cuarenta.
+
+Los otros en la sala de espera — la mujer con el niño dormido en el regazo, el hombre mayor con la bolsa de plástico de las pertenencias, el joven con el tobillo vendado en papel. La sala de espera del hospital de madrugada que en Colombia tenía esa atmósfera de los lugares donde el tiempo se suspende y donde todos esperan algo diferente pero todos esperan con la misma resignación de quien sabe que esperar es lo único que puede hacer.
+
+A las once y cuarenta y tres, una mujer de bata blanca salió por la puerta de metal del área de urgencias y miró hacia la sala de espera.
 
 — ¿Señora Carmen Cardona?
 
-— Sí.
+Carmen se levantó.
 
-— Le habla la doctora Morales del servicio de urgencias del San Vicente. Su esposo, el señor Hernando Reyes, llegó esta noche a urgencias con fiebre alta y dificultad respiratoria. Está estable, pero hemos tomado la decisión de trasladarlo a la Unidad de Cuidados Intensivos para monitoreo.
+La doctora era joven — treinta y pocos años, el pelo recogido, la expresión de quien ha dado este tipo de noticias antes y que ha aprendido que la claridad es la única forma de respeto que el momento permite.
 
-La doctora continuó hablando — el protocolo, los procedimientos, la causa probable que el segundo ciclo de quimioterapia había debilitado el sistema inmunológico y que había una infección pulmonar que había que tratar con antibióticos de espectro amplio — pero Carmen ya no procesaba las palabras. Procesaba el hecho. Hernando en la UCI. Esta noche. Mientras en Lovere, a once mil kilómetros, Santi dormía o intentaba dormir con el Stelvio mañana y la Maglia Rosa en los hombros y sin saber.
+— Soy la doctora Morales, del servicio de urgencias. — Le tendió la mano. — Acompáñeme un momento, por favor.
 
-— ¿Puedo ir a verlo? — dijo Carmen.
+Fueron a un rincón de la sala — no a un consultorio, no había tiempo ni protocolo para eso, sino al rincón donde la doctora podía hablar sin que los demás en la sala de espera oyeran.
 
-— Esta noche no. Mañana a partir de las diez de la mañana tiene permitido el ingreso a la UCI.
+— El señor Hernando tiene fiebre alta y dificultad respiratoria. El hemograma indica que hay una infección — probablemente pulmonar, lo que encaja con el segundo ciclo de quimioterapia que lo tiene con las defensas bajas. Está estable ahora, pero hemos decidido trasladarlo a la Unidad de Cuidados Intensivos para monitoreo durante la noche y mientras los antibióticos empiezan a actuar.
 
-Carmen colgó.
+La doctora continuó hablando — el protocolo, los antibióticos de espectro amplio, la causa probable, lo que el oncólogo Urquijo iba a saber en la mañana — pero Carmen ya no procesaba las palabras. Procesaba el hecho. Hernando en la UCI. Esta noche. Mientras en Lovere, a once mil kilómetros, Santi dormía o intentaba dormir con el Stelvio mañana y la Maglia Rosa en los hombros y sin saber.
 
-Se quedó en el borde de la cama en la oscuridad del cuarto de Laureles — el cuarto que durante treinta años había sido el cuarto de los dos, que tenía los zapatitos de ciclismo viejos de Hernando en el rincón izquierdo del closet y la foto de la boda en la mesita de noche y ese olor específico de los cuartos que llevan décadas siendo de dos personas y que tienen en el aire una sedimentación de los dos, imposible de identificar por separado.
+— ¿Puedo verlo? — dijo Carmen.
+
+— Esta noche no. El traslado a la UCI requiere que el área esté cerrada para visitas. Mañana a partir de las diez tiene permitido el ingreso.
+
+La doctora le puso la mano brevemente en el brazo — el gesto profesional que no es afecto pero que en ese rincón de la sala de espera de urgencias a las once y cuarenta y tres de la noche era lo correcto.
+
+— Va a estar bien cuidado — dijo.
+
+Carmen asintió.
+
+La doctora volvió al área de urgencias. Carmen se quedó de pie en el rincón de la sala de espera, sola, con el bolso colgado del hombro y las llaves del Renault en la mano.
 
 Pensó en llamar a Santi.
 
@@ -218,7 +254,13 @@ Era lo que Hernando habría dicho. Carmen lo sabía — lo sabía con la certeza
 
 Carmen no llamó a Santi.
 
-Se vistió, agarró las llaves del carro y el bolso, y manejó sola al San Vicente en la noche del veintisiete de mayo, con las calles de Medellín vacías a esa hora y el frío de la madrugada y los semáforos en intermitente amarillo que en la ciudad de la madrugada son la única señal de que el tiempo sigue funcionando aunque nadie esté despierto para certificarlo.
+Se sentó de nuevo en la silla anaranjada de plástico de la sala de espera del San Vicente. Puso el bolso sobre las rodillas. Miró el reloj.
+
+Las once y cuarenta y siete.
+
+En Italia eran las seis y cuarenta y siete de la madrugada.
+
+En cuatro horas salía el Giro.
 
 ---
 

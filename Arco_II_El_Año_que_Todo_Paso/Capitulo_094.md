@@ -350,10 +350,6 @@ Como siempre.
 
 ---
 
-*Septiembre de 2019:*
-
-El verano terminó cuando Ferretti llamó con el calendario de la pretemporada.
-
 Noviembre: concentración en Mallorca. Diciembre: bloque de altitud en Sierra Nevada. Enero: Mallorca otra vez, con las cronos planas. Febrero: Valencia, las primeras carreras de la temporada. Y en mayo: el Tour de France 2020.
 
 El Tour de France.
