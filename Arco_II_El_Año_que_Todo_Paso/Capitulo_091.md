@@ -532,7 +532,7 @@ El lunes veintisiete de mayo había sido el segundo día de descanso. La noche e
 
 El Stelvio.
 
-El cuerpo en el kilómetro dieciséis del Stelvio, a cinco kilómetros y medio de la cima, atacando porque Ferretti había dicho *atacás aquí* y porque el cuerpo estaba listo para atacar ahí — atacando mientras su padre estaba en la UCI del San Vicente con la infección respiratoria y la fiebre y los antibióticos del doctor Urquijo.
+El cuerpo en el kilómetro dieciséis del Stelvio, a cinco kilómetros y medio de la cima, atacando porque Ferretti había dicho *atacás aquí* y porque el cuerpo estaba listo para atacar ahí — atacando mientras su padre estaba en la UCI del Pablo Tobón con la infección respiratoria y la fiebre y los antibióticos del doctor Urquijo.
 
 El podio de la Arena.
 
@@ -540,7 +540,7 @@ La Maglia Rosa en los hombros.
 
 El himno de Colombia.
 
-La cámara que había buscado y mirado porque quería que el hombre en el sofá de Laureles supiera que estaba pensando en él — pero el hombre no estaba en el sofá de Laureles. El hombre estaba en la cama cuatro de la UCI del Hospital San Vicente de Paúl.
+La cámara que había buscado y mirado porque quería que el hombre en el sofá de Laureles supiera que estaba pensando en él — pero el hombre no estaba en el sofá de Laureles. El hombre estaba en la cama cuatro de la UCI del Pablo Tobón Uribe.
 
 *No quise decirte antes para que terminaras el Giro. Fue idea de él.*
 
@@ -642,7 +642,7 @@ Entró.
 
 ---
 
-*La tarde del dos de junio, en el Hospital San Vicente de Paúl, Medellín:*
+*La tarde del dos de junio, en el Hospital Pablo Tobón Uribe, Medellín:*
 
 Carmen había encendido el televisor del cuarto a las once y veinte de la mañana.
 
@@ -668,7 +668,7 @@ Pausa del comentarista. La pausa de los que saben que el silencio también narra
 
 *— ¡Santiago Reyes Cardona! ¡Colombia! ¡FCV-Procycling! ¡Campeón del Giro d'Italia de 2019!*
 
-El sonido de ocho mil personas dentro del anfiteatro de piedra romana llegó a través del televisor pequeño del cuarto de la UCI del Hospital San Vicente de Paúl de Medellín a las once y treinta y dos de la mañana del dos de junio.
+El sonido de ocho mil personas dentro del anfiteatro de piedra romana llegó a través del televisor pequeño del cuarto de la UCI del Pablo Tobón Uribe de Medellín a las once y treinta y dos de la mañana del dos de junio.
 
 Hernando Reyes lo escuchó.
 
@@ -690,7 +690,7 @@ Carmen apagó el volumen del televisor. Dejó la imagen.
 
 ---
 
-*La noche del dos de junio, en el Hospital San Vicente de Paúl, Medellín:*
+*La noche del dos de junio, en el Hospital Pablo Tobón Uribe, Medellín:*
 
 Carmen apagó el teléfono después de hablar con Santi y lo puso en el bolsillo del abrigo.
 

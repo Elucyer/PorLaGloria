@@ -124,7 +124,7 @@ Una pausa. No larga — dos segundos, tal vez tres. Del tipo de pausa que Santi 
 
 — Descansando — dijo Carmen. — Le costó el día. El tratamiento le pega fuerte.
 
-Era cierto. Era también la mitad de la verdad, que es el tipo de verdad que se puede decir sin mentir y sin decir lo que uno no quiere decir. Hernando estaba en la UCI del Hospital San Vicente con una infección respiratoria secundaria al segundo ciclo de quimioterapia, inconsciente intermitentemente, con el oncólogo Urquijo y su equipo monitorizando la saturación de oxígeno cada hora. Que le costara el día era la formulación más precisa que Carmen pudo encontrar sin que Santi lo supiera antes del Giro de Verona.
+Era cierto. Era también la mitad de la verdad, que es el tipo de verdad que se puede decir sin mentir y sin decir lo que uno no quiere decir. Hernando estaba en la UCI del Pablo Tobón Uribe con una infección respiratoria secundaria al segundo ciclo de quimioterapia, inconsciente intermitentemente, con el oncólogo Urquijo y su equipo monitorizando la saturación de oxígeno cada hora. Que le costara el día era la formulación más precisa que Carmen pudo encontrar sin que Santi lo supiera antes del Giro de Verona.
 
 — Bien — dijo Santi. — Mañana es la etapa llana. Llamo más tarde.
 
@@ -308,7 +308,7 @@ Se durmió.
 
 ---
 
-*La noche del treinta y uno de mayo, en el Hospital San Vicente de Paúl, Medellín:*
+*La noche del treinta y uno de mayo, en el Hospital Pablo Tobón Uribe, Medellín:*
 
 Carmen estaba en la sala de espera de la UCI cuando sonó el teléfono de Santi.
 

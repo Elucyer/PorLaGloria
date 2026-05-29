@@ -26,11 +26,11 @@ Lo puso boca abajo y siguió durmiendo.
 
 ---
 
-El control médico de Hernando fue el cuatro de enero — la revisión trimestral del oncólogo del San Vicente Fundación que desde la operación de junio formaba parte del calendario de la familia con la regularidad de algo que no se discutía.
+El control médico de Hernando fue el cuatro de enero — la revisión trimestral del oncólogo del Pablo Tobón Fundación que desde la operación de junio formaba parte del calendario de la familia con la regularidad de algo que no se discutía.
 
 Santi no fue. No porque no quisiera — porque Hernando no lo había pedido y porque Santi había aprendido, en los meses desde la operación, que había cosas que su padre gestionaba con Carmen de una manera que no requería una tercera presencia, y que la tercera presencia, en ciertas salas de espera de ciertos hospitales, hacía que las cosas pesaran más.
 
-Salió a caminar por las carreteras de Laureles mientras sus padres estaban en el San Vicente.
+Salió a caminar por las carreteras de Laureles mientras sus padres estaban en el Pablo Tobón.
 
 Dos horas. Por Las Palmas hacia arriba, hasta donde la carretera se angostaba y empezaban los barrios de faldas, luego bajando por El Poblado hacia el río, cruzando el parque de Los Deseos, volviendo por la 65. El Valle de Aburrá en una mañana de enero — el cielo de la época seca, claro y alto, con el Picacho y el Pan de Azúcar visibles desde cualquier punto del barrio. El ruido de los buses articulados en las vías troncales. El olor del guarapo de los vendedores de la esquina.
 

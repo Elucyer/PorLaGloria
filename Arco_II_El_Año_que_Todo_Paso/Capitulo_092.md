@@ -170,7 +170,7 @@ Las imágenes del Mortirolo. El Stelvio desde el helicóptero. La llegada a Cour
 
 En el podio de la Arena di Verona, la imagen de Santi buscando la cámara.
 
-Él mismo en la pantalla de la cafetería de Barajas, buscando la cámara porque quería que el hombre en Laureles supiera que estaba pensando en él. El hombre no estaba en Laureles. El hombre estaba en la cama cuatro de la UCI del San Vicente con la saturación al noventa y cuatro y los antibióticos del doctor Urquijo.
+Él mismo en la pantalla de la cafetería de Barajas, buscando la cámara porque quería que el hombre en Laureles supiera que estaba pensando en él. El hombre no estaba en Laureles. El hombre estaba en la cama cuatro de la UCI del Pablo Tobón con la saturación al noventa y cuatro y los antibióticos del doctor Urquijo.
 
 Lo puso en el cajón.
 
@@ -202,7 +202,7 @@ No el Giro. Su padre.
 
 La diferencia entre *estable* y la otra palabra era la diferencia de seis días en la UCI, de los antibióticos del doctor Urquijo, de la infección que pudo haber ido en otra dirección y que en el segundo ciclo de quimioterapia tenía el terreno preparado para ir en la dirección que la infección prefería.
 
-Pensó en la llamada de la noche del Stelvio. El *bien* de Hernando. La voz exactamente igual a siempre, con la misma economía, sin la menor señal de lo que sabía que era cierto: que a las tres de la mañana colombiana siguiente iba a ingresar a urgencias del San Vicente con dificultad respiratoria severa.
+Pensó en la llamada de la noche del Stelvio. El *bien* de Hernando. La voz exactamente igual a siempre, con la misma economía, sin la menor señal de lo que sabía que era cierto: que a las tres de la mañana colombiana siguiente iba a ingresar a urgencias del Pablo Tobón con dificultad respiratoria severa.
 
 *¿Lo sabía cuando llamamos?*
 
@@ -240,7 +240,7 @@ Tomó taxi.
 
 El taxista de la madrugada en Rionegro era el taxista que no habla — el hombre de la madrugada que tiene la profesionalidad del turno nocturno, que entiende que los pasajeros de las dos de la mañana no han llegado para conversar sino para llegar.
 
-Santi le dio la dirección del Hospital San Vicente.
+Santi le dio la dirección del Hospital Pablo Tobón Uribe.
 
 El taxi salió por la autopista Medellín-Bogotá hacia el túnel de Oriente — el túnel que en doce kilómetros y medio atravesaba la Cordillera Central y bajaba al Valle de Aburrá, el túnel que había cambiado la conexión entre Medellín y el aeropuerto de noventa minutos a cuarenta y que en la madrugada del martes cuatro de junio era la conexión entre el mundo en el que Santi había estado durante veinticuatro horas y el mundo al que estaba llegando.
 
@@ -264,7 +264,7 @@ Todo venía de aquí.
 
 El taxi bajó por la autopista y entró a la ciudad por el acceso del norte. Medellín de madrugada — las calles con el tráfico mínimo de las tres de la mañana de un martes, los buses del Metro que seguían corriendo aunque el Metro en superficie hubiera cerrado, los vendedores nocturnos en las esquinas del centro con los carritos de frutas y los termos de café. Medellín que nunca se duerme del todo, que tiene esa vitalidad específica de las ciudades colombianas que han aprendido a habitar también la noche.
 
-El Hospital San Vicente Fundación.
+El Hospital Pablo Tobón Uribe.
 
 El taxímetro marcó la tarifa. Santi pagó. Salió.
 
@@ -276,7 +276,7 @@ Entró al hospital.
 
 ---
 
-La UCI del Hospital San Vicente Fundación era el ala norte del cuarto piso.
+La UCI del Pablo Tobón Uribe era el ala norte del cuarto piso.
 
 El vigilante de la entrada de la UCI a las tres de la mañana — el hombre de turno nocturno con el uniforme del hospital y la cara de quien lleva cuatro horas esperando que algo pase y que nada ha pasado — le dijo que la visita en UCI no era hasta las seis de la mañana.
 
@@ -392,7 +392,7 @@ Carmen, en la otra silla, miraba a los dos hombres en silencio con los ojos que 
 
 Afuera: Medellín a las cuatro de la mañana. La ciudad que no se duerme del todo, que tiene esa vitalidad que no se apaga. Las luces del Valle de Aburrá entre las laderas de la cordillera. El frío suave de los mil quinientos metros.
 
-El corredor de diecinueve años que había ganado el Giro di Italia estaba sentado en la silla de la cama cuatro de la UCI del Hospital San Vicente con la mano de su padre en la suya y los ojos abiertos en el silencio de las cuatro de la mañana.
+El corredor de diecinueve años que había ganado el Giro di Italia estaba sentado en la silla de la cama cuatro de la UCI del Pablo Tobón Uribe con la mano de su padre en la suya y los ojos abiertos en el silencio de las cuatro de la mañana.
 
 No había nada más que hacer.
 

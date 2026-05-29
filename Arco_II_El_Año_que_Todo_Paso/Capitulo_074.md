@@ -150,7 +150,7 @@ La pausa del otro lado fue un segundo más larga de lo habitual.
 
 — Bien — dijo Hernando.
 
-Fue la palabra de siempre. El tono de siempre. Nada en la voz de Hernando que Santi pudiera haber identificado como diferente — porque Hernando había pasado doce días perfeccionando el tono de *bien* desde el diecisiete de abril en el consultorio del San Vicente, el tono que sonaba exactamente igual al *bien* de los meses anteriores y no al *bien* del hombre que lleva una semana con el suero de quimioterapia en el brazo y que a esta hora de la noche estaba sentado en el salón del apartamento de Laureles con Carmen al lado y el turno de la náusea del primer ciclo que llegaba todos los días a las nueve y que Hernando manejaba con el mismo silencio con que manejaba todo lo que el cuerpo hacía sin permiso.
+Fue la palabra de siempre. El tono de siempre. Nada en la voz de Hernando que Santi pudiera haber identificado como diferente — porque Hernando había pasado doce días perfeccionando el tono de *bien* desde el diecisiete de abril en el consultorio del Pablo Tobón, el tono que sonaba exactamente igual al *bien* de los meses anteriores y no al *bien* del hombre que lleva una semana con el suero de quimioterapia en el brazo y que a esta hora de la noche estaba sentado en el salón del apartamento de Laureles con Carmen al lado y el turno de la náusea del primer ciclo que llegaba todos los días a las nueve y que Hernando manejaba con el mismo silencio con que manejaba todo lo que el cuerpo hacía sin permiso.
 
 — ¿Y Carmen? — dijo Santi.
 

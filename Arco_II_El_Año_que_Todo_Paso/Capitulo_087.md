@@ -130,7 +130,7 @@ La bajada fue técnica y rápida.
 
 ---
 
-*En la sala de espera de la UCI del Hospital San Vicente, a la una y veinte de la tarde:*
+*En la sala de espera de la UCI del Pablo Tobón Uribe, a la una y veinte de la tarde:*
 
 Carmen tenía el teléfono encendido sobre las rodillas.
 
@@ -324,7 +324,7 @@ Santi solo en el kilómetro diecisiete del Stelvio.
 
 ---
 
-*En la sala de espera de la UCI del Hospital San Vicente, a las cuatro y treinta de la tarde:*
+*En la sala de espera de la UCI del Pablo Tobón Uribe, a las cuatro y treinta de la tarde:*
 
 Carmen tenía el teléfono horizontal sobre las rodillas.
 
@@ -490,7 +490,7 @@ No era una petición habitual. Ferretti no preguntó por qué. Marcó el número
 
 *La noche del veintiocho de mayo, en Medellín:*
 
-Carmen estaba en la sala de espera de la UCI del Hospital San Vicente cuando el teléfono de Ferretti llegó.
+Carmen estaba en la sala de espera de la UCI del Pablo Tobón Uribe cuando el teléfono de Ferretti llegó.
 
 Tenía el teléfono en la mano desde las dos de la mañana, cuando había llegado al hospital, y lo había revisado cada diez minutos durante todo el día — el canal de noticias deportivas que seguía el Giro en tiempo real, las actualizaciones de la aplicación de ciclismo, la pantalla que a las cuatro y media de la tarde italiana había mostrado a Santi cruzando la cima del Stelvio.
 
@@ -544,7 +544,7 @@ Cuando Hernando pudiera verla también.
 *3º Roglič (SLO / Jumbo-Visma) +2:15*
 *4º Carapaz (ECU / Movistar) +3:10*
 
-*Noche del 28 de mayo: Hernando Reyes, UCI, Hospital San Vicente, Medellín. Estable.*
+*Noche del 28 de mayo: Hernando Reyes, UCI, Hospital Pablo Tobón Uribe, Medellín. Estable.*
 *Carmen en la sala de espera. Santi no sabe.*
 
 *Quedan cinco etapas.*

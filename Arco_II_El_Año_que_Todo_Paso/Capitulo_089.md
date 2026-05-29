@@ -134,7 +134,7 @@ No los veinte del kilómetro diez. Los cuatro del kilómetro veintidós. La dife
 
 ---
 
-*En la sala de espera de la UCI del Hospital San Vicente, a las cuatro y veinte de la tarde:*
+*En la sala de espera de la UCI del Pablo Tobón Uribe, a las cuatro y veinte de la tarde:*
 
 Carmen tenía el teléfono horizontal sobre las rodillas.
 
@@ -248,7 +248,7 @@ Y colgaron.
 
 ---
 
-*La noche del treinta y uno de mayo, en la sala de espera de la UCI del Hospital San Vicente:*
+*La noche del treinta y uno de mayo, en la sala de espera de la UCI del Pablo Tobón Uribe:*
 
 Carmen apagó el teléfono y lo puso en el bolsillo del abrigo.
 

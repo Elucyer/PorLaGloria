@@ -88,7 +88,7 @@ No entrenamiento intensivo — salidas largas por los puertos de Antioquia, el B
 
 El miércoles: el control de seguimiento del cuarto ciclo.
 
-El doctor Gustavo en el consultorio del San Vicente, las imágenes en el monitor, los valores hematológicos. La reducción tumoral acumulada — el número que en agosto había sido el cuarenta y uno por ciento — era ahora el cuarenta y seis por ciento.
+El doctor Gustavo en el consultorio del Pablo Tobón, las imágenes en el monitor, los valores hematológicos. La reducción tumoral acumulada — el número que en agosto había sido el cuarenta y uno por ciento — era ahora el cuarenta y seis por ciento.
 
 — Cuarenta y seis — dijo el doctor Gustavo. — El cuarto ciclo fue el más efectivo hasta ahora. — Pausa. — Si el quinto ciclo da resultados similares, podemos empezar a hablar de radioterapia localizada como fase final del tratamiento.
 

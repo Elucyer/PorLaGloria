@@ -214,7 +214,7 @@ No lo procesó en ese momento. Lo procesó dos horas después, en la habitación
 
 ---
 
-*En la sala de espera de la UCI del Hospital San Vicente, a las cuatro y diez de la tarde:*
+*En la sala de espera de la UCI del Pablo Tobón Uribe, a las cuatro y diez de la tarde:*
 
 Carmen había llegado a las doce.
 
@@ -478,7 +478,7 @@ Se durmió antes de las diez.
 
 ---
 
-*La noche del primero de junio, en el Hospital San Vicente de Paúl, Medellín:*
+*La noche del primero de junio, en el Hospital Pablo Tobón Uribe, Medellín:*
 
 Hernando Reyes estaba en la cama cuatro de la UCI con los ojos cerrados.
 
@@ -494,7 +494,7 @@ Ella había respondido en el pasillo, afuera de la UCI, con la voz baja de los p
 
 No le había dicho.
 
-Era la decisión que había tomado desde el lunes — la decisión de la madre que sabe que hay dos batallas en curso, una en las montañas del norte de Italia y otra en la cama cuatro de la UCI del San Vicente, y que la segunda batalla no puede interferir con la primera porque la primera termina mañana y porque Hernando en sus treinta segundos de lucidez del martes había dicho exactamente eso: *déjalo terminar*.
+Era la decisión que había tomado desde el lunes — la decisión de la madre que sabe que hay dos batallas en curso, una en las montañas del norte de Italia y otra en la cama cuatro de la UCI del Pablo Tobón, y que la segunda batalla no puede interferir con la primera porque la primera termina mañana y porque Hernando en sus treinta segundos de lucidez del martes había dicho exactamente eso: *déjalo terminar*.
 
 Mañana era Verona.
 

@@ -147,7 +147,7 @@ El silencio de los dos. El silencio de las llamadas de los Reyes, que no era vac
 
 Excepto que esta vez el contenido era diferente.
 
-Porque del lado de Hernando había una cosa que Santi no sabía y que Hernando no iba a decir: el diecisiete de abril en el consultorio del San Vicente, las dos manchas en la pantalla del tomógrafo, los cuatro ciclos de quimioterapia que habían comenzado cinco días atrás en el hospital con Carmen al lado y el suero en el brazo y el oncólogo Urquijo explicando el protocolo con la paciencia de los médicos que han explicado protocolos muchas veces.
+Porque del lado de Hernando había una cosa que Santi no sabía y que Hernando no iba a decir: el diecisiete de abril en el consultorio del Pablo Tobón, las dos manchas en la pantalla del tomógrafo, los cuatro ciclos de quimioterapia que habían comenzado cinco días atrás en el hospital con Carmen al lado y el suero en el brazo y el oncólogo Urquijo explicando el protocolo con la paciencia de los médicos que han explicado protocolos muchas veces.
 
 Del lado de Santi había una cosa que él sí sabía: el Giro empezaba en siete días.
 

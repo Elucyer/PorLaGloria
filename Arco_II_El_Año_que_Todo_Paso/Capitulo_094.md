@@ -12,7 +12,7 @@ El coche que había venido a buscarlos era el Renault de Carmen — el mismo Ren
 
 Santi iba detrás.
 
-El trayecto del San Vicente a Laureles — quince minutos por la avenida Las Vegas y luego por el barrio, la ruta que Carmen hacía cada semana para el mercado, la ruta que Santi había aprendido a los doce años cuando llegaron de San José y que en el cuerpo tenía la familiaridad de los recorridos que uno hace sin pensar.
+El trayecto del Pablo Tobón a Laureles — quince minutos por la avenida Las Vegas y luego por el barrio, la ruta que Carmen hacía cada semana para el mercado, la ruta que Santi había aprendido a los doce años cuando llegaron de San José y que en el cuerpo tenía la familiaridad de los recorridos que uno hace sin pensar.
 
 Hernando miró por la ventana del carro con la expresión de quien sale de un espacio cerrado y se reencuentra con el espacio abierto — no el asombro del que lo ve por primera vez sino el reconocimiento del que vuelve a algo familiar después de demasiado tiempo.
 
@@ -230,7 +230,7 @@ Era, Santi pensó, la versión de Hernando de lo que la enfermedad le había ens
 
 El tercer ciclo de quimioterapia empezó el primer martes de agosto.
 
-El ritual había cambiado respecto al segundo ciclo — ahora Santi conocía el hospital San Vicente, conocía el cuarto de tratamiento del ala oncológica del piso tres, conocía a Alejandra aunque Alejandra no era la enfermera del piso tres sino de planta y en oncología ambulatoria era otra persona, una mujer joven de Rionegro llamada Paola que tenía la eficiencia de Alejandra pero con un acento diferente y que al segundo día de tratamiento también preguntaba el nombre de don Hernando para confirmar la vía del suero y no para cumplir el protocolo sino porque era el tipo de persona que necesitaba el nombre para trabajar bien.
+El ritual había cambiado respecto al segundo ciclo — ahora Santi conocía el hospital Pablo Tobón, conocía el cuarto de tratamiento del ala oncológica del piso tres, conocía a Alejandra aunque Alejandra no era la enfermera del piso tres sino de planta y en oncología ambulatoria era otra persona, una mujer joven de Rionegro llamada Paola que tenía la eficiencia de Alejandra pero con un acento diferente y que al segundo día de tratamiento también preguntaba el nombre de don Hernando para confirmar la vía del suero y no para cumplir el protocolo sino porque era el tipo de persona que necesitaba el nombre para trabajar bien.
 
 La sesión de quimioterapia duraba entre seis y ocho horas.
 
@@ -342,7 +342,7 @@ Se levantó de la silla con la lentitud del cuerpo en recuperación — el cuerp
 
 Carmen y Santi lo siguieron.
 
-En el pasillo del ala oncológica del San Vicente, con la luz fluorescente del mediodía y el tráfico de enfermeras y familiares y sillas de ruedas y carritos de medicación, los tres Reyes caminaron hacia la salida.
+En el pasillo del ala oncológica del Pablo Tobón, con la luz fluorescente del mediodía y el tráfico de enfermeras y familiares y sillas de ruedas y carritos de medicación, los tres Reyes caminaron hacia la salida.
 
 Hernando delante.
 
@@ -420,3 +420,4 @@ El Valle de Aburrá con las nubes de la tarde acumulándose sobre los cerros del
 *Arco II concluye. En el apartamento de Laureles, Hernando Reyes sigue en el sofá con el libro del ferrocarril antioqueño y el café de las mañanas y el canal de deportes de las tardes. Las piernas, cada vez que alguien pregunta, están bien. Que es exactamente lo que hay que decir.*
 
 ---
+                                                                                                        

@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 93 — El San Vicente (junio de 2019)
+### Capítulo 93 — El Pablo Tobón (junio de 2019)
 
 ---
 
@@ -46,7 +46,7 @@ Era la pregunta del médico que sabe quién es el hijo del paciente.
 
 Hernando fue trasladado a la habitación 412 a las tres y cuarenta de la tarde del martes.
 
-La habitación 412 tenía ventana — la ventana del cuarto piso del ala norte del San Vicente con vista hacia los cerros del oriente de Medellín, la ladera que desde el hospital era la ladera verde de los barrios que subían hasta la línea del cable aéreo. No era la vista del Valle de Aburrá — no se veía el centro, no se veía el río. Pero era verde. En junio, con la temporada de lluvias del primer semestre en su punto más intenso, los cerros de Medellín tenían el verde más oscuro del año, el verde que en Colombia solo existe cuando el agua ha estado cayendo durante semanas sin parar y la vegetación ha absorbido todo lo que podía absorber y ha decidido ser verde hasta donde el verde es posible.
+La habitación 412 tenía ventana — la ventana del cuarto piso del ala norte del Pablo Tobón con vista hacia los cerros del oriente de Medellín, la ladera que desde el hospital era la ladera verde de los barrios que subían hasta la línea del cable aéreo. No era la vista del Valle de Aburrá — no se veía el centro, no se veía el río. Pero era verde. En junio, con la temporada de lluvias del primer semestre en su punto más intenso, los cerros de Medellín tenían el verde más oscuro del año, el verde que en Colombia solo existe cuando el agua ha estado cayendo durante semanas sin parar y la vegetación ha absorbido todo lo que podía absorber y ha decidido ser verde hasta donde el verde es posible.
 
 Hernando miró la ventana cuando lo pusieron en la cama.
 
@@ -180,7 +180,7 @@ Santi lo procesó.
 
 — No te iba a notar — dijo Hernando. — En el crono no notás lo que cuesta un metro. Lo notás en el split.
 
-Había algo en esta conversación que era exactamente la conversación de siempre — la conversación del padre y el hijo sobre la técnica de la carrera, la evaluación sin dramatismo, el detalle que importa y el detalle que no importa. Y al mismo tiempo era una conversación que pasaba en la habitación 412 del Hospital San Vicente con el monitor cardiaco al fondo, y esa simultaneidad — lo ordinario y lo extraordinario ocupando el mismo espacio — era lo más parecido a la normalidad que habían tenido en semanas.
+Había algo en esta conversación que era exactamente la conversación de siempre — la conversación del padre y el hijo sobre la técnica de la carrera, la evaluación sin dramatismo, el detalle que importa y el detalle que no importa. Y al mismo tiempo era una conversación que pasaba en la habitación 412 del Hospital Pablo Tobón Uribe con el monitor cardiaco al fondo, y esa simultaneidad — lo ordinario y lo extraordinario ocupando el mismo espacio — era lo más parecido a la normalidad que habían tenido en semanas.
 
 — Ganaste de todas formas — dijo Hernando.
 
@@ -246,7 +246,7 @@ Compraba un café en la cafetería de la esquina — una cafetería familiar, si
 
 El dueño de la cafetería, que se llamaba don Eugenio, lo reconoció el segundo día.
 
-No lo celebró — en el barrio alrededor del Hospital San Vicente la gente tenía otra clase de urgencias y el campeón del Giro en la cafetería de la esquina era una novedad que el barrio procesó con la misma discreción con que procesaba las otras novedades. Don Eugenio le dijo *bienvenido* el primer día y *¿lo de siempre?* el segundo y a partir del segundo era parte de la mañana como cualquier otro cliente.
+No lo celebró — en el barrio alrededor del Hospital Pablo Tobón Uribe la gente tenía otra clase de urgencias y el campeón del Giro en la cafetería de la esquina era una novedad que el barrio procesó con la misma discreción con que procesaba las otras novedades. Don Eugenio le dijo *bienvenido* el primer día y *¿lo de siempre?* el segundo y a partir del segundo era parte de la mañana como cualquier otro cliente.
 
 Santi agradecía la normalidad.
 
@@ -288,11 +288,11 @@ Pensó en su padre en la cama cuatro de la UCI esa misma noche.
 
 Las dos cosas simultáneas.
 
-El Stelvio y el San Vicente. La cima y la UCI. El noventa y cuatro que bastó y la infección que también bastó — en otra dirección, pero bastó.
+El Stelvio y el Pablo Tobón. La cima y la UCI. El noventa y cuatro que bastó y la infección que también bastó — en otra dirección, pero bastó.
 
 Hernando sobrevivió.
 
-Era la cosa más importante. Era la única cosa que en los últimos días, cuando el Giro ya era el Giro y el San Vicente era el San Vicente, Santi podía sostener como verdad sin necesitar procesar el resto: Hernando sobrevivió y estaba en la habitación 412 comiendo el sancocho de Carmen y diciendo *bien* al doctor Gustavo y evaluando el crono de Verona con la exactitud del exgregario que ve los splits y encuentra el metro de más en la curva del kilómetro dieciséis.
+Era la cosa más importante. Era la única cosa que en los últimos días, cuando el Giro ya era el Giro y el Pablo Tobón era el Pablo Tobón, Santi podía sostener como verdad sin necesitar procesar el resto: Hernando sobrevivió y estaba en la habitación 412 comiendo el sancocho de Carmen y diciendo *bien* al doctor Gustavo y evaluando el crono de Verona con la exactitud del exgregario que ve los splits y encuentra el metro de más en la curva del kilómetro dieciséis.
 
 Bajó Las Palmas.
 
@@ -334,7 +334,7 @@ Era la primera vez que se levantaba de la cama en los días de planta — el tra
 
 Carmen y Santi estaban en las sillas del cuarto.
 
-El televisor de la pared estaba encendido — el canal de deportes, que en el prime time del viernes pasaba el resumen de la semana deportiva y que en algún momento de la noche iba a incluir el resumen del Giro 2019, la síntesis de las tres semanas que en el canal de deportes colombiano era el acontecimiento ciclístico del año y que en la habitación 412 del San Vicente era, esta noche, simplemente el televisor encendido de fondo.
+El televisor de la pared estaba encendido — el canal de deportes, que en el prime time del viernes pasaba el resumen de la semana deportiva y que en algún momento de la noche iba a incluir el resumen del Giro 2019, la síntesis de las tres semanas que en el canal de deportes colombiano era el acontecimiento ciclístico del año y que en la habitación 412 del Pablo Tobón era, esta noche, simplemente el televisor encendido de fondo.
 
 Hernando miraba por la ventana.
 
@@ -376,7 +376,7 @@ Era también la única cosa que Santi hubiera pedido, si hubiera podido pedirla.
 
 — Hay que trabajarlo en Mallorca. No en el Giro — en Mallorca. En el terreno plano.
 
-Santi sonrió. No era una sonrisa grande. Era la sonrisa breve del corredor que reconoce que su padre, desde la silla junto a la ventana de la habitación 412 del Hospital San Vicente, ya está pensando en la preparación del Tour del año que viene con la precisión del exgregario que nunca dejó de pensar en ciclismo.
+Santi sonrió. No era una sonrisa grande. Era la sonrisa breve del corredor que reconoce que su padre, desde la silla junto a la ventana de la habitación 412 del Hospital Pablo Tobón Uribe, ya está pensando en la preparación del Tour del año que viene con la precisión del exgregario que nunca dejó de pensar en ciclismo.
 
 — Bien — dijo Santi.
 

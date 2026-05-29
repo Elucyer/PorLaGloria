@@ -144,7 +144,7 @@ A las dos y cincuenta y tres, durmió.
 
 ---
 
-*La misma noche, en el Hospital San Vicente de Paúl:*
+*La misma noche, en el Hospital Pablo Tobón Uribe:*
 
 A las ocho de la tarde, Hernando había empezado con escalofríos.
 
@@ -158,7 +158,7 @@ A las diez y veinte, treinta y nueve y dos.
 
 Carmen fue a la habitación, buscó el bolso y las llaves del Renault Logan, y dijo:
 
-— Nos vamos al San Vicente.
+— Nos vamos al Pablo Tobón.
 
 Hernando no discutió. Era la señal de que el cuerpo estaba en un estado que Hernando reconocía como serio — no había discusión posible con treinta y nueve y dos durante el segundo ciclo, y Hernando Reyes sabía distinguir las batallas que valía la pena pelear.
 
@@ -218,7 +218,7 @@ En menos de cuatro horas salía el equipo para el Stelvio.
 
 ---
 
-A las dos y dieciséis de la mañana hora colombiana — las nueve y dieciséis de la mañana del lunes en Lovere — el médico de urgencias del San Vicente le dijo a Carmen que la tomografía de emergencia mostraba progresión tumoral con derrame pleural bilateral.
+A las dos y dieciséis de la mañana hora colombiana — las nueve y dieciséis de la mañana del lunes en Lovere — el médico de urgencias del Pablo Tobón le dijo a Carmen que la tomografía de emergencia mostraba progresión tumoral con derrame pleural bilateral.
 
 — ¿Qué significa? — dijo Carmen.
 
@@ -240,7 +240,7 @@ No preguntó más. Las preguntas adicionales no cambiaban lo que el médico iba 
 
 Fue a la sala de espera.
 
-La sala de espera de urgencias del San Vicente a las dos de la mañana — las sillas de plástico anaranjado que en las horas de la madrugada tenían a los familiares con las caras del insomnio urgente, los familiares que habían llegado desde diferentes partes de la ciudad con la misma cara de Carmen: el abrigo mal puesto y las llaves en la mano y la rapidez del que fue sin pensar si quería ir.
+La sala de espera de urgencias del Pablo Tobón a las dos de la mañana — las sillas de plástico anaranjado que en las horas de la madrugada tenían a los familiares con las caras del insomnio urgente, los familiares que habían llegado desde diferentes partes de la ciudad con la misma cara de Carmen: el abrigo mal puesto y las llaves en la mano y la rapidez del que fue sin pensar si quería ir.
 
 Carmen se sentó.
 
@@ -262,7 +262,7 @@ Esperó.
 
 ---
 
-A las cuatro y veinte de la mañana colombiana — las once y veinte de la mañana del lunes en Lovere — el médico de turno de la UCI del San Vicente le dijo a Carmen que Hernando Reyes estaba estable.
+A las cuatro y veinte de la mañana colombiana — las once y veinte de la mañana del lunes en Lovere — el médico de turno de la UCI del Pablo Tobón le dijo a Carmen que Hernando Reyes estaba estable.
 
 — El drenaje salió bien — dijo el médico. — Los pulmones están respondiendo. La próxima hora es crítica pero los signos son positivos.
 
@@ -342,6 +342,7 @@ Ferretti no respondió durante un momento.
 
 Otra pausa.
 
+
 — Bien — dijo Ferretti. Dicho con el peso del hombre que acaba de recibir una instrucción que entiende aunque no le gusta. — El dos de junio.
 
 — El dos de junio — confirmó Carmen.
@@ -354,7 +355,7 @@ Colgaron.
 
 Carmen guardó el teléfono.
 
-En el pasillo de la UCI del Hospital San Vicente de Paúl de Medellín, a las tres de la tarde del martes veintiocho de mayo, el equipo FCV-Procycling estaba celebrando la etapa del Stelvio en algún lugar de Ponte di Legno.
+En el pasillo de la UCI del Hospital Pablo Tobón Uribe de Medellín, a las tres de la tarde del martes veintiocho de mayo, el equipo FCV-Procycling estaba celebrando la etapa del Stelvio en algún lugar de Ponte di Legno.
 
 El campeón del Giro provisional estaba en el autobús del equipo camino al hotel del siguiente día.
 
