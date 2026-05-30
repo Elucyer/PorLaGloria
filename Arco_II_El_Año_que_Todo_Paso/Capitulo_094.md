@@ -420,4 +420,3 @@ El Valle de Aburrá con las nubes de la tarde acumulándose sobre los cerros del
 *Arco II concluye. En el apartamento de Laureles, Hernando Reyes sigue en el sofá con el libro del ferrocarril antioqueño y el café de las mañanas y el canal de deportes de las tardes. Las piernas, cada vez que alguien pregunta, están bien. Que es exactamente lo que hay que decir.*
 
 ---
-                                                                                                        
