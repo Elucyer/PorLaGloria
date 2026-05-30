@@ -500,57 +500,65 @@ Volvió a la mesa.
 
 ---
 
-El mensaje llegó a las diez y siete minutos.
+El teléfono sonó a las diez y siete minutos.
 
 Santi estaba en el autobús de regreso al Due Torri — el equipo que en la noche de Verona volvía al hotel con el cansancio específico de los que han terminado algo enorme y que en el autobús son silenciosos no porque estén tristes sino porque el silencio es la respuesta natural del cuerpo que ha llegado al final de algo grande.
 
 El teléfono vibró en el bolsillo.
 
-Un mensaje de texto. Número colombiano. El número de su madre.
+Número colombiano. Su madre.
 
-Santi lo leyó.
+Respondió.
 
-Lo leyó dos veces.
+— Santi. — La voz de Carmen. Más entera que anoche, pero con el cansancio de seis días que no dormía bien.
 
-Lo leyó una tercera vez porque la primera y la segunda no habían sido suficientes para que las palabras pasaran del teléfono al lugar donde las palabras de ese tipo llegan.
+— Mamá.
 
-*"Santi. Tu papá está en el hospital. Está en la UCI pero estable. Lleva aquí desde el lunes. No quise decirte antes para que terminaras el Giro. Fue idea de él. Llámame cuando puedas. Te quiero."*
+— Lo vi. Ganaste.
 
-El autobús siguió por las calles de Verona.
+Santi no dijo nada.
 
-Broeckx, a su lado, miraba el teléfono propio.
+— Tu papá también lo vio — dijo Carmen. Una pausa. — Lloraste en la cámara.
 
-Nadie en el autobús vio la cara de Santi en ese momento. O si la vieron, no dijeron nada — el silencio del equipo de regreso al hotel después del final del Giro era el silencio donde nadie miraba a nadie con demasiada atención porque todos estaban demasiado adentro de lo propio para estar adentro de lo del otro.
+— Sí.
 
-Santi leyó el mensaje una cuarta vez.
+— Él no lo vio. Estaba durmiendo para ese momento. Pero yo le conté.
 
-*Lleva aquí desde el lunes.*
+El autobús siguió por las calles de Verona. Broeckx, a su lado, miraba el teléfono propio.
 
-Lunes veintisiete de mayo.
+Nadie en el autobús vio la cara de Santi. O si la vieron, no dijeron nada.
 
-El lunes veintisiete de mayo había sido el segundo día de descanso. La noche en Lovere antes del Stelvio. La noche donde Santi había despertado a las dos de la mañana con esa inquietud sin forma que no había podido nombrar.
+— ¿Cómo está hoy? — dijo Santi.
+
+— Mejor que ayer. Esta tarde estuvo despierto dos horas. — La voz de Carmen con esa fragilidad específica de quien ha estado siendo fuerte durante seis días y que en este momento, con el Giro terminado y su hijo campeón al otro lado del teléfono, ya no necesita ser tan fuerte. — Dijo que sabía que ibas a ganar.
+
+El autobús giró hacia el Due Torri.
+
+Santi pensó en la noche del lunes veintisiete de mayo. En la habitación de Lovere con el lago Iseo afuera y las dos de la mañana y la inquietud sin forma que no había podido nombrar. En lo que estaba pasando en ese mismo momento en Medellín — Carmen manejando sola al Pablo Tobón, la sala de espera, las sillas anaranjadas — mientras él miraba el techo de la habitación de hotel pensando en el kilómetro dieciséis.
 
 El Stelvio.
 
-El cuerpo en el kilómetro dieciséis del Stelvio, a cinco kilómetros y medio de la cima, atacando porque Ferretti había dicho *atacás aquí* y porque el cuerpo estaba listo para atacar ahí — atacando mientras su padre estaba en la UCI del Pablo Tobón con la infección respiratoria y la fiebre y los antibióticos del doctor Urquijo.
+El cuerpo atacando en la curva doce, los cinco kilómetros y medio hasta la cima, todo lo que el cuerpo tenía disponible — mientras en la cama cuatro de la UCI del Pablo Tobón Uribe, Hernando Reyes tenía el gotero y el oxígeno y los ojos cerrados.
 
 El podio de la Arena.
 
-La Maglia Rosa en los hombros.
+La Maglia Rosa.
 
-El himno de Colombia.
+El himno.
 
-La cámara que había buscado y mirado porque quería que el hombre en el sofá de Laureles supiera que estaba pensando en él — pero el hombre no estaba en el sofá de Laureles. El hombre estaba en la cama cuatro de la UCI del Pablo Tobón Uribe.
+La cámara que había buscado y mirado porque quería que el hombre en Laureles supiera que estaba pensando en él. El hombre no estaba en Laureles.
 
-*No quise decirte antes para que terminaras el Giro. Fue idea de él.*
+— Mamá — dijo Santi.
 
-La idea de Hernando.
+— Sí.
 
-Santi lo entendió. No inmediatamente — en dos o tres capas, de adentro hacia afuera. Entendió que su padre había estado en la UCI durante el Stelvio y había dicho que no le dijeran. Entendió que su padre había visto el Stelvio desde el hospital, o que alguien se lo había contado, o que había estado inconsciente y lo había visto después. Entendió que la economía de Hernando Reyes — la economía de palabras, de gestos, de lo que se muestra y lo que no — se había extendido hasta aquí, hasta la UCI de un hospital colombiano, hasta la decisión de no llamar a un hijo que tiene el Giro en la mano porque las carreras no se interrumpen cuando hay UCI, porque Hernando Reyes sabía mejor que nadie que las carreras no se interrumpen y que el hijo que él había criado necesitaba terminar lo que había empezado.
+— *Fue idea de él.*
 
-*Fue idea de él.*
+No era una pregunta. Era el reconocimiento de algo que la noche anterior, en la primera impresión del golpe de la verdad, no había podido asentarse del todo. La idea de Hernando — la decisión del padre de no llamar a su hijo, de no interrumpir la carrera, de decir *déjalo terminar* desde una cama de UCI — era exactamente la misma economía de siempre. La misma que había sido toda la vida: lo que no se muestra no porque no exista sino porque mostrarlo le costaría al otro más de lo que le costaría callarlo.
 
-Santi cerró el teléfono.
+— Sí — dijo Carmen. — Fue idea de él.
+
+Santi cerró los ojos.
 
 Lo abrió.
 

@@ -258,6 +258,58 @@ Nibali cruzó la línea del Monte Avena dieciséis segundos después que Bilbao.
 
 Santi cruzó treinta y cuatro segundos después de Nibali.
 
+---
+
+La zona mixta del Monte Avena era más corta que la de los finales de ciudad — el corredor de vallas instalado al pie de la pista forestal de llegada, con la luz del atardecer del primero de junio filtrándose entre los pinos del Bellunese y los periodistas que en esta etapa eran menos que en las etapas reinas pero tenían la misma calidad de atención del periodista que sabe que en la penúltima etapa de un Giro hay cosas que decir.
+
+Santi pasó por las cámaras de rigor.
+
+*L'Équipe*: el crono de mañana, la ventaja, Nibali.
+
+*La Gazzetta*: el crono de mañana, Roglič, la Maglia.
+
+Luego el micrófono de Semana Colombia.
+
+Era una periodista — treinta años, pelo corto, con la acreditación del Giro colgada al cuello y una grabadora. Santi la había visto antes en el Giro: en el podio de Courmayeur, en la zona mixta del Stelvio.
+
+Esta vez no empezó con las preguntas sobre la carrera.
+
+— Santi — dijo — llevo dos días intentando comunicarme con tu manager para una confirmación. Tenemos tres fuentes independientes en Medellín que nos dicen que tu papá, Hernando Reyes, lleva hospitalizado desde antes del Stelvio. El RCN lo preguntó hace dos días. — Una pausa. — ¿Nos podés decir cómo está?
+
+Santi la miró.
+
+No fue el segundo de confusión de la zona mixta de Anterselva. Fue otra cosa — el segundo del corredor que ha estado esperando esta pregunta sin saber que la esperaba, que en los últimos cuatro días la ha guardado en el cajón de las cosas que no puede atender ahora y que en el kilómetro uno de la zona mixta del Monte Avena el cajón se abre solo.
+
+*Tres fuentes independientes.*
+
+*Desde antes del Stelvio.*
+
+— Mi papá — dijo Santi, con la voz del corredor que está controlando algo — está recibiendo tratamiento. Estamos en contacto.
+
+Era la respuesta más exacta que pudo dar sin saber la verdad completa y sin repetir la mentira de cuatro días atrás.
+
+La periodista anotó.
+
+— ¿Estás en contacto con él directamente?
+
+— Con mi familia — dijo Santi.
+
+— ¿Podés confirmar si está hospitalizado?
+
+Una pausa.
+
+— No puedo confirmar nada ahora mismo.
+
+La periodista asintió. Era la respuesta que a una periodista experimentada le decía más que el *no* de cuatro días atrás.
+
+— Gracias, Santi. Y suerte mañana.
+
+Santi siguió por el corredor de vallas hacia el autobús.
+
+No puso los auriculares.
+
+---
+
 Treinta y cuatro segundos. No los dieciocho de los cuatro metros del kilómetro diez — los treinta y cuatro reales, porque en los últimos dos kilómetros Nibali había encontrado algo más, ese algo que los grandes corredores italianos a veces encontraban en el último kilómetro de las últimas etapas del Giro, que era la furia de saber que es la última oportunidad y que si no es aquí no es en ningún otro lado.
 
 Treinta y cuatro segundos.
@@ -406,75 +458,111 @@ Carmen respondió.
 
 — Hola, Santi.
 
-La voz de Carmen. Un poco más baja de lo normal — como si hubiera estado durmiendo o como si hubiera estado en un lugar donde no se habla en voz alta.
+La voz de Carmen. Un poco más baja de lo normal.
 
-— Hola, mamá. ¿Estás bien?
-
-— Sí, estoy bien.
-
-— ¿Papá?
-
-La pausa de siempre. Santi la esperó esta vez — la esperó sin intentar llenarla, con la paciencia del corredor que en veinte días de Giro ha aprendido a leer los silencios antes de la respuesta.
-
-— Descansando — dijo Carmen.
-
-— ¿Puedo hablar con él?
-
-Pausa más larga.
-
-— Está muy dormido, Santi. El tratamiento de ayer le costó.
-
-— Bien — dijo Santi.
-
-Hubo un silencio entre los dos. No el silencio de las llamadas cortas — el silencio de algo más, de algo que Santi sentía sin poder nombrarlo, algo en la respiración de Carmen al otro lado que era diferente de las noches anteriores de diferente manera.
-
-— ¿Cómo te fue hoy? — dijo Carmen.
-
-— Bien. Un minuto ocho sobre Nibali.
-
-— ¿Es suficiente?
-
-— Es suficiente.
-
-Carmen no dijo nada durante un momento.
-
-— Mañana es Verona — dijo finalmente.
-
-— Mañana es Verona.
-
-— ¿Cuándo termina la carrera?
-
-— A las cuatro, cuatro y media.
-
-— Vamos a estar viendo — dijo Carmen. Y luego, con un tono que Santi no supo leer del todo: — Santi. Hiciste muy bien.
-
-Era la segunda vez que lo decía en tres días — *lo hiciste bien* o *hiciste muy bien*. Era la manera de Carmen cuando lo que quería decir era más de lo que decía. Cuando había algo detrás de las palabras que las palabras no alcanzaban a contener.
-
-— Gracias — dijo Santi.
-
-— Duerme.
+— Mamá.
 
 — Sí.
 
-— Te quiero.
+— Hoy en la zona mixta una periodista de Semana me dijo que tiene tres fuentes que confirman que papá está hospitalizado desde antes del Stelvio.
 
-— Yo también.
+Silencio.
+
+No el silencio de dos segundos de las noches anteriores. El silencio largo — el silencio de la persona que ha estado esperando este momento durante cinco días y que cuando llega no sabe cómo empezar.
+
+— Mamá — dijo Santi. La voz sin acusación. La voz de quien solo necesita saber. — ¿Papá está en el hospital?
+
+El silencio duró cuatro segundos más.
+
+— Sí — dijo Carmen.
+
+Una sola palabra. Cuatro letras. El final de cinco días de medias verdades y mentiras completas y el *bien* con textura diferente y el *queda un día* y *esta tarde tomamos café en el balcón*.
+
+— Desde cuándo — dijo Santi.
+
+— Desde la noche antes del Stelvio. — La voz de Carmen quebrada por primera vez en todo el Giro. — El segundo ciclo de quimioterapia le bajó las defensas. Infección pulmonar. Urgencias, luego UCI.
+
+Santi procesó.
+
+La noche antes del Stelvio. El lunes veintisiete de mayo. Hacía cinco días.
+
+— ¿Por qué no me dijiste?
+
+— Porque tu papá no quería. — Carmen respiró. — Porque el dos de junio era el Giro, Santi. Porque Hernando dijo *déjalo terminar*. Porque si te decía no ibas a poder hacer lo que hiciste en el Stelvio ni en el Avena ni en ninguna otra etapa.
+
+Santi miró la viga de madera del techo de la habitación de Feltre.
+
+No dijo nada durante un momento.
+
+— ¿Cómo está ahora?
+
+— Mejor — dijo Carmen. La voz más firme. — Estable desde hace tres días. Los antibióticos funcionaron. Hoy por la tarde estuvo despierto un rato largo. — Una pausa. — Hoy habló.
+
+— ¿Habló?
+
+— Poco. Pero habló.
+
+Santi cerró los ojos.
+
+— ¿Puedo hablar con él?
+
+Silencio breve. El ruido de pasos de hospital. Una puerta. El sonido de una habitación diferente.
+
+— Santi. — La voz de Carmen, ahora en voz baja. — Santi, te paso a tu papá.
+
+El sonido de la transferencia del teléfono. Pasos. El ruido suave del monitor cardíaco de fondo.
+
+Y luego la voz de Hernando.
+
+Débil. Sin el volumen de siempre — la voz del hombre que lleva cinco días con el oxígeno y los antibióticos y el gotero y que en la voz tiene el esfuerzo de quien ha tenido que guardar todo lo que tiene para el momento en que el teléfono llegara a su mano.
+
+— Santi.
+
+— Papá.
+
+Silencio. El silencio de los Reyes. El único silencio que en esta historia no necesitaba llenarse.
+
+— Mañana — dijo Hernando. Cada palabra pesada, medida, como si el aire en los pulmones fuera un recurso que administrar con la misma economía con que administraba todo lo demás. — Mañana es el crono.
+
+— Sí.
+
+— ¿Las piernas?
+
+— Al noventa y cuatro.
+
+Una pausa. El sonido de Hernando respirando.
+
+— No te atrevas a volver — dijo Hernando — sin haberlo ganado.
+
+No era una instrucción. Era lo que Hernando Reyes sabía decir cuando lo que quería decir era *te quiero* y *estoy orgulloso* y *gracias* y *volvé pronto* y *sé que podés* y *ya sé que vas a ganar* — todo lo que en cuarenta y dos años de vida Hernando no había sabido decir de otra manera que con la instrucción directa que en la boca de este hombre contenía todas esas cosas al mismo tiempo.
+
+Santi lo sabía.
+
+Lo había sabido desde el primer puerto.
+
+— Bien — dijo Santi.
+
+Y fue suficiente.
+
+Carmen tomó el teléfono de vuelta.
+
+— Mañana — dijo.
+
+— Mañana — dijo Santi.
 
 Y colgaron.
 
-Santi se quedó con el teléfono en la mano.
+Santi se quedó con el teléfono en la mano en la habitación del hotel de Feltre durante un tiempo que no midió. La viga de madera del techo. El velador naranja. El silencio del hotel a las nueve y cuarto de la noche del primero de junio.
 
-Miró el techo de la habitación de Feltre — el mismo techo blanco, la misma viga de madera, la misma luz del velador que convertía la habitación en ese naranja específico de las habitaciones de hotel que no son ni cálidas ni frías sino simplemente funcionales.
+Pensó en Hernando en la cama cuatro de la UCI del Pablo Tobón con el monitor y el oxígeno y la voz débil que había guardado lo que le quedaba para decir cuatro palabras.
 
-Pensó en su padre.
-
-No en la imagen del enfermo — en la imagen del hombre en la sala de Laureles con el televisor y el vaso de agua de la noche y el silencio que era todo lo que Hernando Reyes sabía hacer con las cosas que importaban. En la imagen de las manos de Hernando sobre el manillar de la bicicleta que le enseñó a subir el primer puerto de su vida. En la voz de Hernando diciendo *bien* con el peso de toda la evaluación comprimida en una sílaba.
-
-*Al noventa y cuatro*, pensó Santi. *Mañana las piernas van a estar al noventa y cuatro.*
+*No te atrevas a volver.*
 
 Apagó el velador.
 
-Se durmió antes de las diez.
+No durmió de inmediato.
+
+Pero a las diez y media, el cuerpo tomó la decisión que la mente no había podido tomar: lo apagó todo, lo archivó todo, y durmió. Porque mañana era el crono de Verona. Porque las piernas iban a estar al noventa y cuatro. Porque Hernando había dicho *no te atrevas a volver sin haberlo ganado* y eso era exactamente lo que Santi iba a hacer.
 
 ---
 

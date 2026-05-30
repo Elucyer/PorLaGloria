@@ -106,6 +106,62 @@ El grupo de GC de Anterselva: Nibali primero por posición de rueda. Santi a la 
 
 ---
 
+La zona mixta de Anterselva tenía la estructura de siempre — el corredor de vallas metálicas después de la línea de llegada, los periodistas con los micrófonos y las cámaras y los grabadoras, las televisiones de ocho países esperando al líder de la carrera con las preguntas de siempre: ¿cómo están las piernas?, ¿mañana puede Nibali recuperar?, ¿el Stelvio fue el momento decisivo?
+
+Santi pasó por la zona mixta con la eficiencia del corredor que lleva diecinueve días haciéndolo y que ha aprendido a responder sin gastar energía en las respuestas.
+
+*RTL*: las piernas están bien, la defensa va a ser la defensa.
+
+*RAI Sport*: Nibali es un gran corredor, mañana va a intentarlo de nuevo.
+
+*France Télévisions*: el Stelvio fue duro, pero el Giro termina en Verona.
+
+Tres cámaras. Cuatro preguntas. Noventa segundos.
+
+Luego el micrófono de RCN Colombia.
+
+El periodista era joven — veintiséis o veintisiete años, colombiano, con el chaleco del canal y la acreditación de prensa del Giro colgada del cuello y una grabadora en la mano. Santi lo había visto antes en la zona mixta del Lago Serrù y en la de Courmayeur. En esas dos ocasiones había hecho las preguntas esperadas: ¿qué significa para Colombia?, ¿qué le diría a los aficionados colombianos?
+
+Esta vez el periodista esperó un segundo antes de hablar.
+
+Ese segundo fue distinto.
+
+Era el segundo de alguien que tiene una pregunta que no sabe si hacer.
+
+— Santi — dijo el periodista, en español colombiano —. Primero felicitaciones por la defensa de hoy y por el Stelvio. — Una pausa corta, la pausa del periodista que ordena las palabras. — Hay una información que nos llegó desde Medellín sobre tu papá. Que está hospitalizado. ¿Puedes confirmar cómo está?
+
+Santi lo miró.
+
+El cerebro del corredor al que le acaban de decir algo que no encaja con la información que tiene tardó exactamente dos segundos en procesar la pregunta. No la respuesta — la pregunta.
+
+*Hospitalizado.*
+
+— No — dijo Santi. El tono neutro del corredor que corrige un hecho. — Mi papá está en Laureles, siguiendo el Giro. Tiene un tratamiento difícil con la quimioterapia pero está bien.
+
+El periodista anotó algo en el margen de su libreta.
+
+— ¿Entonces desmientes que esté hospitalizado?
+
+— Sí — dijo Santi.
+
+Lo dijo con la naturalidad del hombre que desmiente porque está seguro. Porque Carmen había dicho *bien*. Porque la última llamada había sido normal. Porque no había ninguna razón para que fuera de otra manera.
+
+— Gracias — dijo el periodista.
+
+Y el micrófono bajó.
+
+Santi siguió por la zona mixta hacia el autobús del equipo. El asistente de Ferretti lo esperaba con la bolsa de recuperación y el cambio de ropa. Santi tomó la bolsa, se subió al autobús, se puso los auriculares.
+
+La pregunta del periodista de RCN — *hospitalizado* — llegó al compartimento donde el corredor guarda las cosas que no puede atender ahora. El mismo compartimento del kilómetro dieciséis del Stelvio. El mismo de las pausas de Carmen y el *bien* con textura diferente.
+
+Lo metió ahí.
+
+Cerró el compartimento.
+
+El autobús salió hacia el hotel.
+
+---
+
 La noche del miércoles veintinueve de mayo, Santi llamó a casa desde el hotel de Anterselva.
 
 Carmen respondió al segundo timbre.
@@ -120,25 +176,67 @@ La voz de siempre. El tono de siempre. La misma serenidad específica de Carmen 
 
 Una pausa. No larga — dos segundos, tal vez tres. Del tipo de pausa que Santi habría pasado por alto en cualquier otro momento de su vida pero que en el decimoséptimo día de un Giro, con los sentidos afinados al modo en que se afinan cuando el cuerpo lleva dieciséis días leyendo a otros corredores para anticipar sus movimientos, registró de una manera que no supo qué hacer con ella.
 
-— ¿Tu papá? — dijo.
+— ¿papá? — dijo.
 
 — Descansando — dijo Carmen. — Le costó el día. El tratamiento le pega fuerte.
 
 Era cierto. Era también la mitad de la verdad, que es el tipo de verdad que se puede decir sin mentir y sin decir lo que uno no quiere decir. Hernando estaba en la UCI del Pablo Tobón Uribe con una infección respiratoria secundaria al segundo ciclo de quimioterapia, inconsciente intermitentemente, con el oncólogo Urquijo y su equipo monitorizando la saturación de oxígeno cada hora. Que le costara el día era la formulación más precisa que Carmen pudo encontrar sin que Santi lo supiera antes del Giro de Verona.
 
-— Bien — dijo Santi. — Mañana es la etapa llana. Llamo más tarde.
+Una pausa.
 
-— Bien — dijo Carmen. — Santi.
+— Mamá — dijo Santi.
+
+— Sí.
+
+— Hoy en la zona mixta un periodista de RCN me preguntó si papá estaba hospitalizado.
+
+El silencio de Carmen duró un segundo y medio. Para alguien que no la conociera habría sido un silencio normal — la pausa de quien procesa una pregunta inesperada. Para Santi, que llevaba diecisiete días leyendo silencios, fue el silencio más largo del Giro.
+
+— ¿Quién te preguntó eso? — dijo Carmen. El tono de la indignación controlada. El tono de la madre que protege.
+
+— Un periodista de RCN. Dijo que les había llegado información desde Medellín.
+
+— Son rumores — dijo Carmen. La voz firme. La voz sin fisuras. — Vos sabés cómo es eso. En este país cualquiera inventa una historia y ya está en los medios. Tu papá está aquí en el apartamento, Santi. Esta tarde tomamos café en el balcón.
+
+Era una mentira completa. Era la primera mentira completa de Carmen en diecisiete días de medias verdades y verdades incompletas — la primera vez que Carmen Cardona de Reyes le decía a su hijo algo que no era verdad en ninguna de sus partes, porque Hernando no estaba en el apartamento ni había tomado café en el balcón, estaba en la cama cuatro de la UCI del Pablo Tobón con el monitor cardíaco y el oxígeno y los ojos cerrados.
+
+Carmen lo sabía.
+
+Y lo dijo de todas maneras.
+
+— Bien — dijo Santi. La exhalación del corredor que acepta la información porque la alternativa — no aceptarla — no tiene solución desde un hotel en el Trentino-Alto Adige a las nueve de la noche del día diecisiete de un Giro.
+
+— Al periodista le contestaste bien — dijo Carmen. — Que está en casa. Que tiene el tratamiento pero está bien.
+
+— Sí.
+
+Una pausa.
+
+— Mañana es la etapa llana — dijo Santi.
+
+— Lo sé. Descansá.
+
+— Santi.
 
 — Sí.
 
 — Lo hiciste bien ayer.
 
-No era lo que decía Hernando. Hernando decía *bien* con el peso de toda la evaluación comprimida en una sola sílaba. Carmen decía *lo hiciste bien* con el calor de alguien que entiende que hay un ser humano encima de la bicicleta además del corredor.
+No era lo que decía Hernando. Hernando decía *bien* con el peso de toda la evaluación comprimida en una sola sílaba. Carmen decía *lo hiciste bien* con el calor de alguien que entiende que hay un ser humano encima de la bicicleta además del corredor. Esta noche lo dijo también con el peso de lo que no podía decir — con la deuda de la madre que acaba de mentirle a su hijo para que su hijo pueda terminar la carrera más grande de su vida.
 
 — Gracias — dijo Santi.
 
 Y colgaron.
+
+Carmen se quedó con el teléfono en la mano en el pasillo de la UCI del Pablo Tobón.
+
+Tenía las manos frías.
+
+Fue a la máquina de café. Puso ochocientos pesos. Esperó el vaso de plástico. Bebió de pie.
+
+*Al periodista le contestaste bien*, había dicho. Como si ella hubiera estado ahí. Como si la mentira de Santi y la mentira de ella fueran la misma mentira y ya no importara distinguirlas.
+
+Quedaban cuatro días.
 
 ---
 
