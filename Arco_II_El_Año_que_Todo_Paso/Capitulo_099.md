@@ -94,7 +94,7 @@ Peña, en el coche:
 
 — Bien.
 
-Era el *bien* del entrenador. Era también la evaluación del director técnico: el escalador más rápido en el Jenkin Road del equipo Colombia era Santiago Reyes.
+Era el *bien* del entrenador. Era también la evaluación del director técnico: el escalador más rápido en el Jenkin Road del equipo Colombia era Santiago Reyes, cuatro segundos sobre Bernal. Dos corredores que podían ganar — uno cuatro segundos más rápido en el puerto, pero los cuatro segundos no eran la carrera.
 
 ---
 
@@ -248,7 +248,7 @@ Apagó la luz.
 *7. Darwin Atapuma*
 *8. Winner Anacona*
 
-*Plan táctico: controlar la carrera hasta el último circuito. Liberar a Santi en la octava pasada del Jenkin Road. Nairo y Bernal como lanzadores en la séptima vuelta.*
+*Plan táctico: controlar la carrera hasta el último circuito. Dos opciones de victoria: Santi (más rápido en el Jenkin Road) o Bernal (si la carrera se fragmenta antes). Nairo como lanzador en la sexta vuelta. Bernal lanza en la séptima y libera a Santi en la octava — salvo que Bernal siga con opciones propias.*
 
 *Pronóstico del tiempo para el domingo 29 de septiembre en Harrogate: nublado a partir de mediodía, lluvia posible en la tarde. Temperatura: 12°C.*
 

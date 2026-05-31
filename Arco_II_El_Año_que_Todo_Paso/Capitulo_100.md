@@ -128,11 +128,13 @@ Van Aert al lado de Alaphilippe.
 
 Colombia en bloque: Bernal y Nairo habían subido a la sexta y séptima posición del pelotón. Santi seguía detrás — décima posición, con el margen de reserva que el plan de Peña exigía.
 
-— Kilómetro ciento ochenta — dijo Peña por el pinganillo. — Quedan los circuitos. Bernal y Nairo: empezáis a proteger a Santi. Nadie lo toca en las primeras cinco vueltas. En la sexta vuelta, Nairo larga el ritmo. En la séptima, Bernal. En la octava: Santi solo.
+— Kilómetro ciento ochenta — dijo Peña por el pinganillo. — Quedan los circuitos. Nadie toca a Santi ni a Bernal en las primeras cinco vueltas. En la sexta vuelta, Nairo larga el ritmo. En la séptima, Bernal ataca — si tiene piernas para seguir después del ataque, sigue. Si no, libera a Santi. En la octava: el que esté mejor adelante. Si los dos están, los dos van.
 
 Santi escuchó el plan.
 
-Era el plan que habían acordado en Bogotá. Era el plan que Ferretti había validado. Era el plan que en teoría era correcto y que en la práctica dependía de si los veinticuatro corredores restantes tenían sus propios planes y si esos planes coincidían o no.
+Bernal también.
+
+Era el plan que habían acordado en Bogotá — no un plan para uno sino para dos, con la claridad de que en el Jenkin Road final Colombia iba a tener dos corredores con opciones y que el pelotón iba a tener que cubrir las dos. Era el plan que Ferretti había validado. Era el plan que en teoría era correcto y que en la práctica dependía de si los veinticuatro corredores restantes tenían sus propios planes y si esos planes coincidían o no.
 
 En el ciclismo no había planes que sobrevivieran intactos el contacto con doscientos cincuenta corredores que también tenían planes.
 
