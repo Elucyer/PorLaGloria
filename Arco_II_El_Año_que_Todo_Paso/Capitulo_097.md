@@ -22,13 +22,13 @@ Santi conocía a Peña — el exciclista colombiano que había corrido el Tour d
 
 — Gracias — dijo Santi.
 
-— El equipo completo: usted, Iván Sosa, Nairo, Bernal, Chaves, Dani Martínez, Darwin Atapuma y dos más. Nuevo a Colombia en un Mundial como esta la potencia que lleva. — Pausa con el peso de lo que Londoño estaba por decir. — Con su triunfo en el Giro de Italia, señor Reyes, Colombia entra como una de las naciones favoritas. Es la primera vez.
+— El equipo completo: usted, Iván Sosa, Nairo, Bernal, Chaves, Dani Martínez, Darwin Atapuma y dos más. Nunca Colombia en un Mundial como esta la potencia que lleva. — Pausa con el peso de lo que Londoño estaba por decir. — Con su triunfo en el Giro de Italia y el triunfo de Bernal en el Tour de Francia, Colombia entra como la nación favorita. Las dos grandes vueltas del año, los dos colombianos. Nunca había pasado esto. Es la primera vez.
 
 Era, Santi lo comprendió en ese momento, la primera vez.
 
-Colombia había enviado corredores al Mundial durante décadas. Lucho Herrera, Fabio Parra, los escaladores de los años ochenta que en las carreteras europeas habían puesto el nombre del país en los periódicos deportivos. Nairo había estado en el podio en 2013. Bernal había corrido. Pero en el ciclismo del ránking UCI, en la clasificación de naciones, en la lista mental que los directores técnicos de los equipos del pelotón hacían cuando pensaban en el Mundial, Colombia no había estado en la primera fila.
+No solo por el Giro. El Giro era suyo. Lo que hacía que esta vez fuera diferente era la suma — él y Bernal, el Giro y el Tour, dos colombianos de diecinueve y veintidós años que en la misma temporada habían ganado las dos carreras más grandes del mundo. Colombia había enviado corredores al Mundial durante décadas. Lucho Herrera, Fabio Parra, los escaladores de los años ochenta que en las carreteras europeas habían puesto el nombre del país en los periódicos deportivos. Nairo había estado en el podio en 2013. Pero en el ciclismo del ránking UCI, en la clasificación de naciones, en la lista mental que los directores técnicos de los equipos del pelotón hacían cuando pensaban en el Mundial, Colombia no había estado en la primera fila.
 
-Hasta ahora.
+Hasta ahora. Y esta vez llegaba con dos cartas de primer nivel en la mano.
 
 — Gracias — dijo Santi otra vez. — Me comprometo.
 

@@ -166,7 +166,9 @@ Patiño procesó eso.
 
 Patiño leyó los números del correo.
 
-Los números eran los números del equipo más rico del ciclismo mundial, con la claridad de quien sabe que puede pagar lo que cualquier otro equipo no puede. Eran números que en el contexto del salario que Santi recibía del FCV-Procycling representaban un múltiplo de cuatro.
+Un millón ochocientos mil euros anuales. Contrato de tres años. Más bonos por grandes vueltas ganadas — trescientos mil euros por cada una — y por podios en clásicas monumentales. El total proyectado sobre tres años, con bonos conservadores, superaba los siete millones de euros.
+
+Eran los números del equipo más rico del ciclismo mundial — el equipo que en los últimos cuatro años había ganado cinco Tours y que sabía exactamente cuánto valía el corredor que había ganado el Giro a diecinueve años. Y eran números que en el contexto del salario que Santi recibía del FCV-Procycling — cuatrocientos cuarenta mil euros anuales, el contrato de joven prometedor firmado antes del Giro — representaban más de cuatro veces su salario actual.
 
 Santi escuchó los números.
 
@@ -212,7 +214,7 @@ Van Aert se rió. No la risa grande — la risa breve del corredor que reconoce 
 
 Y colgó.
 
-La tercera oleada llegó a finales de julio: UAE Team Emirates, Movistar, un correo del equipo EF Education — Jumbo y EF ofreciendo similares números, Movistar ofreciendo menos pero con la propuesta táctica de ser el líder absoluto sin competencia interna. UAE ofreciendo los números más altos de todos.
+La tercera oleada llegó a finales de julio: UAE Team Emirates, Movistar, un correo del equipo EF Education — el Jumbo ofreciendo un millón seiscientos mil euros anuales con los mismos bonos de estructura que Ineos, EF en un millón cuatrocientos mil con un proyecto de equipo más pequeño pero con más libertad táctica, Movistar en un millón cien mil pero con la propuesta de liderazgo absoluto sin competencia interna. Y UAE, cuyo correo llegó el veintinueve de julio con los términos más directos de todos: dos millones quinientos mil euros anuales, cuatro años, bonos ilimitados por victorias en grandes vueltas.
 
 Santi puso todas las ofertas en una carpeta en el correo de Patiño.
 
@@ -272,7 +274,7 @@ Santi había pensado en esto. Había hablado con Patiño. Patiño había constru
 
 Santi dio el número.
 
-Era el triple de lo que ganaba. Menos que UAE. Más que lo que el FCV había pagado jamás a un corredor.
+Un millón trescientos veinte mil euros anuales. El triple de lo que ganaba. Menos que UAE, menos que Ineos, menos que Jumbo. Más que lo que el FCV había pagado jamás a un corredor en sus doce años de historia.
 
 Otro silencio de Ferretti.
 
@@ -494,7 +496,7 @@ Hernando asintió.
 
 — Bien — dijo.
 
-El carro de Santi era más pequeño — un Mazda CX-30, negro, el carro del corredor que en Medellín necesita moverse por el barrio y por las carreteras de entrenamiento sin el tamaño del SUV familiar. Práctico, con el espacio suficiente para las bolsas de entrenamiento y la bicicleta de ruta en el maletero con los portabicicletas.
+El carro de Santi era una Jeep Wrangler, negra — no el carro del corredor que optimiza el espacio sino el carro del corredor que en Medellín necesita subir las carreteras del norte antioqueño cuando va a San José de la Montaña y que en Las Palmas y en las carreteras de entrenamiento de la cordillera encontraba en la tracción y la altura lo que las carreteras pedían. Con los portabicicletas en el techo para la ruta de entrenamiento y el espacio trasero para las bolsas.
 
 El Logan plateado lo donaron a la Junta de Acción Comunal de Floresta.
 
@@ -853,12 +855,12 @@ Y colgó.
 *Junio–agosto de 2019:*
 
 *Santiago Reyes Cardona — Campeón del Giro di Italia 2019.*
-*Contrato renovado con FCV-Procycling. Triple del salario anterior. Compromiso WorldTour 2020–2021.*
+*Contrato renovado con FCV-Procycling. 1.320.000 €/año (triple del salario anterior de 440.000 €). Compromiso WorldTour 2020–2021.*
 *Clásica de San Sebastián: 5º (primera carrera post-Giro).*
 
 *Club de Ciclismo Floresta — tres ganadores en carreras juveniles de Antioquia. Inversión acumulada de Santi: 46 millones de pesos desde 2018.*
 
-*Familia Reyes — Casa nueva en Laureles. Toyota RAV4 (padres). Mazda CX-30 (Santi). Bicicleta del Giro: Hernando Reyes.*
+*Familia Reyes — Casa nueva en Laureles. Toyota RAV4 (padres). Jeep Wrangler negra (Santi). Bicicleta del Giro: Hernando Reyes.*
 
 *Hernando Reyes — tercer ciclo de quimioterapia. Respuesta parcial significativa: -36% del tumor. Cuarto ciclo programado para agosto.*
 

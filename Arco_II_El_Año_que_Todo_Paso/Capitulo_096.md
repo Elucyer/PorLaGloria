@@ -12,11 +12,11 @@ Contestó porque el teléfono estaba en el bolsillo de la camiseta y porque Duar
 
 — Hablar — dijo Santi. No era saludo — era la instrucción de que tenía treinta segundos antes de que la cuesta exigiera el cien por ciento de la capacidad pulmonar.
 
-— Bancolombia acepta la modificación de la cláusula de exclusividad — dijo Duarte, con la economía del hombre que entendía exactamente el contexto. — Patiño tiene los términos. Firmamos esta semana si querés.
+— Bancolombia acepta la modificación de la cláusula de exclusividad — dijo Duarte, con la economía del hombre que entendía exactamente el contexto. — Patiño tiene los términos. Son cuatrocientos veinte millones de pesos anuales, tres años. Firmamos esta semana si querés.
 
 — Bien — dijo Santi.
 
-— Los suizos me mandaron el contraoferta — continuó Duarte. — Subieron un treinta por ciento del número inicial. Les faltan veinte.
+— Los suizos me mandaron la contraoferta — continuó Duarte. — Empezaron en ciento ochenta mil euros anuales. Subieron a doscientos treinta y cuatro. Les faltan veinte para llegar a los doscientos cincuenta que pedimos.
 
 — ¿Los cerrás?
 
@@ -54,7 +54,7 @@ No en Medellín — por videollamada desde Lausana, con el director de asociacio
 
 Duarte condujo la llamada desde Bogotá. Santi estaba en el balcón de Laureles con el teléfono en altavoz.
 
-El número final era el doble del número inicial, más un bono por cada gran vuelta ganada mientras durara el contrato — el bono del relojero suizo que entendía que asociarse a un campeón del Giro era una cosa y asociarse al corredor que siguiera ganando grandes vueltas en los próximos años era otra categoría completamente diferente.
+El número final era doscientos cincuenta mil euros anuales — el doble del número inicial — más un bono de ochenta mil euros por cada gran vuelta ganada mientras durara el contrato. Cuatro años. Si Santi ganaba dos grandes vueltas por año, el acuerdo superaba el millón y medio de euros. Era el bono del relojero suizo que entendía que asociarse a un campeón del Giro era una cosa y asociarse al corredor que siguiera ganando grandes vueltas en los próximos años era otra categoría completamente diferente.
 
 Cuando terminó la llamada, Duarte le mandó un mensaje: *Listo. Patiño tiene los documentos. Revisá los términos del bono — está bien redactado pero quiero que lo veas vos antes de firmar.*
 
@@ -68,7 +68,7 @@ Firmó el viernes por correo certificado.
 
 Alto Performance fue diferente.
 
-No por los números — los números entre Vélez y Duarte habían quedado claros desde la segunda conversación, sin la negociación larga de los suizos. Fue diferente porque Vélez insistió en que antes de firmar Santi y él se sentaran una hora para hablar de la colección — no el evento mediático, no la sesión de fotos, sino la conversación del diseño: qué funcionaba en el frío de los Alpes, qué funcionaba en el calor del ascenso antioqueño, cuál era la diferencia entre la ropa que el corredor usaba en carrera y la que usaba en los entrenamientos de base.
+No por los números — trescientos sesenta millones de pesos en dos años, más regalías del cinco por ciento sobre las ventas de la colección con su nombre, los números entre Vélez y Duarte habían quedado claros desde la segunda conversación, sin la negociación larga de los suizos. Fue diferente porque Vélez insistió en que antes de firmar Santi y él se sentaran una hora para hablar de la colección — no el evento mediático, no la sesión de fotos, sino la conversación del diseño: qué funcionaba en el frío de los Alpes, qué funcionaba en el calor del ascenso antioqueño, cuál era la diferencia entre la ropa que el corredor usaba en carrera y la que usaba en los entrenamientos de base.
 
 Se encontraron en el apartamento de Santi en Laureles.
 

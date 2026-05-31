@@ -321,6 +321,6 @@ Que había sabido desde el primer puerto.
 *Frecuencia cardíaca máxima: 197 lpm*
 *Peso corporal: 62,4 kg*
 
-*Nota del doctor Vargas: "Valor de VO2 máximo sin precedente documentado en la literatura científica para ciclismo de ruta profesional. Reproducible en dos mediciones en días consecutivos con equipo calibrado certificado. El atleta presenta un perfil fisiológico equiparable al de los esquiadores de fondo de elite nórdica con un historial de entrenamiento específico de ciclismo de ruta. La combinación de VO2 máximo, umbral de lactato elevado y peso corporal resulta en un índice de potencia relativa proyectado de 7,4 W/kg al umbral — valor que solo cuatro ciclistas de ruta profesionales han alcanzado en condiciones de test verificadas."*
+*Nota del doctor Vargas: "Valor de VO2 máximo sin precedente documentado en la literatura científica para ciclismo de ruta profesional. Reproducible en dos mediciones en días consecutivos con equipo calibrado certificado. El atleta presenta un perfil fisiológico equiparable al de los esquiadores de fondo de elite nórdica con un historial de entrenamiento específico de ciclismo de ruta. La combinación de VO2 máximo, umbral de lactato elevado y peso corporal resulta en un índice de potencia relativa de 7,4 W/kg al umbral — índice distinto al VO2 máximo: se refiere a la potencia sostenible por kilogramo de peso corporal, valor que solo cuatro ciclistas de ruta profesionales han alcanzado en condiciones de test verificadas en la literatura disponible."*
 
 ---

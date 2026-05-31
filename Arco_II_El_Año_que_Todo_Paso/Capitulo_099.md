@@ -98,6 +98,76 @@ Era el *bien* del entrenador. Era también la evaluación del director técnico:
 
 ---
 
+Esa noche, Bernal tocó la puerta de la habitación de Santi.
+
+No con una excusa — sin excusa. La puerta, el golpe de nudillo, y cuando Santi abrió: Bernal de pie en el pasillo con el teléfono en la mano y la expresión del corredor que ha estado pensando en algo y que ha decidido que es mejor decirlo que guardarlo.
+
+— ¿Puedo pasar?
+
+— Sí.
+
+Se sentaron en las dos sillas del cuarto del hotel — el cuarto estándar de los hoteles de concentración, con la cama y el escritorio y la silla donde los corredores siempre ponían las bolsas y que en este caso estaba libre porque Santi no ponía las bolsas en las sillas.
+
+Bernal puso el teléfono boca abajo sobre el escritorio.
+
+— Quería preguntarte algo — dijo.
+
+— Preguntá.
+
+— En el Jenkin Road, en la octava vuelta — ¿cuándo salís?
+
+Era la pregunta táctica. Directa, sin preámbulo.
+
+— En el último kilómetro de la subida — dijo Santi. — En el punto donde la rampa máxima es continua. Doscientos metros antes de la cima.
+
+— ¿Y si alguien sale antes?
+
+— Depende de quién. Alaphilippe lo dejo salir — lo bajo en el descenso. Valverde lo sigo de inmediato. Van Aert lo sigo de inmediato.
+
+Bernal asintió. Procesó.
+
+— Si yo salgo antes — dijo Bernal — ¿qué hacés?
+
+Era la pregunta que ninguno de los dos había dicho en la concentración de Bogotá ni en los días de reconocimiento. La pregunta que tenía que hacerse en algún momento porque el equipo Colombia tenía dos corredores que en el Jenkin Road podían ganar el Mundial y que en la misma carrera necesitaban saber exactamente qué pasaba si los dos estaban en posición de ganar.
+
+Santi lo pensó.
+
+— Si vos salís y yo puedo seguirte — dijo — te sigo. Si no puedo seguirte, corres solo.
+
+— ¿Y si los dos estamos en el descenso con opciones?
+
+— El que llegue primero a la calle de llegada gana para Colombia.
+
+Bernal lo miró.
+
+— No me estás diciendo que me das el paso.
+
+— No. Te estoy diciendo que los dos corremos para ganar. El que gane, gana para los dos.
+
+Hubo un silencio. Bernal miró el teléfono boca abajo. Luego miró a Santi.
+
+— Bien — dijo.
+
+Era el *bien* que en la semana anterior a un Mundial valía más que cualquier acuerdo táctico escrito.
+
+Se levantó. Fue a la puerta.
+
+— Una cosa más — dijo Bernal, desde la puerta. — En la prensa de esta semana nos están poniendo como los dos favoritos. Giro y Tour. El titular de *Cycling Weekly* del lunes era "La doble corona colombiana".
+
+— Lo vi — dijo Santi.
+
+— ¿Te molesta?
+
+— No. El que gane confirma el titular. El que pierda también — de otra manera.
+
+Bernal sonrió. No la sonrisa grande — la sonrisa del corredor que ha recibido la respuesta que no esperaba recibir y que es exactamente la respuesta correcta.
+
+Cerró la puerta.
+
+Santi se quedó en la silla del cuarto del hotel, en Harrogate, con el Yorkshire afuera y la lluvia contra el cristal y el domingo por venir.
+
+---
+
 La semana previa al Mundial tuvo la textura de las esperas grandes.
 
 Los reconocimientos del miércoles y el jueves — el sector inicial de Leeds, las carreteras rurales del Yorkshire que conectaban la salida con los circuitos de Harrogate, los kilómetros donde el pelotón iba a rodar durante cuatro horas antes de que la carrera empezara de verdad. Santi los recorrió con la misma atención con que había recorrido el perfil del Giro en las semanas de Mallorca: no para emocionarse sino para aprender. La carretera del Yorkshire no tenía la belleza vertical de los Alpes — tenía la belleza horizontal del campo inglés, los campos divididos por muros de piedra, los pequeños bosques de hayas, los ríos que cruzaban la ruta bajo puentes de piedra, los pueblos con sus names imposibles para el corredor colombiano que los leía y los pronunciaba y los olvidaba.

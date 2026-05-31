@@ -24,6 +24,8 @@ El pelotón en el Mundial tiene una dinámica diferente al pelotón de las grand
 
 Colombia rodó en cuarta posición del pelotón durante los primeros cuarenta kilómetros. Bernal al frente del grupo colombiano, Nairo detrás, Santi en séptima posición del bloque colombiano — la posición del corredor que no necesita gastar en los primeros kilómetros porque lo que tiene que gastar está reservado para las últimas horas.
 
+Era el equipo que en la semana previa al Mundial había llenado las portadas del ciclismo europeo. *Cycling Weekly*, *Velo*, *Gazzetta dello Sport*: la misma historia en cuatro idiomas. Colombia en Yorkshire con el ganador del Giro y el ganador del Tour en el mismo equipo nacional — algo que no había ocurrido en el ciclismo mundial desde la Italia de Coppi y Bartali, y que entonces había terminado en tragedia. Nadie en el periodismo ciclista había resistido el titular. *La doble corona.* Colombia llegaba a Yorkshire no solo con corredores — llegaba con los dos mejores resultados del ciclismo de grandes vueltas del año 2019 concentrados en nueve hombres con el maillot tricolor.
+
 Holanda rodó al frente. Van der Poel había decidido — o el equipo holandés había decidido — que el control temprano de la carrera era su táctica, y los cuatro hombres naranjas que tiraban en los primeros kilómetros de la A65 hacia los Dales del Yorkshire hacían la carrera en el ritmo de los equipos que tienen velocidad para controlar pero no tienen escaladores para el final.
 
 La fuga del día fue en el kilómetro ocho.
