@@ -1,181 +1,125 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 96 — La Convocatoria (septiembre de 2019)
+### Capítulo 96 — Los Acuerdos (agosto–septiembre de 2019)
 
 ---
 
-La llamada del director técnico de la Federación Ciclista Colombiana llegó un miércoles de septiembre.
+Duarte llamó el lunes siguiente a las nueve de la mañana.
 
-Santi estaba en el balcón de Laureles. Hernando leía el libro del ferrocarril antioqueño. El café de las siete de la mañana humeaba sobre la mesa de plástico entre los dos y el parque abajo tenía sus corredores de mañana y sus abuelas con perros y su normalidad de barrio que en septiembre de Medellín era indistinguible de la normalidad de cualquier otro mes.
+Santi estaba en Las Palmas, en el kilómetro doce de la subida, con la frecuencia cardíaca en ciento setenta y dos y el asfalto mojado por la llovizna de agosto que en la carretera de Las Palmas era la llovizna de siempre — la que llegaba entre las diez y las once y que los corredores de Medellín aprendían a calcular desde los primeros años de entrenamiento.
 
-El teléfono.
+Contestó porque el teléfono estaba en el bolsillo de la camiseta y porque Duarte era uno de los tres contactos que tenía autorización para interrumpir un entrenamiento.
 
-El número de Bogotá que Santi reconoció del prefijo.
+— Hablar — dijo Santi. No era saludo — era la instrucción de que tenía treinta segundos antes de que la cuesta exigiera el cien por ciento de la capacidad pulmonar.
 
-— Santiago Reyes Cardona. Habla Carlos Londoño, director técnico de la Federación. Quería comunicarle personalmente que ha sido convocado para representar a Colombia en el Campeonato del Mundo de Ciclismo en Ruta. Yorkshire, Reino Unido. Veintinueve de septiembre.
+— Bancolombia acepta la modificación de la cláusula de exclusividad — dijo Duarte, con la economía del hombre que entendía exactamente el contexto. — Patiño tiene los términos. Firmamos esta semana si querés.
 
-Santi escuchó.
+— Bien — dijo Santi.
 
-— La prueba de ruta masculina élite — continuó Londoño — es doscientos ochenta y cinco kilómetros de Leeds a Harrogate. El director técnico del equipo Colombia va a ser Víctor Hugo Peña.
+— Los suizos me mandaron el contraoferta — continuó Duarte. — Subieron un treinta por ciento del número inicial. Les faltan veinte.
 
-Santi conocía a Peña — el exciclista colombiano que había corrido el Tour de France y que en los últimos años dirigía la selección nacional.
+— ¿Los cerrás?
 
-— Gracias — dijo Santi.
+— Sí. Esta semana.
 
-— El equipo completo: usted, Iván Sosa, Nairo, Bernal, Chaves, Dani Martínez, Darwin Atapuma y dos más. Nuevo a Colombia en un Mundial como esta la potencia que lleva. — Pausa con el peso de lo que Londoño estaba por decir. — Con su triunfo en el Giro de Italia, señor Reyes, Colombia entra como una de las naciones favoritas. Es la primera vez.
+— Bien. — Pausa de ocho segundos mientras Santi negociaba una curva cerrada con el asfalto húmedo. — ¿Algo más?
 
-Era, Santi lo comprendió en ese momento, la primera vez.
+— Nada que no pueda esperar a que bajés.
 
-Colombia había enviado corredores al Mundial durante décadas. Lucho Herrera, Fabio Parra, los escaladores de los años ochenta que en las carreteras europeas habían puesto el nombre del país en los periódicos deportivos. Nairo había estado en el podio en 2013. Bernal había corrido. Pero en el ciclismo del ránking UCI, en la clasificación de naciones, en la lista mental que los directores técnicos de los equipos del pelotón hacían cuando pensaban en el Mundial, Colombia no había estado en la primera fila.
+Duarte colgó.
 
-Hasta ahora.
-
-— Gracias — dijo Santi otra vez. — Me comprometo.
+Santi siguió subiendo.
 
 ---
 
-Hernando esperó a que Santi guardara el teléfono.
+El contrato de Bancolombia se firmó el miércoles cuatro de septiembre en las oficinas de Patiño — un apartamento de El Poblado convertido en consultorio jurídico, con los estantes de carpetas y el escritorio de madera oscura que en Medellín era el lenguaje visual del abogado serio. Mesa redonda, cuatro personas: Santi, Patiño, el director de marketing de Bancolombia y su abogado corporativo.
 
-— ¿El Mundial? — dijo.
+Treinta minutos. La cláusula de exclusividad del sector financiero había quedado limitada a banca de consumo — sin tocar las puertas de seguros o inversión, que eran territorios que Duarte había señalado como potencialmente valiosos en el futuro.
 
-— Yorkshire. Veintinueve de septiembre.
+Santi firmó.
 
-Hernando asintió. No dijo nada durante un momento. Miró el parque — los samanes, los corredores, la luz de septiembre que en Medellín era la luz de la primera lluvia del segundo semestre, más suave que la de julio, con las nubes que en las mañanas todavía dejaban pasar el sol y que en las tardes lo cerraban.
+El director de marketing extendió la mano con la expresión del hombre que ha conseguido lo que quería y que tiene la inteligencia de no mostrarlo demasiado.
 
-— ¿El recorrido? — dijo.
+— Va a ser una relación larga — dijo.
 
-— Doscientos ochenta y cinco kilómetros. Leeds a Harrogate. Circuitos finales en Harrogate con el Jenkin Road.
+— Eso esperamos — dijo Santi.
 
-Hernando procesó.
-
-El Jenkin Road era la Côte de Jenkin Road — el ascenso corto y duro en los circuitos finales del Mundial de Yorkshire que en los análisis de las carreras europeas aparecía como el sector donde la carrera se partía. No era el Stelvio. No era el Agnello. Era el tipo de rampa de cinco minutos que en los circuitos de los Mundiales separaba a los escaladores puros de los corredores completos — la rampa que en el circuito final se subía cuatro o cinco veces y que acumulaba el daño de manera que en la última pasada los que no tenían las piernas de los Alpes no podían seguir.
-
-— Es bueno para vos — dijo Hernando.
-
-— El circuito es para los sprinters y los corredores completos — dijo Santi. — No es alta montaña.
-
-— El Jenkin Road en la última vuelta, con doscientos ochenta kilómetros en las piernas — dijo Hernando — es alta montaña.
-
-Santi lo pensó.
-
-— Sí — dijo.
-
-— ¿Y el equipo?
-
-— Nairo, Bernal, Chaves, Sosa. Los mejores.
-
-Hernando asintió.
-
-— ¿Cuántos días tenés?
-
-— Tres semanas.
-
-Hernando cerró el libro del ferrocarril.
-
-— Llamá a Ferretti.
+No era protocolo. Era la condición mínima para que algo valiera la firma.
 
 ---
 
-Ferretti ya sabía.
+Los suizos cerraron el jueves.
 
-Cuando Santi llamó al director deportivo italiano, Ferretti respondió antes del segundo timbre con el tono del hombre que ha estado esperando la llamada.
+No en Medellín — por videollamada desde Lausana, con el director de asociaciones globales de la marca y un traductor que al final de la llamada no había sido necesario porque el director hablaba un español con acento francés perfectamente comprensible.
 
-— El FCI te convocó — dijo Ferretti.
+Duarte condujo la llamada desde Bogotá. Santi estaba en el balcón de Laureles con el teléfono en altavoz.
 
-— Sí.
+El número final era el doble del número inicial, más un bono por cada gran vuelta ganada mientras durara el contrato — el bono del relojero suizo que entendía que asociarse a un campeón del Giro era una cosa y asociarse al corredor que siguiera ganando grandes vueltas en los próximos años era otra categoría completamente diferente.
 
-— Bien. Hablé con Peña. Víctor Hugo tiene el plan táctico base. Yo te voy a mandar el análisis de Yorkshire esta noche. — Pausa. — El Mundial no es el Giro. El equipo no es el FCV-Procycling. Vas a correr con Nairo, con Bernal, con gente que tiene sus propios intereses y sus propios directores deportivos. La coordinación va a ser diferente.
+Cuando terminó la llamada, Duarte le mandó un mensaje: *Listo. Patiño tiene los documentos. Revisá los términos del bono — está bien redactado pero quiero que lo veas vos antes de firmar.*
 
-— Lo sé.
+Santi lo leyó esa noche.
 
-— Lo que tenés a tu favor — continuó Ferretti — es que llegas al Mundial como el corredor que ganó el Giro. En el pelotón eso tiene peso. Los demás te van a marcar. Te van a usar como referencia. Eso es bueno y malo al mismo tiempo.
+El bono estaba bien redactado.
 
-— ¿Qué es lo malo?
-
-— Que si atacás muy temprano en el Jenkin Road, todo el mundo te sigue. Si esperás demasiado, el sprint te gana. El Mundial de ruta en un circuito como Yorkshire lo gana quien ataca en el último kilómetro del Jenkin Road en la última vuelta — ni antes ni después.
-
-Era el mismo tipo de análisis del Stelvio. El kilómetro exacto. El momento exacto.
-
-— ¿Y si llueve? — dijo Santi.
-
-Ferretti tardó un momento.
-
-— En Yorkshire en septiembre — dijo — casi siempre llueve.
+Firmó el viernes por correo certificado.
 
 ---
 
-El equipo nacional colombiano se concentró en Bogotá el dieciocho de septiembre — tres días de sesiones de análisis táctico en el Centro de Alto Rendimiento de la capital, con Víctor Hugo Peña presidiendo las reuniones y con los ocho corredores del equipo sentados alrededor de la mesa de la sala táctica con el perfil del circuito de Yorkshire en la pantalla.
+Alto Performance fue diferente.
 
-Santi llegó a Bogotá en el vuelo de las once de la mañana.
+No por los números — los números entre Vélez y Duarte habían quedado claros desde la segunda conversación, sin la negociación larga de los suizos. Fue diferente porque Vélez insistió en que antes de firmar Santi y él se sentaran una hora para hablar de la colección — no el evento mediático, no la sesión de fotos, sino la conversación del diseño: qué funcionaba en el frío de los Alpes, qué funcionaba en el calor del ascenso antioqueño, cuál era la diferencia entre la ropa que el corredor usaba en carrera y la que usaba en los entrenamientos de base.
 
-El aeropuerto El Dorado — el mismo aeropuerto de los viajes a Europa de los últimos dos años, el mismo tráfico de los mediodías bogotanos, el mismo olor del Dorado que en Santi tenía la asociación específica de los viajes grandes: el vuelo de la Clásica de Flandes, el vuelo del primer Giro, el vuelo de regreso después de Verona.
+Se encontraron en el apartamento de Santi en Laureles.
 
-El coche del equipo lo esperaba en la salida de llegadas.
+Vélez llegó con un diseñador joven — veintitrés años, del programa de diseño industrial de la EAFIT — y con una bolsa de muestras de tela. Telas técnicas, con los nombres en inglés que el diseñador explicaba con la fluidez del que ha estudiado la materia pero que todavía necesita demostrar que la estudió.
 
-En el asiento trasero: Egan Bernal.
+Santi los recibió en la mesa del comedor.
 
-Bernal tenía veintidós años — dos más que Santi — y en la temporada 2019 había ganado el Tour de Francia, el Tour de Gran Bretaña y se había consolidado como el mejor corredor del mundo en el ránking UCI. Era moreno, menudo, con esa calidad de los corredores colombianos del Ineos que combinaban la potencia de los Andes con la estructura táctica del mejor equipo del mundo.
+— El problema con la ropa de ciclismo de gama alta — dijo Santi, antes de que el diseñador abriera la bolsa — es que la hacen gente que no ha subido el Stelvio en agosto.
 
-— Reyes — dijo Bernal, tendiéndole la mano.
+Vélez se rió. El diseñador no se rió — tomó nota.
 
-— Bernal.
+La hora se convirtió en dos. Santi habló de los puños que en el frío de alta montaña no sellaban bien contra los guantes y dejaban entrar el viento. De los bolsillos traseros que en los descensos se abrían con la vibración del asfalto malo. Del tejido que en el calor húmedo de Colombia perdía la transpirabilidad después de la segunda hora de esfuerzo. Del peso de la cremallera frontal que en algunos modelos era la diferencia entre el corredor aerodinámico y el corredor que pelea contra su propia ropa.
 
-Los dos campeones de grandes vueltas en el asiento trasero del mismo coche en el tráfico de Bogotá — el escenario que en cualquier otro año habría sido impensable y que en septiembre de 2019 era simplemente lo que era: dos colombianos de veinte y veintidós años que ese domingo tenían que ganar el campeonato del mundo.
+El diseñador llenó tres páginas.
 
-— Peña quiere que hables primero — dijo Bernal. — El director quiere que establezcas la jerarquía desde el principio.
+Vélez miraba a Santi con la expresión del empresario que ha conseguido exactamente lo que vino a buscar — no la firma del famoso sino el conocimiento del corredor.
 
-— ¿Y vos? — dijo Santi.
+— ¿Algo más? — dijo el diseñador cuando Santi terminó.
 
-Bernal lo pensó.
+— Los colores — dijo Santi. — El rojo y el amarillo los usamos todos. Buscad algo que sea Colombia pero que no sea la camiseta de la selección.
 
-— Yo me adapto — dijo. — El Mundial no es el Tour ni el Giro. En el Mundial corrés para el equipo.
+El diseñador asintió y subrayó algo.
 
-Santi lo miró. Era — lo entendió en ese momento — exactamente lo que Ferretti habría dicho: *el Mundial se corre para el equipo*. En el Tour y el Giro cada corredor protegía su posición en la GC. En el Mundial, donde no había GC ni tiempo acumulado sino una sola carrera de un solo día, el mejor corredor era el que el equipo decidía que era el mejor corredor para ese día. Y el equipo había decidido que era Santi.
+La colección, cuando saliera, iba a tener su nombre. Santi lo entendía como una responsabilidad — no como publicidad.
 
-— Gracias — dijo Santi.
-
-No por la jerarquía. Por la claridad.
+Firmaron dos días después.
 
 ---
 
-La reunión táctica del primer día en el Centro de Alto Rendimiento fue la reunión más compleja en la que Santi había participado desde el briefing del Stelvio.
+Las otras marcas siguieron llegando en septiembre, en octubre, en noviembre.
 
-Ocho corredores. Ocho calendarios. Ocho directores deportivos de equipos de categoría WorldTour que tenían sus propios análisis de Yorkshire y sus propias ideas sobre cómo correr el Mundial y que en esta reunión estaban dejando esas ideas en pausa para escuchar a Víctor Hugo Peña.
+Algunas Duarte las cerraba rápido — las que tenían la lógica correcta, el tiempo comprometido razonable, los términos que Patiño podía blindar sin fricción. Una empresa colombiana de nutrición deportiva. Una marca de gafas de sol alemana con distribución en América Latina. Un proyecto de ciclismo urbano de la Alcaldía de Medellín que no pagaba bien pero que Duarte recomendó aceptar por otras razones.
 
-Peña era eficiente. No el estilo de Ferretti — la autoridad italiana de treinta años de oficio — sino la eficiencia del exciclista que ha ganado respeto en el pelotón por lo que hizo y que ahora dirige porque sabe lo que los corredores necesitan oír.
+Otras Duarte las dejaba correr — las que pedían demasiado tiempo, las que tenían cláusulas de imagen demasiado amplias, las que en el análisis del martes llegaban con la nota *no es el momento*.
 
-— Colombia sale con una ventaja que no ha tenido antes — dijo Peña. — Santiago ganó el Giro. Egan ganó el Tour. Los dos mejores resultados del ciclismo colombiano en la historia están en el mismo equipo este domingo. El pelotón nos va a respetar. Y el pelotón que respeta tiene miedo.
+Santi no preguntaba por las que Duarte descartaba.
 
-Pausa.
+Si Duarte las descartaba, había una razón. Y la razón era la del hombre que había estado diez años en el pelotón europeo y que sabía exactamente cuánto valía la imagen de un corredor y en qué se gastaba mal.
 
-— El miedo del pelotón es nuestra táctica.
+La lógica funcionaba porque era la lógica correcta: Patiño manejaba los contratos, Duarte manejaba el negocio, Santi manejaba la bicicleta. Tres personas haciendo exactamente lo que sabían hacer, sin invadir el territorio del otro.
 
----
+Era, Santi pensó una tarde de octubre mientras subía Las Palmas por segunda vez en el día, la misma lógica del equipo en carrera.
 
-*El veintinueve de septiembre de 2019, a las ocho y cuarenta y cinco de la mañana, en Medellín:*
-
-Hernando estaba en el sofá de Laureles.
-
-El televisor encendido. El canal de deportes que transmitía el Mundial de Yorkshire con la señal que llegaba a Colombia con un retraso de cuarenta y cinco minutos respecto a la carrera real — pero que en el sofá de Laureles a las ocho de la mañana era el Mundial tal cual, sin retraso percibido, con la imagen del helicóptero sobre los moors del Yorkshire y el comentarista colombiano que empezaba el análisis previo.
-
-El cuaderno en la rodilla.
-
-Carmen en la cocina, preparando el desayuno de los días que Hernando necesitaba el desayuno completo porque la tarde iba a ser larga.
-
-El cuaderno estaba abierto en la página donde Hernando había dibujado el perfil del circuito de Harrogate — el perfil que había sacado del sitio de la UCI la semana anterior y copiado a mano en el papel con el lápiz, con los kilómetros marcados y el Jenkin Road señalado con una flecha y la altura en números: *184 metros, 1,2 km, 14%.*
-
-Ciento ochenta y cuatro metros en un kilómetro y doscientos metros al catorce por ciento.
-
-Al final de doscientos ochenta y cinco kilómetros.
-
-Hernando calculó.
+El director deportivo decide. El gregario protege. El líder ataca cuando es el momento.
 
 ---
 
-*Campeonato del Mundo de Ciclismo en Ruta, Yorkshire 2019.*
-*Prueba en línea masculina élite: 285,1 km de Leeds a Harrogate.*
-*Favoritos: Alejandro Valverde (España), Julian Alaphilippe (Francia), Wout van Aert (Bélgica), Mathieu van der Poel (Países Bajos), Michael Matthews (Australia), Santiago Reyes (Colombia), Egan Bernal (Colombia).*
-*Tiempo estimado de carrera: entre 6 horas 30 minutos y 7 horas.*
-*Pronóstico del tiempo: nublado con posibilidad de lluvia por la tarde.*
+*Agosto–septiembre de 2019:*
 
----
+*Patrocinios cerrados: Bancolombia (3 años), Relojera suiza (4 años + bono por grandes vueltas ganadas), Alto Performance (2 años, colección con nombre de Santi).*
+*En negociación: café del eje cafetero, marca de gafas alemana.*
+*Descartados: aerolínea colombiana, equipamiento aventura.*
+
+*Estructura de representación: Diego Patiño (legal) — Andrés Duarte (comercial e imagen).*

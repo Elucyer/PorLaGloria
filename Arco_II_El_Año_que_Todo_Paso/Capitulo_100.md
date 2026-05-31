@@ -1,301 +1,157 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 100 — El Mundial II: Los Circuitos (29 de septiembre de 2019)
+### Capítulo 100 — El Mundial I: Yorkshire (29 de septiembre de 2019)
 
 ---
 
-Los circuitos de Harrogate comenzaron con la lluvia.
+La salida fue en Leeds a las diez y cuarenta y cinco de la mañana.
 
-No la lluvia moderada de los moors — la lluvia del frente que en las últimas dos horas de la tarde del domingo de Yorkshire llegó con la insistencia del clima del norte de Inglaterra que no discrimina entre una carrera normal y el Campeonato del Mundo de Ciclismo. El asfalto de las calles de Harrogate en las primeras vueltas del circuito tenía el negro brillante del asfalto mojado donde los frenos tardan más y donde las curvas requieren entrar más lentas y salir con más cuidado.
+El centro de Leeds en domingo — la ciudad industrial del Yorkshire que en su historia había sido una de las ciudades del lino y del cuero y que ahora tenía su centro renovado con los museos y los hoteles y los bares del England del siglo veintiuno. Las vallas en las calles del centro, la música del sistema de sonido de la organización, los miles de aficionados que en este domingo de septiembre habían salido a las calles de Leeds con los colores de sus países y con la paciencia de quienes saben que van a ver el pelotón pasar a cuarenta kilómetros por hora durante quince segundos y que esos quince segundos van a ser la razón por la que se levantaron temprano.
 
-Veinticinco corredores en el primer circuito.
+Noventa y dos corredores de cincuenta y siete naciones.
 
-El grupo de los países pequeños empezó a ceder en la primera pasada por el Jenkin Road — tres corredores que en ciento noventa y cinco kilómetros habían guardado lo suficiente para el circuito pero no lo suficiente para el Jenkin Road al catorce por ciento en el circuito. Los que quedaban eran los que tenían que quedar: los veinte mejores del día.
+El pelotón más diverso del año — el pelotón del Mundial donde el ciclismo mostraba su geografía real: los belgas y los franceses y los italianos de siempre, pero también los colombianos y los ecuatorianos y los australianos y los kazajos y los azerbaiyanos y los sudafricanos.
 
-Veinte.
+La señal.
 
-Santi entró a la primera subida del Jenkin Road en decimosexta posición del grupo. Lo había decidido así — no la posición del líder que entra al frente y gasta para defender su posición, sino la posición del corredor que en las primeras siete vueltas necesita llegar intacto a la octava.
-
-La primera subida del Jenkin Road duró cuatro minutos y cincuenta y seis segundos.
-
-Nairo la subió al frente del grupo colombiano. Bernal detrás. Santi en la decimosexta posición del grupo general, protegido.
-
-El descenso después del Jenkin Road — la bajada del kilómetro y doscientos metros al catorce por ciento con el asfalto mojado — fue el descenso donde la táctica se volvió física. Los belgas bajaron primero. Van Aert y Stuyven con la velocidad de los corredores del norte que han crecido en los descensos de los pavés de las clásicas y que en el asfalto mojado de Yorkshire iban exactamente al límite entre el control y el accidente.
-
-Santi bajó detrás de Nairo, en el ritmo de la prudencia calculada.
-
-No era miedo al descenso. Era la matemática de alguien que sabía que el domingo no se ganaba en la bajada del Jenkin Road sino en la subida de la octava vuelta.
+Ciento setenta y seis metros de altitud sobre el nivel del mar. Doscientos ochenta y cinco kilómetros por delante.
 
 ---
 
-La segunda vuelta: Alaphilippe atacó.
+Los primeros cuarenta kilómetros de Leeds hacia el norte fueron los kilómetros del asentamiento.
 
-No en el Jenkin Road — en el Harlow Hill, la cota menor del circuito, dos kilómetros antes de la subida decisiva. El francés salió del grupo con la aceleración de quien ha decidido que el momento es este y que la decisión es suya, sin anunciarla, sin que el grupo pudiera anticiparla.
+El pelotón en el Mundial tiene una dinámica diferente al pelotón de las grandes vueltas — no hay equipos de gregarios que tiren durante horas, no hay director deportivo que dicte el ritmo desde el coche. En el Mundial, el pelotón rueda con la lógica de los intereses individuales y de los intereses nacionales que en el primer día de carrera se definen sin que nadie lo diga abiertamente: el equipo que quiere proteger a su sprinter rueda adelante, el equipo que quiere conservar a su escalador rueda atrás, el equipo que no tiene un plan claro rueda donde puede.
 
-Diez metros de diferencia.
+Colombia rodó en cuarta posición del pelotón durante los primeros cuarenta kilómetros. Bernal al frente del grupo colombiano, Nairo detrás, Santi en séptima posición del bloque colombiano — la posición del corredor que no necesita gastar en los primeros kilómetros porque lo que tiene que gastar está reservado para las últimas horas.
 
-Van der Poel fue. Cerró en veinte segundos.
+Holanda rodó al frente. Van der Poel había decidido — o el equipo holandés había decidido — que el control temprano de la carrera era su táctica, y los cuatro hombres naranjas que tiraban en los primeros kilómetros de la A65 hacia los Dales del Yorkshire hacían la carrera en el ritmo de los equipos que tienen velocidad para controlar pero no tienen escaladores para el final.
 
-Bernal miró a Santi. Santi sacudió levemente la cabeza: no todavía.
+La fuga del día fue en el kilómetro ocho.
 
-El grupo reabsorbió a Alaphilippe en la base del Jenkin Road.
-
-Pero el francés había dicho algo: que el Harlow Hill era el lugar donde atacaba. Que si atacaba de nuevo en el Harlow Hill en la séptima u octava vuelta, la reabsorción no iba a ser garantizada.
-
-Santi anotó internamente.
+Cuatro corredores de naciones sin grandes favoritos — un ruso, un noruego, un sudafricano, un nuevo zelandés — se fueron con tres minutos de ventaja. El pelotón los dejó ir. Las pantallas de los coches de seguimiento mostraban la diferencia: cuatro minutos, cuatro y medio, cinco. Nadie perseguía.
 
 ---
 
-La tercera vuelta: Valverde puso el ritmo en el Jenkin Road.
+Los moors del Yorkshire.
 
-El español veterano — treinta y nueve años, la quinta vez en el podio del Mundial o cerca de él — subió el ritmo en la segunda mitad del Jenkin Road con la eficiencia del escalador que en el sprint de montaña tenía suficiente potencia para eliminar a los que no podían seguirlo. El grupo bajó de veinte a dieciséis.
+La carretera que salía de Leeds hacia el norte se convertía en la carretera de los moors — los páramos abiertos, la tierra sin árboles donde el horizonte era el horizonte real sin montañas que lo interrumpieran. El viento en los moors venía del norte con la temperatura de septiembre de Inglaterra que en el cuerpo del ciclista era frío como el frío de la montaña alpina en primavera — no el frío extremo del Stelvio pero sí el frío de los días donde los guantes importan y donde en las bajadas el viento hace que los dedos pierdan sensibilidad.
 
-Iván Sosa cedió en la bajada del Jenkin Road — el primer colombiano en no poder seguir el ritmo del circuito. Peña, por el pinganillo:
+Santi llevaba guantes.
 
-— Sosa fuera. Quedan cuatro colombianos.
+No los guantes de los finales de montaña del Giro — los guantes de dedo completo del clima templado, los guantes que en el pelotón de los Mundiales eran la línea divisoria visible entre los corredores del norte de Europa que habían nacido con ese frío en el cuerpo y los corredores del sur y del trópico que lo gestionaban.
 
-Cuatro era suficiente. Cuatro era más de lo que cualquier otra nación tenía en el grupo.
+Nairo llevaba manguitos térmicos.
 
----
-
-La cuarta vuelta: Mathieu van der Poel atacó desde atrás.
-
-Era el holandés en su elemento — el corredor de ciclocross y de montaña que en los descensos técnicos ganaba tiempo que los escaladores tardaban en recuperar. Atacó en la bajada del Jenkin Road, no en la subida — la bajada donde el asfalto mojado no le quitaba velocidad porque Van der Poel era el tipo de corredor que bajaba al catorce por ciento en húmedo como si fuera un patio plano.
-
-Quince metros de ventaja al pie del descenso.
-
-Colombia persiguió. Bernal cerró los quince metros en el siguiente tramo llano del circuito — un kilómetro plano que en el circuito servía de enlace y que Bernal hizo al sprint durante cuarenta segundos para neutralizar el ataque de Van der Poel.
-
-— Bernal: bien hecho — dijo Peña.
-
-Pero Bernal había gastado algo. Y algo en el kilómetro ciento treinta del circuito era algo que Bernal no iba a tener en el kilómetro ciento treinta y seis.
+El Yorkshire no era Boyacá ni era Medellín.
 
 ---
 
-La quinta vuelta: el grupo era catorce.
+El kilómetro ochenta.
 
-La lluvia seguía. El asfalto negro, las curvas, el frío de los once grados que en el cuerpo del corredor después de cinco horas y media de carrera era el frío que entraba por las manos y los pies primero y luego por el pecho.
+La primera cota catalogada de la carrera — la Côte de Brimham Rocks, con sus ciento treinta y tres metros de desnivel en cuatro kilómetros al cuatro por ciento. No el Mortirolo. No el Jenkin Road. Era la cota del inicio del recorrido exigente, el punto donde el pelotón empezaba a estirarse y donde los primeros que no tenían las piernas del día eran identificados y quedaban atrás.
 
-Santi pedaleaba.
+El pelotón se estiró pero no se partió.
 
-No pensaba en el frío. El frío era información. El frío decía que la octava vuelta del Jenkin Road iba a ser el momento más difícil de los últimos dos meses — el esfuerzo más cercano al límite desde el kilómetro dieciséis del Stelvio.
+Bélgica estaba activa — Van Aert en el primer tercio del pelotón con sus dos compañeros de equipo, el belga moviéndose con la fluidez de quien está en su elemento natural. En el Yorkshire lluvioso, en el asfalto frío de los Dales, Van Aert tenía el aspecto del corredor que ha ganado en estos campos muchas veces y que sabe exactamente qué pide el terreno.
 
-El noventa y cuatro de VO2 máximo estaba ahí.
+Santi lo observó.
 
-No se sentía. Solo el cuerpo que respondía.
+Van Aert era el rival más complejo. No porque fuera el mejor escalador — no lo era — sino porque era el más completo: capaz de ganar en el sprint y capaz de seguir en la montaña. En el Jenkin Road al catorce por ciento con dos kilómetros de descenso técnico después, Van Aert podía hacer lo que pocos sprinters podían: subir lo suficientemente rápido para no ceder y bajar lo suficientemente audaz para recuperar cualquier diferencia.
 
----
+La manera de neutralizarlo era no dejarle el descenso.
 
-La sexta vuelta: Nairo.
-
-En el Jenkin Road de la sexta pasada, Nairo Quintana hizo lo que Peña le había pedido: subió el ritmo desde el kilómetro trescientos de la subida, sostuvo el incremento durante los últimos ochocientos metros y dejó al grupo reducido en once corredores.
-
-Once corredores al pie del descenso de la sexta vuelta.
-
-Colombia: Santi, Bernal, Nairo. Bélgica: Van Aert. Francia: Alaphilippe. España: Valverde, Mas. Holanda: Van der Poel. Australia: Matthews. Dos más.
-
-Nairo cedió en el descenso — el escalador boyacense que había subido el Jenkin Road al límite y que en el descenso no tenía lo que tenía Van Aert. Fue atrás con los que ya no podían.
-
-Diez corredores más Colombia sin Nairo.
-
-Dos colombianos: Santi y Bernal.
+Ganar en la cima.
 
 ---
 
-*En el apartamento de Laureles, a las seis y cuarenta y cinco de la tarde:*
+El kilómetro ciento veinte.
 
-Carmen se había sentado en el sofá junto a Hernando.
+La Côte de Cray — nueve comas cinco kilómetros al cinco coma tres por ciento. La primera subida larga del día. Aquí el pelotón se redujo de verdad: los equipos con sprinters empezaron a proteger a sus hombres, los corredores sin misión clara empezaron a ceder, y el grupo de GC virtual — los veinte o veinticinco corredores que podían ganar el Mundial — empezó a tomar forma como un bloque compacto en el primer tercio de la carrera larga.
 
-No en la silla del rincón — en el sofá, a treinta centímetros de Hernando, con el té en la mano y los ojos en la pantalla donde la imagen del helicóptero mostraba el circuito de Harrogate y los diez corredores del grupo que en la sexta pasada por el Jenkin Road habían hecho la selección definitiva.
+Colombia llegó a la cima de la Cray con ocho corredores juntos.
 
-*— ¡Sexta vuelta del circuito de Harrogate! ¡Quedan diez corredores, señoras y señores — la élite del ciclismo mundial en el asfalto mojado del Yorkshire! ¡Dos colombianos todavía — Santiago Reyes y Egan Bernal! ¡El campeón del Giro y el campeón del Tour en el mismo equipo buscando el arcoíris!*
+Era, Santi lo notó, la primera vez en el día que el equipo colombiano había funcionado como un bloque coordinado: Bernal al frente marcando el ritmo de la cota, Nairo detrás, los demás en fila india con la coordinación del equipo que sabe lo que hace.
 
-Hernando tenía el cuaderno en la rodilla. En la página de los circuitos, había dibujado barras horizontales para cada vuelta — primera, segunda, tercera hasta la octava. Las primeras seis ya tenían información. En la séptima y la octava: en blanco todavía.
+En la bajada de la Cray, la lluvia empezó.
 
-La séptima y la octava eran la carrera.
-
-*— ¡Alaphilippe está inquieto! ¡El francés de Saint-Amand-Montrond lleva dos vueltas en el top cinco y está subiendo en posición — ojo con el francés, gente, ojo con Alaphilippe!*
-
-— El francés va a atacar pronto — dijo Hernando.
-
-Carmen no respondió.
-
-— En el Harlow Hill — continuó Hernando. — Antes del Jenkin Road. Para que nadie pueda usar el Jenkin Road para cerrarlo.
-
-Carmen miró a Hernando con la expresión que llevaba cuarenta y dos años aprendiendo a leer: la concentración del corredor que ya no corre pero que en el sofá de Laureles sigue calculando la carrera con el mismo cerebro que calculó las etapas de doce años de pelotón.
-
-Sano o enfermo, Hernando Reyes seguía siendo el hombre que leía las carreras.
-
----
-
-La séptima vuelta.
-
-Bernal atacó en el Harlow Hill — antes de que Alaphilippe pudiera hacerlo.
-
-Era la instrucción de Peña y era también la lectura de Bernal: el francés iba a atacar aquí, y si Bernal atacaba primero, Alaphilippe tendría que responder en lugar de atacar. El primer corredor que ataca dicta la condición; el que responde gasta.
-
-Bernal abrió veinte metros en la Harlow Hill.
-
-Alaphilippe fue de inmediato. Van Aert fue. Van der Poel fue.
-
-Santi fue último — esperó dos segundos y luego la progresión, los tres vatios adicionales que eran ya la firma del corredor en el límite que todavía tiene algo.
-
-El grupo reabsorbió a Bernal en la base del Jenkin Road.
-
-Pero la séptima subida del Jenkin Road fue la más rápida hasta entonces — el grupo de nueve corredores que habían sobrevivido al Harlow Hill subiendo al cuatro minutos veinte, cuatro minutos veinticinco, el ritmo que eliminó a Bardet y a Mas y a Matthews.
-
-Seis corredores al inicio de la bajada de la séptima vuelta.
-
-Van Aert. Alaphilippe. Van der Poel. Valverde. Bernal. Santi.
-
-Alaphilippe atacó en la bajada.
-
-Fue el ataque del corredor que ha decidido que el descenso es el momento y que en el asfalto mojado de Yorkshire al catorce por ciento hacía lo que hacía siempre en los descensos: irse. El francés bajó al límite — las curvas al máximo, el cuerpo bajo sobre la bicicleta, la posición del corredor que en el descenso técnico era el mejor del pelotón.
-
-Quince metros al pie del descenso.
-
-Y entonces el asfalto.
-
-La curva del penúltimo tramo del descenso del Jenkin Road — la curva donde el asfalto tenía una junta de dilatación que con la lluvia se convertía en una banda de menor adherencia — y Alaphilippe la entró demasiado rápido.
-
-La rueda delantera perdió tracción.
-
-Alaphilippe cayó.
-
-No una caída espectacular — la caída en el asfalto húmedo de la curva que el cuerpo no pudo sostener, el corredor que en medio segundo pasó de estar en la bicicleta a estar en el suelo. Diez metros de deslizamiento. Los compañeros de equipo que venían detrás frenaron a tiempo.
-
-Alaphilippe se levantó. Seguía — el francés tenía la dureza de los corredores clásicos, el tipo que se levanta de una caída porque levantarse es lo que se hace. Pero había perdido treinta segundos. Y treinta segundos en el penúltimo tramo del circuito del Mundial con el Jenkin Road final por delante era treinta segundos que no iban a cerrarse.
-
-Cinco corredores al inicio de la octava vuelta.
-
-Van Aert. Van der Poel. Valverde. Bernal. Santi.
-
----
-
-*En Laureles:*
-
-*— ¡Alaphilippe cae en el descenso! ¡El francés pierde el suelo en la curva húmeda y se va al asfalto! ¡Se levanta, señoras y señores — se levanta — pero ha perdido treinta segundos! ¡Alaphilippe fuera de la pelea!*
-
-Hernando anotó.
-
-*— ¡Quedan cinco corredores para la última vuelta! ¡Van Aert — el belga de Herentals, el hombre más completo del año! ¡Van der Poel — el holandés que en la montaña hace lo que ningún corredor de su tipo! ¡Valverde — el veterano de Murcia que a treinta y nueve años sigue en el grupo de los mejores! ¡Egan Bernal — el campeón del Tour de Francia! ¡Y Santiago Reyes — el campeón del Giro de Italia, el colombiano de diecinueve años que lleva seis horas en la silla y que va a entrar al Jenkin Road final con lo que le quede!*
-
-Carmen tenía la mano sobre la boca.
-
-Hernando miraba la pantalla.
-
-En el cuaderno, debajo de "Vuelta 8", Hernando escribió:
-
-*Jenkin Road. Todo.*
-
----
-
-La octava vuelta comenzó con el tramo llano de enlace — los cuatro kilómetros donde el circuito de Harrogate recuperaba la altitud perdida en el descenso y donde los cinco corredores pedaleaban en silencio relativo, sin ataques, con la concentración de los que saben que lo que queda no admite errores previos.
-
-Van Aert al frente.
-
-El belga marcando el ritmo del enlace — no el ritmo del ataque sino el ritmo del corredor que controla el ritmo porque controlar el ritmo es no dejar que nadie más lo controle.
-
-Santi en cuarta posición.
-
-Bernal detrás de él.
+No la lluvia de Leeds — la lluvia de los moors, que llegó de repente con el frente que el meteorólogo del equipo había predicho para las dos de la tarde y que se adelantó cuarenta minutos. El asfalto de la bajada de la Cray se mojó en treinta segundos.
 
 Peña, por el pinganillo:
 
-— Octava vuelta. Harlow Hill en dos kilómetros. Luego el Jenkin Road final. Santi: en el Jenkin Road, al kilómetro. Es el momento.
-
-Al kilómetro del Jenkin Road final.
-
-Ochocientos metros para la cima. Cuatrocientos metros para el descenso.
-
-Si atacaba al kilómetro y mantenía la ventaja hasta la cima, el descenso posterior — en húmedo, al catorce — iba a ser el momento donde los que hubieran cedido en la subida intentarían cerrar. Pero en la cima del Jenkin Road con una ventaja de veinte metros, el descenso de ochocientos metros no alcanzaba para que nadie lo cerrara.
-
-— Lo sé — dijo Santi.
-
-Y el Harlow Hill apareció.
+— Lluvia. Controlad la bajada. No vale perder aquí.
 
 ---
 
-En el Harlow Hill de la octava vuelta, Bernal atacó.
+*En el apartamento de Laureles, a las cinco de la tarde (hora de Colombia):*
 
-Era el último trabajo del colombiano de veintidós años — el último ataque del gregario que en este día era más que un gregario, el trabajo que Peña había pedido y que Bernal hacía con lo que le quedaba después de siete vueltas de carrera y una escapada en el Harlow Hill anterior.
+Hernando tenía el televisor encendido desde las dos.
 
-Veinte metros.
+La transmisión del Mundial llegaba con una hora de diferencia respecto a la carrera real — era el horario de Colombia respecto al UK. Carmen había puesto el café de las cinco en la mesita. Hernando tenía el cuaderno con el recorrido dibujado y los tiempos anotados en los puntos de referencia que el canal deportivo había dado: la Cota de Brimham Rocks, la Grinton Moor, la Cray.
 
-Van Aert fue de inmediato. Van der Poel fue. Valverde fue.
+La pantalla mostraba el pelotón a ciento cincuenta kilómetros de la llegada — un pelotón todavía numeroso, cincuenta o sesenta corredores, rodando en la lluvia del Yorkshire con el asfalto húmedo brillando bajo las cámaras del helicóptero que desde arriba mostraba el campo inglés como un cuadro de colores fríos: el verde del pasto, el gris del cielo, el negro del asfalto mojado, y el pelotón de colores como la única cosa caliente en ese paisaje.
 
-Bernal no podía sostenerlo. En treinta segundos, el grupo lo reabsorbió.
+*— ¡El pelotón del Campeonato del Mundo de Ciclismo en Ruta en Yorkshire! ¡Ciento cincuenta kilómetros para Harrogate, señoras y señores! ¡Colombia sigue unida — los ocho corredores de la selección juntos en el pelotón! ¡Santi Reyes en décima posición del grupo — el campeón del Giro reservando energías para el final! ¡Los circuitos de Harrogate están a ciento veinte kilómetros!*
 
-Pero el Harlow Hill los había gastado. Los tres kilómetros del Harlow Hill en la octava vuelta a este ritmo habían costado — en Van Aert, en Van der Poel, en Valverde — algo que no iban a recuperar en el Jenkin Road.
+Hernando anotó la posición en el cuaderno.
 
-La base del Jenkin Road.
+Carmen entró desde la cocina.
 
-La última vez.
+— ¿Cómo va?
 
-La señal de la cámara del costado de la carretera mostró el letrero pintado en el asfalto que los aficionados habían puesto durante la noche del sábado: *JENKIN ROAD — LAST CLIMB.* En inglés. En letras azules sobre el asfalto negro mojado.
+— Bien — dijo Hernando. — Todavía queda mucho.
 
-Santi entró al Jenkin Road en cuarta posición.
+Era el análisis de Hernando: en ciento cincuenta kilómetros de carrera del Mundial, todavía quedaba mucho. El corredor de Giro que era Santi sabía administrar el mucho que quedaba. Pero Hernando lo sabía también — lo había sabido en doce años de gregario, que el mucho que quedaba en el kilómetro ciento cincuenta de un día así era exactamente lo que diferenciaba a los ganadores de los que llegaban cerca.
 
-Van Aert al frente. Luego Van der Poel. Luego Valverde.
+Se bebió el café.
 
-Santi.
-
-Los primeros cuatrocientos metros: el grupo unido. El catorce por ciento empezando a hacer lo que el catorce por ciento hacía — separar. Van Aert marcaba el ritmo, el ritmo del belga que en los finales de la Strade Bianche y del Flandes sabía exactamente a qué velocidad subir para no gastar más de lo necesario mientras eliminaba a los que podían gastar menos.
-
-El kilómetro.
-
-Ochocientos metros para la cima.
+Siguió mirando la pantalla.
 
 ---
 
-Santi atacó.
+El kilómetro ciento ochenta.
 
-No fue el ataque del sprint — fue la progresión. Cuatro vatios sobre el ritmo. Ocho. El cuerpo encontrando lo que tenía disponible después de seis horas y cuarenta minutos de carrera, después del Giro de Italia y el verano de Laureles y el cuarto ciclo de quimioterapia de Hernando y la prueba de VO2 máximo de la semana anterior y el reconocimiento del martes y las siete vueltas anteriores.
+La Côte de Leyburn — el último ascenso significativo antes de los circuitos de Harrogate. Cuatro kilómetros al cinco coma uno. La carretera de la aldea de Leyburn que subía entre campos de oveja y muros de piedra y que el pelotón del Mundial en el kilómetro ciento ochenta de la carrera más larga del año subía con lo que le quedaba.
 
-En diez segundos: tres metros sobre Van Aert.
+Aquí el pelotón se redujo a cuarenta.
 
-Van Aert respondió.
+Treinta.
 
-El belga subió el ritmo — el corredor completo que en la subida tenía más que cualquier sprinter puro. Cuatro vatios, cinco. La brecha se estabilizó en tres metros.
+La fuga — que había llegado al kilómetro ciento diez antes de ser absorbida — estaba resuelta. El ruso y el noruego habían aguantado hasta los últimos diez kilómetros del segmento llano antes de que el pelotón los engullera con la eficiencia del pelotón que controla porque sabe que el tiempo de los fugados ha terminado.
 
-Santi fue.
+Veinticinco corredores.
 
-Cinco vatios más. Siete. El noventa y cuatro de VO2 máximo no era un número que pudiera sentirse pero era lo que el cuerpo tenía disponible cuando el cuerpo tenía que dar lo que ningún otro cuerpo en la carretera podía dar.
+Alaphilippe estaba al frente — el francés de Chaingy que en el Mundial era siempre Alaphilippe: el corredor que en las carreras de un día tenía el don específico de estar en el lugar correcto en el momento correcto, el corredor que en el Strade Bianche y en la Flèche Wallonne y en la San Sebastián hacía siempre lo que nadie esperaba exactamente cuando nadie lo esperaba.
 
-Cinco metros. Siete.
+Van Aert al lado de Alaphilippe.
 
-Van Aert cedió.
+Colombia en bloque: Bernal y Nairo habían subido a la sexta y séptima posición del pelotón. Santi seguía detrás — décima posición, con el margen de reserva que el plan de Peña exigía.
 
-No de golpe — con la matemática del corredor que en el kilómetro setecientos de los ochocientos metros del Jenkin Road final había llegado a lo que tenía y que en ese momento el número de lo que tenía era cero.
+— Kilómetro ciento ochenta — dijo Peña por el pinganillo. — Quedan los circuitos. Bernal y Nairo: empezáis a proteger a Santi. Nadie lo toca en las primeras cinco vueltas. En la sexta vuelta, Nairo larga el ritmo. En la séptima, Bernal. En la octava: Santi solo.
 
-Siete metros. Diez. Doce.
+Santi escuchó el plan.
 
-Santi solo en el Jenkin Road de Yorkshire.
+Era el plan que habían acordado en Bogotá. Era el plan que Ferretti había validado. Era el plan que en teoría era correcto y que en la práctica dependía de si los veinticuatro corredores restantes tenían sus propios planes y si esos planes coincidían o no.
 
-Quinientos metros para la cima.
+En el ciclismo no había planes que sobrevivieran intactos el contacto con doscientos cincuenta corredores que también tenían planes.
+
+Santi lo sabía.
+
+El plan era la dirección. La dirección era correcta.
+
+Lo que pasara en los circuitos de Harrogate era la carrera.
 
 ---
 
-*En Laureles, a las siete y doce de la tarde:*
-
-*— ¡Santi Reyes ataca! ¡El colombiano va! ¡Señoras y señores — Van Aert cede — Van Aert no puede — Santi Reyes está solo en el Jenkin Road de Yorkshire! ¡Solo a quinientos metros de la cima del último puerto del Campeonato del Mundo de Ciclismo en Ruta!*
-
-Hernando no se movió del sofá.
-
-*— ¡Trescientos metros! ¡Doscientos! ¡Van Aert a diez metros — intenta — no puede! ¡El colombiano de diecinueve años que ganó el Giro de Italia en mayo está a punto de llegar solo a la cima del Jenkin Road!*
-
-Carmen de pie. Sin saber cuándo se había levantado.
-
-*— ¡LA CIMA! ¡SANTI REYES LLEGA SOLO A LA CIMA DEL JENKIN ROAD! ¡SEÑORAS Y SEÑORES — COLOMBIA VA AL DESCENSO SOLA! ¡QUEDA EL DESCENSO — QUEDA EL DESCENSO Y LA LLEGADA EN HARROGATE!*
-
-Hernando miraba la pantalla con la expresión de siempre.
-
-Carmen lo miraba a él.
-
-En el cuaderno, la mano de Hernando escribió una sola palabra debajo de "Vuelta 8":
-
-*Cima.*
-
-Y a la derecha: *solo.*
+*Campeonato del Mundo 2019 — Yorkshire:*
+*Kilómetro 195 (entrada a los circuitos de Harrogate):*
+*Grupo principal: 25 corredores.*
+*Colombia: Santi, Bernal, Nairo, Sosa, Martínez — 5 corredores.*
+*Belgica: Van Aert, Gilbert, Stuyven — 3 corredores.*
+*Francia: Alaphilippe, Gaudu, Romain Bardet — 3 corredores.*
+*España: Valverde, Mas, Cortina — 3 corredores.*
+*Países Bajos: Van der Poel — 1 corredor.*
+*Tiempo en carrera: 4 horas 52 minutos.*
+*Lluvia en Harrogate: sí, moderada.*
+*Temperatura: 11°C.*
 
 ---

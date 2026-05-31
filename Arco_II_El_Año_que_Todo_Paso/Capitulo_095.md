@@ -704,6 +704,152 @@ Pero eso era otra historia.
 
 ---
 
+El contacto de Andrés Duarte llegó el miércoles siguiente.
+
+Ospina lo mandó por WhatsApp — un número de Bogotá y un mensaje de una línea: *Andrés Duarte. Decile que lo llama el muchacho de Floresta.*
+
+Santi lo llamó esa tarde, en el balcón de Laureles, con la ciudad de Medellín abajo y las nubes de agosto acumulándose sobre el Picacho.
+
+— Andrés Duarte — contestó la voz. Un acento bogotano suavizado por años fuera — el acento del colombiano que ha vivido demasiado tiempo en Europa para que el bogotano le salga puro.
+
+— Soy Santi Reyes. Ospina me dio su número.
+
+Hubo una pausa breve.
+
+— Lo sé — dijo Duarte. — Lo estaba esperando.
+
+---
+
+Se encontraron en Bogotá el viernes.
+
+No en una oficina — en una cafetería del barrio La Macarena, el barrio de galerías de arte y restaurantes pequeños donde Bogotá tenía esa textura específica de ciudad que se toma en serio la conversación. Duarte había propuesto el lugar con la lógica del hombre que no hace sus reuniones importantes en espacios corporativos porque los espacios corporativos le dan a la otra parte la ventaja de la formalidad.
+
+Andrés Duarte tenía cuarenta y un años. No tan alto como parecía en las fotos de corredor — los ciclistas siempre parecen más grandes en las fotos porque la bicicleta los hace anchos. Delgado todavía, con la complexión del exciclista que no ha abandonado del todo el entrenamiento. El pelo corto, ligeramente gris en las sienes. La ropa sin marca visible — el detalle de quien trabaja con marcas y sabe exactamente cuándo usarlas y cuándo no.
+
+Llegó antes que Santi.
+
+Cuando Santi entró, Duarte ya tenía el café y una libreta sobre la mesa — una libreta de papel, no el portátil, el detalle del que toma notas a mano porque en la reunión la libreta no pone distancia.
+
+Se dieron la mano.
+
+— Ospina me habló bien de vos — dijo Duarte. — Aunque Ospina habla bien de muy poca gente, así que eso dice algo.
+
+— Ospina habla bien de quien se lo gana — dijo Santi.
+
+Duarte sonrió. Se sentaron.
+
+— Contame qué necesitás — dijo Duarte. Sin preámbulo, sin la presentación de la empresa, sin los slides que el director de marketing de Bancolombia había desplegado en el piso dieciséis de la Torre El Poblado. La pregunta directa del hombre que sabe que el tiempo del otro tiene precio.
+
+Santi le contó. Las ofertas de los equipos, las marcas en conversación, la diferencia que veía entre lo que Patiño podía manejar y lo que no podía. Lo que necesitaba no era un abogado — tenía abogado. Lo que necesitaba era alguien que supiera exactamente qué significaba perder tres semanas de forma por una activación de marca mal puesta en el calendario, alguien que entendiera la diferencia entre una asociación que construye imagen y una que la desgasta, alguien que hubiera estado en el pelotón y que en la reunión con el director de marketing de una multinacional pudiera decir *eso no funciona así* sin tener que explicar por qué.
+
+Duarte escuchó sin interrumpir.
+
+Cuando Santi terminó, Duarte tomó un sorbo de café y miró la libreta donde había anotado tres o cuatro cosas.
+
+— Patiño se queda — dijo Duarte. Era una afirmación, no una pregunta.
+
+— Patiño se queda — confirmó Santi. — Los contratos son suyos. Lo que necesito de vos es lo otro.
+
+— Lo comercial. La imagen. La estrategia de carrera en relación con los patrocinadores.
+
+— Sí.
+
+Duarte asintió.
+
+— ¿Cuántas marcas están en conversación ahora?
+
+— Seis activas. Más las que Patiño ha filtrado.
+
+— ¿Cuáles de las seis te interesan realmente?
+
+Era la pregunta correcta. No *¿cuáles pagan más?* sino *¿cuáles te interesan?* La pregunta del que entiende que un corredor que firma con una marca que no encaja gasta más energía explicándola que corriendo.
+
+Santi lo pensó.
+
+— Bancolombia — dijo. — Porque es Colombia y tiene sentido. La de los relojes, si los términos son los que corresponden. Y Alto Performance, porque Vélez quiere hacer algo real, no solo poner el logo.
+
+— ¿La aerolínea?
+
+— Me da igual.
+
+— ¿El café?
+
+— Me da igual, pero tiene sentido narrativo. Municipio cafetero, corredor de montaña. Si no requiere tiempo, puede funcionar.
+
+Duarte tomó nota.
+
+— Bien — dijo. — Eso ya es una estrategia. No firmás todo lo que llega — firmás lo que construye algo. Lo demás lo dejamos correr o lo cerramos rápido para no gastar ni tu tiempo ni el de ellos.
+
+Santi lo miró.
+
+Era la primera reunión de negocios en todo el verano donde el otro lado había dicho algo que él no hubiera tenido que explicar primero.
+
+— ¿Cómo trabajás? — dijo Santi.
+
+— Comisión sobre los contratos comerciales que cierro. Sin retainer fijo — cobrás cuando yo cierro, yo cobro cuando vos cobrás. Si no genero valor, no genero plata. — Pausa. — Y necesito acceso directo a vos para las decisiones. No siempre, pero cuando hay algo urgente no puedo estar esperando tres días porque Patiño tiene que consultarte y vos estás en un Giro.
+
+— Patiño y vos coordinan entre ellos.
+
+— Sí. Pero en lo comercial, la última palabra la tengo yo hasta que decidamos diferente. Vos sabés de ciclismo. Yo sé del negocio alrededor del ciclismo. Si en cada decisión me micromanageás, no funciona.
+
+Era el límite claro — el exciclista que en diez años de pelotón había aprendido exactamente cómo funcionaba la cadena de mando y que en los negocios aplicaba la misma lógica: el director deportivo dirige, el corredor corre.
+
+Santi procesó eso.
+
+— Bien — dijo.
+
+Duarte extendió la mano sobre la mesa.
+
+Santi se la dio.
+
+— Empezamos el lunes — dijo Duarte. — Mandame todo lo que tienen Patiño y vos sobre las seis marcas. Los correos, las propuestas, los números. El miércoles te digo cuáles cerramos, cuáles renegociamos y cuáles descartamos.
+
+---
+
+El miércoles llegó el análisis de Duarte.
+
+No una presentación — un documento de cuatro páginas en PDF, sin gráficas, sin colores corporativos. Solo texto, organizado con la precisión del exciclista que en el pelotón había aprendido que el briefing de la etapa tenía que ser claro en treinta segundos porque después de eso nadie escuchaba.
+
+Bancolombia: cerrar. Los términos eran razonables, la marca era sólida, el tiempo comprometido era manejable. Una modificación en la cláusula de exclusividad del sector financiero y estaba listo.
+
+La relojera suiza: negociar. Los números que habían mandado eran el primer número — nunca el número real. Duarte había hablado con un agente en Lausana que manejaba contratos similares y sabía exactamente cuánto movían en asociaciones con deportistas de esta categoría. Había espacio para duplicar la cifra inicial.
+
+Alto Performance: cerrar, pero con una condición. Vélez quería el nombre de Santi en la colección — eso significaba derechos de imagen específicos que Patiño tenía que blindar antes de firmar. Si eso quedaba claro, adelante.
+
+La aerolínea: descartar. Los términos incluían una cláusula de exclusividad en viajes que en el calendario de Santi era imposible de cumplir. Más problema que beneficio.
+
+El café del eje: mantener en conversación, sin urgencia. Bajo costo de tiempo, buena narrativa, pero los números no justificaban prioridad ahora. En seis meses, cuando el Tour del año siguiente acercara, la marca iba a querer más y podría pagar más.
+
+La sexta marca — una empresa de equipamiento de ciclismo de aventura — descartar. No era el universo de Santi. La asociación era forzada y en el pelotón se notaba.
+
+Santi leyó el documento dos veces.
+
+Llamó a Duarte.
+
+— Bien — dijo Santi.
+
+— ¿Algún cambio?
+
+— No.
+
+— Entonces el lunes empiezo con Bancolombia y con los suizos.
+
+Santi colgó.
+
+Llamó a Patiño.
+
+— Diego — dijo — te va a contactar Andrés Duarte. Es el representante comercial. Vos seguís con los contratos — él trae los acuerdos, vos los cerrás legalmente. Necesitan coordinarse.
+
+Hubo una pausa de Patiño que duró exactamente el tiempo necesario para procesar que el esquema había cambiado sin que nadie le hubiera preguntado.
+
+— Entendido — dijo Patiño, con el tono del abogado que acepta la nueva estructura porque la nueva estructura tiene lógica.
+
+— Gracias, Diego.
+
+Y colgó.
+
+---
+
 *Junio–agosto de 2019:*
 
 *Santiago Reyes Cardona — Campeón del Giro di Italia 2019.*

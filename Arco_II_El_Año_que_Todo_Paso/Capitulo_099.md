@@ -1,157 +1,185 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 99 — El Mundial I: Yorkshire (29 de septiembre de 2019)
+### Capítulo 99 — Yorkshire (23–28 de septiembre de 2019)
 
 ---
 
-La salida fue en Leeds a las diez y cuarenta y cinco de la mañana.
+El vuelo de Medellín a Londres — con escala en Madrid — tardó dieciséis horas.
 
-El centro de Leeds en domingo — la ciudad industrial del Yorkshire que en su historia había sido una de las ciudades del lino y del cuero y que ahora tenía su centro renovado con los museos y los hoteles y los bares del England del siglo veintiuno. Las vallas en las calles del centro, la música del sistema de sonido de la organización, los miles de aficionados que en este domingo de septiembre habían salido a las calles de Leeds con los colores de sus países y con la paciencia de quienes saben que van a ver el pelotón pasar a cuarenta kilómetros por hora durante quince segundos y que esos quince segundos van a ser la razón por la que se levantaron temprano.
+Santi llegó al Aeropuerto de Heathrow el lunes veintitrés de septiembre a las siete de la mañana, hora local. En la terminal de llegadas, entre el tráfico de los vuelos trasatlánticos de primera hora y el olor específico de los aeropuertos del norte de Europa que combinaba el plástico de los pasillos y el café inglés y la lluvia que entraba cada vez que se abrían las puertas automáticas, Santi buscó el letrero con su nombre entre los choferes.
 
-Noventa y dos corredores de cincuenta y siete naciones.
+El chofer del equipo Colombia lo llevó hacia el norte en coche.
 
-El pelotón más diverso del año — el pelotón del Mundial donde el ciclismo mostraba su geografía real: los belgas y los franceses y los italianos de siempre, pero también los colombianos y los ecuatorianos y los australianos y los kazajos y los azerbaiyanos y los sudafricanos.
+Yorkshire.
 
-La señal.
+La A1 hacia el norte de Inglaterra — la carretera que atravesaba los moors, los páramos abiertos del Yorkshire que en el otoño inglés eran el marrón del brezo y el verde del pasto bajo la lluvia que había empezado a los cuarenta minutos de salir de Londres y que seguía cayendo con la constancia de la lluvia inglesa que no era la lluvia tropical de Medellín — intensa, breve, con truenos — sino la lluvia persistente, sin drama, que simplemente estaba ahí.
 
-Ciento setenta y seis metros de altitud sobre el nivel del mar. Doscientos ochenta y cinco kilómetros por delante.
+Santi miró el paisaje por la ventana del coche.
 
----
+Los moors del Yorkshire. La tierra que en la historia de la literatura inglesa era el territorio de Brontë y de Heathcliff y de la oscuridad romántica del siglo diecinueve. En la carretera: ovejas en los pastizales, muros de piedra seca, pueblos de casas grises que en el otoño inglés tenían la textura de los lugares que no cambian porque no necesitan cambiar.
 
-Los primeros cuarenta kilómetros de Leeds hacia el norte fueron los kilómetros del asentamiento.
-
-El pelotón en el Mundial tiene una dinámica diferente al pelotón de las grandes vueltas — no hay equipos de gregarios que tiren durante horas, no hay director deportivo que dicte el ritmo desde el coche. En el Mundial, el pelotón rueda con la lógica de los intereses individuales y de los intereses nacionales que en el primer día de carrera se definen sin que nadie lo diga abiertamente: el equipo que quiere proteger a su sprinter rueda adelante, el equipo que quiere conservar a su escalador rueda atrás, el equipo que no tiene un plan claro rueda donde puede.
-
-Colombia rodó en cuarta posición del pelotón durante los primeros cuarenta kilómetros. Bernal al frente del grupo colombiano, Nairo detrás, Santi en séptima posición del bloque colombiano — la posición del corredor que no necesita gastar en los primeros kilómetros porque lo que tiene que gastar está reservado para las últimas horas.
-
-Holanda rodó al frente. Van der Poel había decidido — o el equipo holandés había decidido — que el control temprano de la carrera era su táctica, y los cuatro hombres naranjas que tiraban en los primeros kilómetros de la A65 hacia los Dales del Yorkshire hacían la carrera en el ritmo de los equipos que tienen velocidad para controlar pero no tienen escaladores para el final.
-
-La fuga del día fue en el kilómetro ocho.
-
-Cuatro corredores de naciones sin grandes favoritos — un ruso, un noruego, un sudafricano, un nuevo zelandés — se fueron con tres minutos de ventaja. El pelotón los dejó ir. Las pantallas de los coches de seguimiento mostraban la diferencia: cuatro minutos, cuatro y medio, cinco. Nadie perseguía.
+Era, pensó Santi, el lugar más diferente al Valle de Aburrá en el que había estado.
 
 ---
 
-Los moors del Yorkshire.
+El hotel del equipo Colombia estaba en Harrogate — la ciudad spa del Yorkshire que en la época victoriana fue el destino de los ingleses ricos que venían a tomar las aguas sulfurosas y que en septiembre de 2019 era la ciudad que el UCI había elegido para el nudo de la carrera más importante del ciclismo de ruta del año.
 
-La carretera que salía de Leeds hacia el norte se convertía en la carretera de los moors — los páramos abiertos, la tierra sin árboles donde el horizonte era el horizonte real sin montañas que lo interrumpieran. El viento en los moors venía del norte con la temperatura de septiembre de Inglaterra que en el cuerpo del ciclista era frío como el frío de la montaña alpina en primavera — no el frío extremo del Stelvio pero sí el frío de los días donde los guantes importan y donde en las bajadas el viento hace que los dedos pierdan sensibilidad.
+Harrogate. Una ciudad pequeña, ordenada, con sus termas y sus hoteles victorianos y sus jardines públicos y sus tiendas de té. Una ciudad que en otra semana habría tenido el ritmo tranquilo de los pueblos del norte de Inglaterra y que en esta semana tenía los toldos blancos de la organización del Mundial y los autobuses de los equipos nacionales y los aficionados con banderas y los periodistas con sus equipos de cámara y el sistema de sonido que desde el jueves empezó a probar la señal con el *dos, uno, dos* que resonaba por las calles del centro con un eco que el arquitecto victoriano de los edificios de piedra caliza no habría anticipado.
 
-Santi llevaba guantes.
+Víctor Hugo Peña los esperaba en el hotel.
 
-No los guantes de los finales de montaña del Giro — los guantes de dedo completo del clima templado, los guantes que en el pelotón de los Mundiales eran la línea divisoria visible entre los corredores del norte de Europa que habían nacido con ese frío en el cuerpo y los corredores del sur y del trópico que lo gestionaban.
+El director técnico tenía sobre la mesa el mapa del recorrido — el mapa de papel, A1, con el trazado marcado en rojo desde Leeds y los circuitos de Harrogate marcados con un círculo y las cotas de altitud de cada ascenso señaladas con números.
 
-Nairo llevaba manguitos térmicos.
+— El reconocimiento del circuito es mañana — dijo Peña. — Salimos a las nueve. Vamos a hacer el circuito de Harrogate completo dos veces y luego el Jenkin Road tres veces separado.
 
-El Yorkshire no era Boyacá ni era Medellín.
+Nairo Quintana — que había llegado el domingo desde Monaco — estaba de pie junto a la ventana mirando la calle de Harrogate. El colombiano de Boyacá tenía esa expresión que Santi había visto en él en las fotos de las grandes vueltas: la concentración del corredor que en el circuito de una carrera clásica está leyendo el terreno aunque el terreno sea solo la calle de un hotel inglés.
 
----
+— ¿Cuántas vueltas al circuito de Harrogate? — dijo Nairo.
 
-El kilómetro ochenta.
+— Ocho — dijo Peña. — Cada vuelta: diecisiete kilómetros, con el Jenkin Road en el kilómetro doce de cada vuelta. El recuento total del Jenkin Road en la carrera: ocho ascensos.
 
-La primera cota catalogada de la carrera — la Côte de Brimham Rocks, con sus ciento treinta y tres metros de desnivel en cuatro kilómetros al cuatro por ciento. No el Mortirolo. No el Jenkin Road. Era la cota del inicio del recorrido exigente, el punto donde el pelotón empezaba a estirarse y donde los primeros que no tenían las piernas del día eran identificados y quedaban atrás.
+Ocho ascensos al Jenkin Road en los últimos ciento treinta y seis kilómetros de la carrera.
 
-El pelotón se estiró pero no se partió.
+— ¿Estado del asfalto? — dijo Bernal, que había llegado esa mañana.
 
-Bélgica estaba activa — Van Aert en el primer tercio del pelotón con sus dos compañeros de equipo, el belga moviéndose con la fluidez de quien está en su elemento natural. En el Yorkshire lluvioso, en el asfalto frío de los Dales, Van Aert tenía el aspecto del corredor que ha ganado en estos campos muchas veces y que sabe exactamente qué pide el terreno.
+— Seco hasta el circuito. El Jenkin Road en las últimas vueltas puede estar húmedo si llueve por la tarde.
 
-Santi lo observó.
+— Llueve aquí todos los días — dijo Nairo.
 
-Van Aert era el rival más complejo. No porque fuera el mejor escalador — no lo era — sino porque era el más completo: capaz de ganar en el sprint y capaz de seguir en la montaña. En el Jenkin Road al catorce por ciento con dos kilómetros de descenso técnico después, Van Aert podía hacer lo que pocos sprinters podían: subir lo suficientemente rápido para no ceder y bajar lo suficientemente audaz para recuperar cualquier diferencia.
-
-La manera de neutralizarlo era no dejarle el descenso.
-
-Ganar en la cima.
+— No todos — dijo Peña. — Pero el domingo hay posibilidad.
 
 ---
 
-El kilómetro ciento veinte.
+El reconocimiento del martes.
 
-La Côte de Cray — nueve comas cinco kilómetros al cinco coma tres por ciento. La primera subida larga del día. Aquí el pelotón se redujo de verdad: los equipos con sprinters empezaron a proteger a sus hombres, los corredores sin misión clara empezaron a ceder, y el grupo de GC virtual — los veinte o veinticinco corredores que podían ganar el Mundial — empezó a tomar forma como un bloque compacto en el primer tercio de la carrera larga.
+El equipo Colombia salió de Harrogate a las nueve en punto — ocho corredores en los colores de la selección, el maillot tricolor con el cóndor en el pecho que en el pelotón del ciclismo internacional tenía el peso de la historia y de lo que esta semana podía añadirse a esa historia.
 
-Colombia llegó a la cima de la Cray con ocho corredores juntos.
+El circuito de Harrogate empezaba en el centro de la ciudad — en la calle principal, frente a las termas victorianas — y recorría los barrios del norte de la ciudad por calles de adoquín y asfalto húmedo de la lluvia de la madrugada antes de entrar en la primera subida: la Côte de Harlow Hill, modesta, de sesenta metros de desnivel, que en el circuito final del Mundial era simplemente el primer escalón antes del escalón que importaba.
 
-Era, Santi lo notó, la primera vez en el día que el equipo colombiano había funcionado como un bloque coordinado: Bernal al frente marcando el ritmo de la cota, Nairo detrás, los demás en fila india con la coordinación del equipo que sabe lo que hace.
-
-En la bajada de la Cray, la lluvia empezó.
-
-No la lluvia de Leeds — la lluvia de los moors, que llegó de repente con el frente que el meteorólogo del equipo había predicho para las dos de la tarde y que se adelantó cuarenta minutos. El asfalto de la bajada de la Cray se mojó en treinta segundos.
-
-Peña, por el pinganillo:
-
-— Lluvia. Controlad la bajada. No vale perder aquí.
+Y luego el Jenkin Road.
 
 ---
 
-*En el apartamento de Laureles, a las cinco de la tarde (hora de Colombia):*
+**La Côte de Jenkin Road: 1,2 km al 14%. Desnivel: 84 m.**
 
-Hernando tenía el televisor encendido desde las dos.
+La primera vez que Santi subió el Jenkin Road en el reconocimiento del martes, con las piernas frescas y el ritmo de exploración — no el ritmo de carrera sino el ritmo con el que se sube algo por primera vez para aprenderlo — supo dos cosas.
 
-La transmisión del Mundial llegaba con una hora de diferencia respecto a la carrera real — era el horario de Colombia respecto al UK. Carmen había puesto el café de las cinco en la mesita. Hernando tenía el cuaderno con el recorrido dibujado y los tiempos anotados en los puntos de referencia que el canal deportivo había dado: la Cota de Brimham Rocks, la Grinton Moor, la Cray.
+La primera: el Jenkin Road no era el Stelvio ni el Agnello. No tenía los veintiún kilómetros de la alta montaña alpina donde la altitud y la duración hacían el trabajo. Era una rampa corta, brutal, de un kilómetro y doscientos metros al catorce por ciento — el tipo de ascenso que en el Tour de Francia existía como final de etapa clásico y que en el pelotón se subía con el cuerpo en el límite de la potencia anaeróbica.
 
-La pantalla mostraba el pelotón a ciento cincuenta kilómetros de la llegada — un pelotón todavía numeroso, cincuenta o sesenta corredores, rodando en la lluvia del Yorkshire con el asfalto húmedo brillando bajo las cámaras del helicóptero que desde arriba mostraba el campo inglés como un cuadro de colores fríos: el verde del pasto, el gris del cielo, el negro del asfalto mojado, y el pelotón de colores como la única cosa caliente en ese paisaje.
+La segunda: que en la octava pasada del Jenkin Road, con doscientos setenta kilómetros de carrera en las piernas y la lluvia inglesa en el asfalto, este kilómetro y doscientos metros iba a ser el punto más difícil que había existido en toda la carrera del día. No porque fuera más alto que el Stelvio. Porque iba a llegarse a él cuando ya no quedaba nada.
 
-*— ¡El pelotón del Campeonato del Mundo de Ciclismo en Ruta en Yorkshire! ¡Ciento cincuenta kilómetros para Harrogate, señoras y señores! ¡Colombia sigue unida — los ocho corredores de la selección juntos en el pelotón! ¡Santi Reyes en décima posición del grupo — el campeón del Giro reservando energías para el final! ¡Los circuitos de Harrogate están a ciento veinte kilómetros!*
+Peña, en el coche de seguimiento:
 
-Hernando anotó la posición en el cuaderno.
+— ¿Cómo lo sentiste?
 
-Carmen entró desde la cocina.
+— Catorce por ciento largo — dijo Santi. — En la octava vuelta el asfalto va a estar resbaladizo.
 
-— ¿Cómo va?
+— Por eso — dijo Peña — el ataque tiene que ser en la subida. No en el descenso. El descenso de Jenkin Road al catorce en húmedo es donde cae la gente.
 
-— Bien — dijo Hernando. — Todavía queda mucho.
+Santi recordó a Alaphilippe. El francés estaba entre los favoritos y su velocidad en los descensos era legendaria — pero los descensos al catorce por ciento con el asfalto húmedo de Yorkshire en septiembre no eran los descensos de las carreras mediterráneas donde Alaphilippe vivía.
 
-Era el análisis de Hernando: en ciento cincuenta kilómetros de carrera del Mundial, todavía quedaba mucho. El corredor de Giro que era Santi sabía administrar el mucho que quedaba. Pero Hernando lo sabía también — lo había sabido en doce años de gregario, que el mucho que quedaba en el kilómetro ciento cincuenta de un día así era exactamente lo que diferenciaba a los ganadores de los que llegaban cerca.
+Subieron el Jenkin Road las tres veces adicionales que Peña había planificado.
 
-Se bebió el café.
+En la primera repetición: cuerpo al ochenta y cinco, aprendiendo la línea del asfalto, los parches, el perfil exacto de la rampa.
 
-Siguió mirando la pantalla.
+En la segunda: al noventa y uno, el ritmo real de carrera.
 
----
+En la tercera: al noventa y cuatro, el ritmo del límite — el ritmo que iba a necesitarse en la octava vuelta del domingo.
 
-El kilómetro ciento ochenta.
+Nairo llegó a la cima de la tercera repetición cuatro segundos después de Santi.
 
-La Côte de Leyburn — el último ascenso significativo antes de los circuitos de Harrogate. Cuatro kilómetros al cinco coma uno. La carretera de la aldea de Leyburn que subía entre campos de oveja y muros de piedra y que el pelotón del Mundial en el kilómetro ciento ochenta de la carrera más larga del año subía con lo que le quedaba.
+Bernal llegó dos segundos después de Nairo.
 
-Aquí el pelotón se redujo a cuarenta.
+Peña, en el coche:
 
-Treinta.
+— Bien.
 
-La fuga — que había llegado al kilómetro ciento diez antes de ser absorbida — estaba resuelta. El ruso y el noruego habían aguantado hasta los últimos diez kilómetros del segmento llano antes de que el pelotón los engullera con la eficiencia del pelotón que controla porque sabe que el tiempo de los fugados ha terminado.
-
-Veinticinco corredores.
-
-Alaphilippe estaba al frente — el francés de Chaingy que en el Mundial era siempre Alaphilippe: el corredor que en las carreras de un día tenía el don específico de estar en el lugar correcto en el momento correcto, el corredor que en el Strade Bianche y en la Flèche Wallonne y en la San Sebastián hacía siempre lo que nadie esperaba exactamente cuando nadie lo esperaba.
-
-Van Aert al lado de Alaphilippe.
-
-Colombia en bloque: Bernal y Nairo habían subido a la sexta y séptima posición del pelotón. Santi seguía detrás — décima posición, con el margen de reserva que el plan de Peña exigía.
-
-— Kilómetro ciento ochenta — dijo Peña por el pinganillo. — Quedan los circuitos. Bernal y Nairo: empezáis a proteger a Santi. Nadie lo toca en las primeras cinco vueltas. En la sexta vuelta, Nairo larga el ritmo. En la séptima, Bernal. En la octava: Santi solo.
-
-Santi escuchó el plan.
-
-Era el plan que habían acordado en Bogotá. Era el plan que Ferretti había validado. Era el plan que en teoría era correcto y que en la práctica dependía de si los veinticuatro corredores restantes tenían sus propios planes y si esos planes coincidían o no.
-
-En el ciclismo no había planes que sobrevivieran intactos el contacto con doscientos cincuenta corredores que también tenían planes.
-
-Santi lo sabía.
-
-El plan era la dirección. La dirección era correcta.
-
-Lo que pasara en los circuitos de Harrogate era la carrera.
+Era el *bien* del entrenador. Era también la evaluación del director técnico: el escalador más rápido en el Jenkin Road del equipo Colombia era Santiago Reyes.
 
 ---
 
-*Campeonato del Mundo 2019 — Yorkshire:*
-*Kilómetro 195 (entrada a los circuitos de Harrogate):*
-*Grupo principal: 25 corredores.*
-*Colombia: Santi, Bernal, Nairo, Sosa, Martínez — 5 corredores.*
-*Belgica: Van Aert, Gilbert, Stuyven — 3 corredores.*
-*Francia: Alaphilippe, Gaudu, Romain Bardet — 3 corredores.*
-*España: Valverde, Mas, Cortina — 3 corredores.*
-*Países Bajos: Van der Poel — 1 corredor.*
-*Tiempo en carrera: 4 horas 52 minutos.*
-*Lluvia en Harrogate: sí, moderada.*
-*Temperatura: 11°C.*
+La semana previa al Mundial tuvo la textura de las esperas grandes.
+
+Los reconocimientos del miércoles y el jueves — el sector inicial de Leeds, las carreteras rurales del Yorkshire que conectaban la salida con los circuitos de Harrogate, los kilómetros donde el pelotón iba a rodar durante cuatro horas antes de que la carrera empezara de verdad. Santi los recorrió con la misma atención con que había recorrido el perfil del Giro en las semanas de Mallorca: no para emocionarse sino para aprender. La carretera del Yorkshire no tenía la belleza vertical de los Alpes — tenía la belleza horizontal del campo inglés, los campos divididos por muros de piedra, los pequeños bosques de hayas, los ríos que cruzaban la ruta bajo puentes de piedra, los pueblos con sus names imposibles para el corredor colombiano que los leía y los pronunciaba y los olvidaba.
+
+El viernes: descanso. Santi corrió noventa minutos solo, sin intensidad, por las calles de Harrogate.
+
+El sábado: una hora de activación en el hotel.
+
+El sábado por la tarde, Ferretti llamó desde Italia.
+
+— ¿Cómo está el Jenkin Road?
+
+— Bueno para mí.
+
+— ¿Cuándo atacás?
+
+— En la octava pasada. En el último kilómetro de la subida.
+
+— ¿No más temprano?
+
+— Si ataco más temprano Van Aert o Van der Poel me siguen. Tienen el sprint para cerrar antes de la bajada.
+
+Ferretti procesó.
+
+— ¿Y si alguien ataca antes que vos?
+
+— Si Alaphilippe ataca en la séptima vuelta lo dejo ir y lo cierro en la subida final.
+
+— ¿Y Valverde?
+
+— Valverde a doscientos ochenta kilómetros tiene el sprint pero no el ataque. Va a esperar.
+
+Ferretti silencio.
+
+— Bien — dijo. Y luego: — ¿La lluvia?
+
+— La lluvia me favorece. Los belgas descienden mejor que yo en seco. En húmedo todos descendemos igual de despacio.
+
+— La lluvia — dijo Ferretti — también cansa. Doscientos ochenta y cinco kilómetros en la lluvia inglesa pesa más que doscientos ochenta y cinco en sol.
+
+— Lo sé.
+
+— Bien.
+
+Colgaron.
+
+Santi se quedó con el teléfono. Pensó en llamar a Hernando. Decidió que no — que la llamada del sábado podía esperar a la del domingo, la que vendría después.
+
+---
+
+La noche del sábado en Harrogate.
+
+El hotel del equipo Colombia con el sonido apagado de la ciudad preparándose para el domingo — los hombres de la organización instalando las vallas en el circuito final, los últimos toldos de la zona de llegada siendo asegurados contra el viento que en el Yorkshire de la noche tenía esa calidad del viento del norte de Inglaterra que no es frío como el frío de los Alpes sino frío como la persistencia, como algo que no va a cambiar porque siempre ha sido así.
+
+Santi comió temprano — las siete y media, con Nairo y Bernal en la mesa del hotel, la pasta del ciclista que en cualquier idioma y en cualquier país era la misma pasta de siempre. Nairo habló de la carrera. Bernal habló de la carrera. Santi escuchó y habló cuando tenía algo que decir.
+
+A las nueve volvió a la habitación.
+
+Abrió el cuaderno.
+
+Escribió una sola línea.
+
+*Mañana el Jenkin Road. Octava vuelta.*
+
+Cerró el cuaderno.
+
+Apagó la luz.
+
+---
+
+*Equipo Colombia — Mundial de Yorkshire 2019:*
+*1. Santiago Reyes (capitán de ruta)*
+*2. Egan Bernal*
+*3. Nairo Quintana*
+*4. Iván Sosa*
+*5. Esteban Chaves*
+*6. Daniel Martínez*
+*7. Darwin Atapuma*
+*8. Winner Anacona*
+
+*Plan táctico: controlar la carrera hasta el último circuito. Liberar a Santi en la octava pasada del Jenkin Road. Nairo y Bernal como lanzadores en la séptima vuelta.*
+
+*Pronóstico del tiempo para el domingo 29 de septiembre en Harrogate: nublado a partir de mediodía, lluvia posible en la tarde. Temperatura: 12°C.*
 
 ---

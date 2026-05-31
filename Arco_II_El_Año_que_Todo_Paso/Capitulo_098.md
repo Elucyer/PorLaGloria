@@ -1,185 +1,326 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 98 — Yorkshire (23–28 de septiembre de 2019)
+### Capítulo 98 — La Prueba de Esfuerzo (septiembre de 2019)
 
 ---
 
-El vuelo de Medellín a Londres — con escala en Madrid — tardó dieciséis horas.
+La prueba de esfuerzo fue el martes diecisiete de septiembre, en el laboratorio de fisiología del deporte del Instituto de Alta Montaña de la Universidad de Antioquia.
 
-Santi llegó al Aeropuerto de Heathrow el lunes veintitrés de septiembre a las siete de la mañana, hora local. En la terminal de llegadas, entre el tráfico de los vuelos trasatlánticos de primera hora y el olor específico de los aeropuertos del norte de Europa que combinaba el plástico de los pasillos y el café inglés y la lluvia que entraba cada vez que se abrían las puertas automáticas, Santi buscó el letrero con su nombre entre los choferes.
+No fue idea de Ferretti — fue idea de Rusconi. El analista de rendimiento del equipo había enviado el correo tres semanas antes, con el asunto *Evaluación fisiológica pre-Mundial* y el argumento de que después del Giro y el verano de transición era el momento correcto para tener los datos de base actualizados: el VO2 máximo, el umbral de lactato, la potencia al umbral, la curva de potencia en alta intensidad. Los datos que en el equipo FCV-Procycling existían de años anteriores pero que después de la temporada más exigente de la carrera de Santi podían haber cambiado — para bien o para mal.
 
-El chofer del equipo Colombia lo llevó hacia el norte en coche.
-
-Yorkshire.
-
-La A1 hacia el norte de Inglaterra — la carretera que atravesaba los moors, los páramos abiertos del Yorkshire que en el otoño inglés eran el marrón del brezo y el verde del pasto bajo la lluvia que había empezado a los cuarenta minutos de salir de Londres y que seguía cayendo con la constancia de la lluvia inglesa que no era la lluvia tropical de Medellín — intensa, breve, con truenos — sino la lluvia persistente, sin drama, que simplemente estaba ahí.
-
-Santi miró el paisaje por la ventana del coche.
-
-Los moors del Yorkshire. La tierra que en la historia de la literatura inglesa era el territorio de Brontë y de Heathcliff y de la oscuridad romántica del siglo diecinueve. En la carretera: ovejas en los pastizales, muros de piedra seca, pueblos de casas grises que en el otoño inglés tenían la textura de los lugares que no cambian porque no necesitan cambiar.
-
-Era, pensó Santi, el lugar más diferente al Valle de Aburrá en el que había estado.
+Santi había dicho que sí.
 
 ---
 
-El hotel del equipo Colombia estaba en Harrogate — la ciudad spa del Yorkshire que en la época victoriana fue el destino de los ingleses ricos que venían a tomar las aguas sulfurosas y que en septiembre de 2019 era la ciudad que el UCI había elegido para el nudo de la carrera más importante del ciclismo de ruta del año.
+El laboratorio de fisiología del Instituto de Alta Montaña estaba en el campus de la Universidad de Antioquia, en El Volador — el campus universitario de Medellín construido sobre el cerro del mismo nombre, con la vista del Valle de Aburrá desde las facultades de ciencias y con el olor específico del eucalipto de los senderos de la montaña universitaria mezclado con el humo de las frituras del corredor de comidas de la entrada.
 
-Harrogate. Una ciudad pequeña, ordenada, con sus termas y sus hoteles victorianos y sus jardines públicos y sus tiendas de té. Una ciudad que en otra semana habría tenido el ritmo tranquilo de los pueblos del norte de Inglaterra y que en esta semana tenía los toldos blancos de la organización del Mundial y los autobuses de los equipos nacionales y los aficionados con banderas y los periodistas con sus equipos de cámara y el sistema de sonido que desde el jueves empezó a probar la señal con el *dos, uno, dos* que resonaba por las calles del centro con un eco que el arquitecto victoriano de los edificios de piedra caliza no habría anticipado.
+El doctor Alejandro Vargas era el fisiólogo del Instituto — cuarenta y dos años, delgado, con los lentes de vidrio que en un laboratorio de fisiología del deporte tenían algo de anacrónico. Había hecho su doctorado en la Universidad de Lausana con un estudio sobre los patrones de consumo de oxígeno en los ciclistas de altitud, y en los últimos doce años había vuelto a Medellín para trabajar con la Universidad de Antioquia y con la FCI en la evaluación de los corredores colombianos.
 
-Víctor Hugo Peña los esperaba en el hotel.
+Conocía a Santi de dos años atrás — la evaluación de 2017, cuando Santi tenía diecisiete años y los valores del test habían sido ya notables pero no extraordinarios.
 
-El director técnico tenía sobre la mesa el mapa del recorrido — el mapa de papel, A1, con el trazado marcado en rojo desde Leeds y los circuitos de Harrogate marcados con un círculo y las cotas de altitud de cada ascenso señaladas con números.
+— La última vez te medimos noventa y uno coma cuatro de VO2 máximo — dijo Vargas, abriendo la ficha en el ordenador. — Eso fue en agosto del diecisiete. ¿Cómo te has sentido en la temporada?
 
-— El reconocimiento del circuito es mañana — dijo Peña. — Salimos a las nueve. Vamos a hacer el circuito de Harrogate completo dos veces y luego el Jenkin Road tres veces separado.
+— Bien — dijo Santi.
 
-Nairo Quintana — que había llegado el domingo desde Monaco — estaba de pie junto a la ventana mirando la calle de Harrogate. El colombiano de Boyacá tenía esa expresión que Santi había visto en él en las fotos de las grandes vueltas: la concentración del corredor que en el circuito de una carrera clásica está leyendo el terreno aunque el terreno sea solo la calle de un hotel inglés.
+— ¿El Giro no te dejó nada pendiente?
 
-— ¿Cuántas vueltas al circuito de Harrogate? — dijo Nairo.
+— Nada que el descanso no haya resuelto.
 
-— Ocho — dijo Peña. — Cada vuelta: diecisiete kilómetros, con el Jenkin Road en el kilómetro doce de cada vuelta. El recuento total del Jenkin Road en la carrera: ocho ascensos.
+Vargas asintió. Miró la pantalla. Dos años atrás, 91,4 ml/kg/min de VO2 máximo a los diecisiete años. Era un valor excepcional para cualquier estándar — los ciclistas de elite del WorldTour típicamente rondaban entre 78 y 88 en las mediciones de laboratorio, con los valores más altos reportados en los corredores más livianos y potentes. El 91,4 de Santi a los diecisiete había dejado a Vargas con la convicción de que estaba midiendo a alguien poco común.
 
-Ocho ascensos al Jenkin Road en los últimos ciento treinta y seis kilómetros de la carrera.
+— Hoy vamos a ver qué hizo la temporada con ese número — dijo Vargas. — El test es el mismo protocolo: rampa en cicloergómetro, empezamos en ciento cincuenta vatios y subimos veinte vatios cada minuto hasta el agotamiento. Gases espirados en tiempo real, lactato en sangre cada tres minutos, monitoreo cardíaco continuo.
 
-— ¿Estado del asfalto? — dijo Bernal, que había llegado esa mañana.
+Santi asintió.
 
-— Seco hasta el circuito. El Jenkin Road en las últimas vueltas puede estar húmedo si llueve por la tarde.
+Conocía el protocolo. Lo había hecho cuatro veces en la vida — la primera a los quince años, en el Centro de Alto Rendimiento de Rionegro, y la última aquí, en este mismo laboratorio, dos años atrás.
 
-— Llueve aquí todos los días — dijo Nairo.
+— ¿Cuánto tiempo tengo antes del esfuerzo máximo? — dijo.
 
-— No todos — dijo Peña. — Pero el domingo hay posibilidad.
-
----
-
-El reconocimiento del martes.
-
-El equipo Colombia salió de Harrogate a las nueve en punto — ocho corredores en los colores de la selección, el maillot tricolor con el cóndor en el pecho que en el pelotón del ciclismo internacional tenía el peso de la historia y de lo que esta semana podía añadirse a esa historia.
-
-El circuito de Harrogate empezaba en el centro de la ciudad — en la calle principal, frente a las termas victorianas — y recorría los barrios del norte de la ciudad por calles de adoquín y asfalto húmedo de la lluvia de la madrugada antes de entrar en la primera subida: la Côte de Harlow Hill, modesta, de sesenta metros de desnivel, que en el circuito final del Mundial era simplemente el primer escalón antes del escalón que importaba.
-
-Y luego el Jenkin Road.
+— Doce, trece minutos de rampa. Dependiendo de hasta dónde llegués.
 
 ---
 
-**La Côte de Jenkin Road: 1,2 km al 14%. Desnivel: 84 m.**
+El calentamiento fue veinte minutos en el cicloergómetro del laboratorio — el cicloergómetro de laboratorio que no era la bicicleta de carrera sino la máquina calibrada de los estudios fisiológicos, con los pedales que registraban la potencia exacta y el sillín que en el cuerpo del ciclista se sentía diferente al sillín de la carretera.
 
-La primera vez que Santi subió el Jenkin Road en el reconocimiento del martes, con las piernas frescas y el ritmo de exploración — no el ritmo de carrera sino el ritmo con el que se sube algo por primera vez para aprenderlo — supo dos cosas.
+La mascarilla fue lo último.
 
-La primera: el Jenkin Road no era el Stelvio ni el Agnello. No tenía los veintiún kilómetros de la alta montaña alpina donde la altitud y la duración hacían el trabajo. Era una rampa corta, brutal, de un kilómetro y doscientos metros al catorce por ciento — el tipo de ascenso que en el Tour de Francia existía como final de etapa clásico y que en el pelotón se subía con el cuerpo en el límite de la potencia anaeróbica.
+El equipo de gases espirados — la mascarilla facial conectada al analizador de gases que medía el porcentaje de oxígeno y dióxido de carbono en cada exhalación en tiempo real, la mascarilla que en el ciclista de carrera producía esa sensación de claustrofobia controlada que desaparecía en los primeros dos minutos cuando el cuerpo procesaba que la mascarilla no impedía respirar sino que registraba lo que el cuerpo respiraba.
 
-La segunda: que en la octava pasada del Jenkin Road, con doscientos setenta kilómetros de carrera en las piernas y la lluvia inglesa en el asfalto, este kilómetro y doscientos metros iba a ser el punto más difícil que había existido en toda la carrera del día. No porque fuera más alto que el Stelvio. Porque iba a llegarse a él cuando ya no quedaba nada.
+Vargas y su asistente — Camilo, estudiante de doctorado, silencioso, con el portapapeles y el kit de lactato preparado — se posicionaron.
 
-Peña, en el coche de seguimiento:
-
-— ¿Cómo lo sentiste?
-
-— Catorce por ciento largo — dijo Santi. — En la octava vuelta el asfalto va a estar resbaladizo.
-
-— Por eso — dijo Peña — el ataque tiene que ser en la subida. No en el descenso. El descenso de Jenkin Road al catorce en húmedo es donde cae la gente.
-
-Santi recordó a Alaphilippe. El francés estaba entre los favoritos y su velocidad en los descensos era legendaria — pero los descensos al catorce por ciento con el asfalto húmedo de Yorkshire en septiembre no eran los descensos de las carreras mediterráneas donde Alaphilippe vivía.
-
-Subieron el Jenkin Road las tres veces adicionales que Peña había planificado.
-
-En la primera repetición: cuerpo al ochenta y cinco, aprendiendo la línea del asfalto, los parches, el perfil exacto de la rampa.
-
-En la segunda: al noventa y uno, el ritmo real de carrera.
-
-En la tercera: al noventa y cuatro, el ritmo del límite — el ritmo que iba a necesitarse en la octava vuelta del domingo.
-
-Nairo llegó a la cima de la tercera repetición cuatro segundos después de Santi.
-
-Bernal llegó dos segundos después de Nairo.
-
-Peña, en el coche:
-
-— Bien.
-
-Era el *bien* del entrenador. Era también la evaluación del director técnico: el escalador más rápido en el Jenkin Road del equipo Colombia era Santiago Reyes.
+— Empezamos — dijo Vargas.
 
 ---
 
-La semana previa al Mundial tuvo la textura de las esperas grandes.
+Los primeros seis minutos fueron los minutos de la información.
 
-Los reconocimientos del miércoles y el jueves — el sector inicial de Leeds, las carreteras rurales del Yorkshire que conectaban la salida con los circuitos de Harrogate, los kilómetros donde el pelotón iba a rodar durante cuatro horas antes de que la carrera empezara de verdad. Santi los recorrió con la misma atención con que había recorrido el perfil del Giro en las semanas de Mallorca: no para emocionarse sino para aprender. La carretera del Yorkshire no tenía la belleza vertical de los Alpes — tenía la belleza horizontal del campo inglés, los campos divididos por muros de piedra, los pequeños bosques de hayas, los ríos que cruzaban la ruta bajo puentes de piedra, los pueblos con sus names imposibles para el corredor colombiano que los leía y los pronunciaba y los olvidaba.
+Ciento cincuenta vatios. Ciento setenta. Ciento noventa. Doscientos diez.
 
-El viernes: descanso. Santi corrió noventa minutos solo, sin intensidad, por las calles de Harrogate.
+El cuerpo en esas potencias no estaba en esfuerzo máximo — estaba en el rango aeróbico controlado donde el sistema cardiorrespiratorio trabajaba sin llegar al umbral. Los valores de VO2 subían con la rampa de manera proporcional: más potencia, más consumo de oxígeno. Era la parte matemática del test — la parte donde los datos eran ordenados y el fisiólogo podía proyectar sin sorpresa.
 
-El sábado: una hora de activación en el hotel.
+Vargas miraba la pantalla donde el VO2 en tiempo real se dibujaba como una curva ascendente.
 
-El sábado por la tarde, Ferretti llamó desde Italia.
+— Doscientos treinta — dijo Camilo. — Lactato dos coma uno.
 
-— ¿Cómo está el Jenkin Road?
+Dos coma uno en doscientos treinta vatios. Era bajo para la intensidad — el signo del cuerpo que en el umbral de doscientos treinta vatios todavía no estaba produciendo lactato a una tasa que superara su capacidad de eliminación. El umbral aeróbico de Santi era, proyectando, superior a trescientos vatios.
 
-— Bueno para mí.
-
-— ¿Cuándo atacás?
-
-— En la octava pasada. En el último kilómetro de la subida.
-
-— ¿No más temprano?
-
-— Si ataco más temprano Van Aert o Van der Poel me siguen. Tienen el sprint para cerrar antes de la bajada.
-
-Ferretti procesó.
-
-— ¿Y si alguien ataca antes que vos?
-
-— Si Alaphilippe ataca en la séptima vuelta lo dejo ir y lo cierro en la subida final.
-
-— ¿Y Valverde?
-
-— Valverde a doscientos ochenta kilómetros tiene el sprint pero no el ataque. Va a esperar.
-
-Ferretti silencio.
-
-— Bien — dijo. Y luego: — ¿La lluvia?
-
-— La lluvia me favorece. Los belgas descienden mejor que yo en seco. En húmedo todos descendemos igual de despacio.
-
-— La lluvia — dijo Ferretti — también cansa. Doscientos ochenta y cinco kilómetros en la lluvia inglesa pesa más que doscientos ochenta y cinco en sol.
-
-— Lo sé.
-
-— Bien.
-
-Colgaron.
-
-Santi se quedó con el teléfono. Pensó en llamar a Hernando. Decidió que no — que la llamada del sábado podía esperar a la del domingo, la que vendría después.
+Vargas anotó.
 
 ---
 
-La noche del sábado en Harrogate.
+El kilómetro nueve del test — doscientos setenta vatios.
 
-El hotel del equipo Colombia con el sonido apagado de la ciudad preparándose para el domingo — los hombres de la organización instalando las vallas en el circuito final, los últimos toldos de la zona de llegada siendo asegurados contra el viento que en el Yorkshire de la noche tenía esa calidad del viento del norte de Inglaterra que no es frío como el frío de los Alpes sino frío como la persistencia, como algo que no va a cambiar porque siempre ha sido así.
+Santi pedaleaba con la cadencia controlada de los esfuerzos progresivos: no la cadencia del sprint ni la cadencia de la montaña larga sino la cadencia del laboratorio donde el protocolo exige que el corredor no anticipe el esfuerzo sino que simplemente responda a la rampa.
 
-Santi comió temprano — las siete y media, con Nairo y Bernal en la mesa del hotel, la pasta del ciclista que en cualquier idioma y en cualquier país era la misma pasta de siempre. Nairo habló de la carrera. Bernal habló de la carrera. Santi escuchó y habló cuando tenía algo que decir.
+— Treinta y cuatro coma dos de VO2 — dijo Camilo, en voz baja, al oído de Vargas.
 
-A las nueve volvió a la habitación.
+Era el valor instantáneo, no el máximo. En doscientos setenta vatios, Santi consumía 34,2 mililitros de oxígeno por kilogramo de masa corporal por minuto. Era el consumo de los corredores de altitud en esfuerzo moderado alto.
 
-Abrió el cuaderno.
+— Doscientos noventa — dijo Camilo.
 
-Escribió una sola línea.
+Santi subió la cadencia dos revoluciones por minuto.
 
-*Mañana el Jenkin Road. Octava vuelta.*
+— Lactato tres coma cuatro.
 
-Cerró el cuaderno.
+Umbral de lactato en trescientos vatios era lo que Vargas proyectaba internamente — el nivel donde el lactato empezaba a acumularse a una tasa que la eliminación no podía seguir. Tres coma cuatro en doscientos noventa era el umbral en los corredores de elite del mundo — el valor donde el mejor ciclista del mundo en ese momento podía sostener el esfuerzo durante horas.
 
-Apagó la luz.
+Vargas empezó a sentir algo que en doce años de laboratorio había aprendido a reconocer como la señal de que algo diferente estaba pasando.
 
 ---
 
-*Equipo Colombia — Mundial de Yorkshire 2019:*
-*1. Santiago Reyes (capitán de ruta)*
-*2. Egan Bernal*
-*3. Nairo Quintana*
-*4. Iván Sosa*
-*5. Esteban Chaves*
-*6. Daniel Martínez*
-*7. Darwin Atapuma*
-*8. Winner Anacona*
+Trescientos diez vatios.
 
-*Plan táctico: controlar la carrera hasta el último circuito. Liberar a Santi en la octava pasada del Jenkin Road. Nairo y Bernal como lanzadores en la séptima vuelta.*
+Santi seguía.
 
-*Pronóstico del tiempo para el domingo 29 de septiembre en Harrogate: nublado a partir de mediodía, lluvia posible en la tarde. Temperatura: 12°C.*
+La respiración había cambiado — el patrón del esfuerzo intenso donde la frecuencia respiratoria sube y el volumen de aire por respiración aumenta para satisfacer la demanda del músculo. La mascarilla registraba cada exhalación. En la pantalla: la curva del VO2 siguiendo subiendo.
+
+— Cuarenta y siete coma ocho — dijo Camilo.
+
+Cuarenta y siete coma ocho de VO2 en tiempo real en trescientos diez vatios.
+
+Vargas hizo un cálculo rápido mentalmente.
+
+Si el VO2 seguía subiendo a este ritmo, el máximo — el punto donde el consumo de oxígeno dejaba de responder al incremento de potencia — iba a estar en un valor que Vargas no había medido nunca en un ciclista de carretera.
+
+— Trescientos treinta — dijo Camilo. — Lactato cinco coma uno.
+
+El umbral anaeróbico. Santi había cruzado el umbral de lactato. Esto era el esfuerzo máximo sostenible a corto plazo — los cuatro o cinco minutos que el atleta de élite podía dar al cien por ciento antes de que el lactato acumulado lo obligara a reducir.
+
+Santi pedaleó.
+
+---
+
+Trescientos cincuenta vatios.
+
+En la pantalla del analizador de gases: la curva del VO2 seguía subiendo.
+
+— ¿Estás bien? — dijo Vargas, por el micrófono del laboratorio.
+
+Santi asintió. No podía hablar con la mascarilla — solo el gesto de la cabeza, la señal del atleta que sigue.
+
+— Sesenta y dos coma tres — dijo Camilo. La voz de Camilo había cambiado de timbre — no el tono neutro del asistente de doctorado que registra datos sino el tono de alguien que acaba de ver un número que no esperaba ver.
+
+Sesenta y dos coma tres en trescientos cincuenta vatios.
+
+— Trescientos setenta — dijo Camilo. — Cuatro minutos en el test.
+
+Cuatro minutos desde el umbral. El corredor promedio del WorldTour cedía entre el minuto dos y el minuto cuatro del esfuerzo supramáximo. Santi seguía.
+
+— Setenta y uno coma siete.
+
+Vargas dejó de anotar y miró la pantalla.
+
+---
+
+El minuto cinco.
+
+Trescientos noventa vatios.
+
+Santi seguía. La cadencia había bajado dos revoluciones — no el derrumbe sino el ajuste del corredor que en el límite real mantiene lo que puede mantener. La frecuencia cardíaca en la pantalla lateral: ciento noventa y cuatro pulsaciones por minuto.
+
+— Ochenta y dos coma uno — dijo Camilo. La voz de Camilo era ahora la voz de alguien que ya no está registrando datos sino presenciando algo.
+
+Ochenta y dos coma uno de VO2 en tiempo real. El valor del corredor de elite del WorldTour en esfuerzo máximo. Santi estaba en su valor máximo y seguía subiendo la rampa.
+
+Cuatrocientos diez vatios.
+
+— Ochenta y nueve coma cuatro.
+
+El umbral de lo que Vargas había medido en todos sus años de laboratorio — el umbral de los mejores ciclistas de su experiencia. Indurain había medido ochenta y ocho en los años noventa. Froome ochenta y cuatro. Los escaladores colombianos que Vargas había medido — Nairo, Uran, Chaves — rondaban el ochenta y cinco, el ochenta y siete.
+
+Ochenta y nueve coma cuatro y Santi seguía.
+
+Cuatrocientos treinta vatios.
+
+La respiración en la mascarilla — el sonido del cuerpo en el límite real, la respiración que ya no es controlada sino la respiración del organismo que usa todo lo que tiene disponible. Ciento noventa y siete pulsaciones.
+
+— Noventa y dos coma seis.
+
+Vargas puso la mano sobre el hombro de Camilo. No dijo nada. Los dos miraban la pantalla.
+
+Cuatrocientos cincuenta vatios.
+
+La curva del VO2 en la pantalla seguía subiendo pero más lenta — la señal de que el máximo estaba cerca, el punto donde el consumo de oxígeno se aplana porque el sistema cardiorrespiratorio ha llegado a su límite real.
+
+— Noventa y tres coma ocho.
+
+Y entonces — en algún punto del minuto seis y medio del esfuerzo supramáximo, a cuatrocientos sesenta vatios — la cadencia cayó. No de golpe. Con la dignidad del corredor que ha dado todo lo que tenía y que en el último giro de pedal deja de poder seguir el protocolo.
+
+Santi soltó la presión.
+
+El test terminó.
+
+---
+
+Vargas esperó dos minutos.
+
+El tiempo de recuperación inmediata — el tiempo que el cuerpo necesita para que la frecuencia cardíaca baje de ciento noventa y siete a ciento cincuenta y para que el VO2 caiga del máximo al valor de recuperación, y para que el fisiólogo pueda hablar con el atleta sin que el atleta esté todavía en el estado donde el cuerpo no tiene recursos para el lenguaje.
+
+Santi se quitó la mascarilla.
+
+Respiró el aire del laboratorio — el aire del laboratorio universitario que no era el aire de la montaña ni el aire de las carreras sino el aire de la fisiología: neutro, constante, con temperatura controlada.
+
+— ¿Cuánto? — dijo.
+
+Vargas miró la pantalla donde el software había calculado el VO2 máximo del test.
+
+El número: **94,2 ml/kg/min.**
+
+Vargas no respondió inmediatamente.
+
+No porque no supiera el número — el número estaba en la pantalla — sino porque necesitó un momento para hacer lo que los científicos hacen cuando ven un resultado que está fuera de lo que esperaban ver: volver a verificar que el equipo estaba calibrado, que la mascarilla sellaba correctamente, que el software no había cometido un error de cálculo.
+
+— Noventa y cuatro coma dos — dijo Vargas.
+
+Santi lo miró.
+
+— ¿Es bueno?
+
+Vargas se quitó los lentes. Los limpió. Los volvió a poner.
+
+— Es el VO2 máximo más alto que he medido en un ciclista de ruta en doce años de laboratorio — dijo. — El más alto publicado en la literatura científica para un ciclista de carretera profesional, que yo sepa, es noventa y tres coma dos. Tuyo es noventa y cuatro coma dos.
+
+Santi procesó el número sin responder.
+
+— Los valores de noventa y cinco en adelante — continuó Vargas — se han documentado principalmente en esquiadores de fondo de elite y en atletas de resistencia con morfología específica para la captación de oxígeno. En el ciclismo de ruta, nadie ha publicado un valor mayor de noventa y tres en condiciones de laboratorio certificadas. — Pausa. — Vamos a repetir el test mañana para confirmar.
+
+---
+
+La repetición del test fue el miércoles.
+
+El valor: **94,0 ml/kg/min.**
+
+La diferencia de cero coma dos entre los dos días estaba dentro del margen de variabilidad normal del test. El resultado era reproducible.
+
+Vargas llamó a tres colegas esa tarde — al fisiólogo del Instituto Nacional de Deporte de Colombia, al director del Laboratorio de Ciencias del Deporte de la Universidad Nacional de Bogotá, y a un investigador de la Universidad de Oslo con quien había publicado dos estudios sobre fisiología del ciclismo de altitud. Les mandó los datos. Los tres respondieron en menos de doce horas.
+
+La respuesta del investigador de Oslo fue la más directa: *This is an extraordinary value. Please verify equipment calibration and body weight measurement. If confirmed, this may be the highest reliable VO2max ever measured in a professional road cyclist.*
+
+El equipo estaba calibrado. El peso corporal de Santi — 62,4 kilogramos — había sido medido tres veces. Los datos eran correctos.
+
+---
+
+Rusconi recibió el informe el jueves por la mañana.
+
+Tardó cuarenta minutos en responder el correo de Vargas. Cuando respondió, su respuesta fue: *Llamo en diez minutos.*
+
+La llamada duró una hora y veinte minutos.
+
+Al final de la llamada, Rusconi llamó a Ferretti.
+
+Ferretti escuchó el número en silencio.
+
+— Noventa y cuatro coma dos — repitió Ferretti.
+
+— Sí. Confirmado en dos días.
+
+Un silencio del tipo que Rusconi había aprendido a reconocer en Ferretti: el silencio de quien procesa la información sin que la cara o la voz lo revelen.
+
+— ¿Cuál es el contexto? — dijo Ferretti finalmente.
+
+Rusconi le dio el contexto: los valores publicados en la literatura, el récord no oficial de Svendsen en esquí de fondo, el valor de Indurain, los valores de los escaladores colombianos.
+
+Otro silencio.
+
+— En el Giro — dijo Ferretti — cuando subió solo en el Stelvio a noventa y uno, pensé que lo que lo diferenciaba era la resistencia mental. El trabajo de Mallorca. La forma física del verano. — Pausa. — Resulta que lo que lo diferencia es que tiene los pulmones que necesitaba para diferenciarse.
+
+Rusconi no respondió.
+
+— Bien — dijo Ferretti. Y colgó.
+
+---
+
+Santi supo el contexto completo esa tarde — Vargas se lo explicó en el consultorio del laboratorio, sentados uno frente al otro, con los datos en la pantalla entre los dos.
+
+El fisiólogo fue metódico y claro: el valor, el contexto histórico, las comparaciones, lo que significaba fisiológicamente y lo que no significaba.
+
+— El VO2 máximo alto no garantiza victorias — dijo Vargas. — Miguel Indurain tenía ochenta y ocho y ganó cinco Tours. Lance Armstrong tenía ochenta y tres coma ocho y ganó siete. El VO2 alto es una condición necesaria pero no suficiente. Lo que determina el rendimiento es cómo el atleta usa ese potencial.
+
+— Lo sé — dijo Santi.
+
+— Pero — continuó Vargas — lo que vuestro número nos dice es que el techo fisiológico es inusualmente alto. La capacidad de captación de oxígeno de tu sistema cardiorrespiratorio es equiparable a la de los mejores esquiadores de fondo del mundo. En un ciclista de ruta con el entrenamiento específico que tenés, eso es — Vargas buscó la palabra — una ventaja estructural.
+
+— ¿Cuánto más puede subir?
+
+Vargas lo pensó.
+
+— Tiene diecinueve años — dijo Vargas, como si estuviera hablando de otro. Y luego se corrigió: — Tenés diecinueve años. Los valores de VO2 máximo típicamente alcanzan el pico entre los veintiuno y los veinticinco años en los atletas de resistencia. Si el entrenamiento progresa de manera óptima — Vargas hizo una pausa — podríamos hablar de noventa y cinco, noventa y seis en dos o tres años.
+
+Santi miró los números en la pantalla.
+
+Noventa y cuatro coma dos.
+
+No era un número que él pudiera sentir en el cuerpo — el VO2 no se sentía, no tenía el dolor del Mortirolo ni el frío del Stelvio ni el peso de los doscientos veintiún kilómetros de la undécima etapa del Giro. Era un número que existía en el laboratorio y que en la carretera se traducía en lo que Santi ya sabía: que en la cima del Stelvio podía seguir cuando los demás no podían.
+
+— ¿Le digo a mi padre? — dijo.
+
+Vargas lo miró.
+
+— Es su información también — dijo Vargas.
+
+---
+
+En el balcón de Laureles, esa tarde:
+
+Santi le dijo el número a Hernando.
+
+Hernando escuchó. El café en la mano. El parque abajo. La luz de septiembre de Medellín.
+
+— ¿Cuánto tiene Nairo? — dijo Hernando.
+
+— Vargas dice que ronda el ochenta y ocho.
+
+Hernando asintió.
+
+— ¿Y los mejores esquiadores de fondo?
+
+— Noventa y seis, noventa y siete.
+
+Silencio.
+
+— Vos subís como ellos — dijo Hernando.
+
+No era una pregunta.
+
+— Sí — dijo Santi.
+
+Hernando bebió el café.
+
+— Bien — dijo.
+
+Era el *bien* de siempre. Era también — en el balcón de septiembre, con el cuarto ciclo de quimioterapia en el cuerpo y el libro del ferrocarril antioqueño en la mesa y el Valle de Aburrá con las nubes que empezaban a cerrar la tarde — el *bien* del hombre que ha recibido la confirmación de algo que ya sabía.
+
+Que había sabido desde el primer puerto.
+
+---
+
+*Valores de la prueba de esfuerzo — Santiago Reyes Cardona, 17 de septiembre de 2019:*
+*VO2 máximo: 94,2 ml/kg/min (confirmado 94,0 en repetición del 18/09/2019)*
+*Umbral de lactato: 315 vatios (corresponde al 88% del VO2 máximo)*
+*Potencia pico: 461 vatios*
+*Frecuencia cardíaca máxima: 197 lpm*
+*Peso corporal: 62,4 kg*
+
+*Nota del doctor Vargas: "Valor de VO2 máximo sin precedente documentado en la literatura científica para ciclismo de ruta profesional. Reproducible en dos mediciones en días consecutivos con equipo calibrado certificado. El atleta presenta un perfil fisiológico equiparable al de los esquiadores de fondo de elite nórdica con un historial de entrenamiento específico de ciclismo de ruta. La combinación de VO2 máximo, umbral de lactato elevado y peso corporal resulta en un índice de potencia relativa proyectado de 7,4 W/kg al umbral — valor que solo cuatro ciclistas de ruta profesionales han alcanzado en condiciones de test verificadas."*
 
 ---
