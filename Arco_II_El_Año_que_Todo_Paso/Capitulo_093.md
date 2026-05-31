@@ -240,7 +240,7 @@ Mañana en el hospital: llegaba a las nueve, leía o miraba el teléfono o habla
 
 No a Laureles — a la calle.
 
-Salía caminando por el barrio alrededor del hospital — el barrio del Belén Rosales con su mezcla de clínicas y farmacias y cafeterías de las que viven del personal médico, con las familias de los pacientes en los alrededores haciendo lo que hacen las familias en los alrededores de los hospitales: esperar, caminar, tomar café, hablar en voz baja en las bancas de la acera.
+Salía caminando por el barrio alrededor del hospital — el barrio de Robledo, en el costado noroccidental de la ciudad, con su mezcla de casas de dos y tres pisos y clínicas menores y farmacias y cafeterías de las que viven del personal médico del Pablo Tobón, con las familias de los pacientes en los alrededores haciendo lo que hacen las familias en los alrededores de los hospitales: esperar, caminar, tomar café, hablar en voz baja en las bancas de la acera.
 
 Compraba un café en la cafetería de la esquina — una cafetería familiar, sin nombre en la fachada, con el mostrador de fórmica y las fotos del municipio de Andes en la pared porque el dueño era andino y no había razón para no tenerlas. El café de tinto de las once con el pan de queso que en Medellín existe en esa versión específica — el pan pequeño, caliente, con el queso apenas derretido — que fuera de Colombia no existe exactamente así.
 

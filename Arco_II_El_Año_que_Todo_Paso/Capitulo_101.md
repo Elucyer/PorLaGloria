@@ -1,162 +1,228 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 101 — La Noche del Arcoíris (29–30 de septiembre de 2019)
+### Capítulo 101 — El Arcoíris (29 de septiembre de 2019)
 
 ---
 
-La conferencia de prensa del campeón del mundo.
+El descenso del Jenkin Road.
 
-La sala de prensa del Centro de Medios del UCI en Harrogate — la sala de conferencias del hotel Victoria con sus sillas y sus mesas y sus banderas y el podio donde el corredor campeón se sentaba frente a los periodistas del mundo. Santi se sentó con el jersey arcoíris todavía puesto. A su izquierda: la traductora del UCI. A su derecha: el responsable de comunicaciones del equipo Colombia.
+Ochocientos metros al catorce por ciento en el asfalto mojado de Yorkshire, con diez metros de ventaja sobre Van Aert y el conocimiento de que el descenso iba a determinar si los diez metros se convertían en treinta o si los diez metros desaparecían.
 
-Cuarenta periodistas.
+Santi bajó.
 
-Italiano, francés, inglés, flamenco, español. Los idiomas del ciclismo internacional distribuidos en la sala con sus cuadernos y sus grabadoras y sus portátiles y la calidad de atención específica de los periodistas deportivos que en la conferencia del campeón del mundo tienen la certeza de que lo que el campeón diga en los próximos veinte minutos va a aparecer en primera página de los periódicos de veinte países.
+Lo había estudiado el martes — la línea correcta de cada curva, el punto donde el asfalto tenía la junta de dilatación donde Alaphilippe había caído, la curva penúltima donde la inclinación era más baja y donde se podía acelerar. No bajó al límite — bajó al noventa y dos, el porcentaje del descenso donde el riesgo era manejable y donde el tiempo ganado era suficiente.
 
-La primera pregunta fue en inglés. Un periodista de Cycling Weekly.
+Van Aert bajó al cien.
 
-— *You're nineteen. You just won the Giro and now the World Championship. What's next?*
+El belga tenía treinta metros de desventaja en la cima y los cerró a doce en el pie del descenso. Doce metros al pie del descenso, con ochocientos metros de llegada en Harrogate.
 
-Santi procesó la pregunta. La entendió sin la traductora — el inglés del ciclismo internacional que en dos años de pelotón europeo había aprendido a nivel funcional.
+Santi los conocía.
 
-— El año que viene — dijo, en español, que la traductora pasó al inglés — corro el Tour de France. Eso es lo que sigue.
+Los ochocientos metros de llegada en Harrogate — la calle de la meta, el Promenade de las termas victorianas, la calle recta y ligeramente descendente donde los sprinters de las carreras de un día vivían y donde los corredores que llegaban solos morían si la ventaja no era suficiente.
 
-La segunda pregunta: el periodista de *La Gazzetta dello Sport*, en italiano.
+Doce metros.
 
-— *Ha vinto il Giro e il Mondiale nello stesso anno a diciannove anni. Esistono paragoni con i grandi campioni del passato. Come si sente?*
+¿Era suficiente?
 
-Santi escuchó la traducción.
+Ferretti, en el pinganillo. La voz de Ferretti — no por el canal del equipo nacional sino por el teléfono que Ferretti había conectado con Peña para seguir la carrera:
 
-¿Cómo se siente con las comparaciones con los grandes del pasado?
+— Santi: no mirés atrás. Seguí pedaleando.
 
-— Me siento como me siento cuando termino una carrera larga — dijo —. Cansado. Y contento.
+No mirar atrás.
 
-Hubo una pequeña risa en la sala. La risa de los periodistas que habían esperado una respuesta más elaborada y que en la economía de Santi habían recibido la respuesta exacta y verdadera.
+Era lo que Hernando le había enseñado en el primer puerto de San José de la Montaña — no mirar atrás porque mirar atrás cuesta tiempo y el tiempo no se recupera.
 
-La tercera pregunta: el periodista de *El Colombiano*.
-
-— Santi, ¿qué significa este título para Colombia?
-
-Era la pregunta que sí tenía respuesta.
-
-— Colombia ha tenido siempre los mejores escaladores del mundo — dijo Santi. — Lucho Herrera, Fabio Parra, Nairo. Egan. Bernal ganó el Tour este año. Yo gané el Giro. Y hoy Colombia ganó el Campeonato del Mundo. — Pausa. — Lo que significa para Colombia lo decide Colombia. Yo solo corrí.
+Santi no miró atrás.
 
 ---
 
-La rueda de prensa terminó a las diez de la noche.
+Los ochocientos metros de la calle de llegada de Harrogate.
 
-Víctor Hugo Peña esperaba afuera con el equipo.
+La multitud a los lados — los miles de aficionados que en el Promenade de Harrogate habían esperado durante horas bajo la lluvia con sus impermeable y sus banderas y que ahora veían al corredor colombiano venir solo desde el descenso del Jenkin Road, el corredor de diecinueve años que en el año que llevaba la Maglia Rosa del Giro venía a buscar el jersey arcoíris del Campeonato del Mundo.
 
-Bernal primero — el colombiano que llegó quinto en el Mundial y que lo fue con la cara del corredor que ha dado todo y que está satisfecho con lo que dio. Tendió la mano a Santi.
+Los ochocientos metros de la calle recta.
 
-— Lo que dijiste de Colombia en la rueda de prensa — dijo Bernal — lo dijiste bien.
+El asfalto negro y mojado. Las vallas a los lados. El arco de llegada al fondo.
 
-— Fue la verdad — dijo Santi.
+Santi no miró atrás.
 
-— La verdad también se puede decir mal — dijo Bernal.
+Pedaleó.
 
-Era el tipo de cosa que Bernal decía — la cosa justa en el momento justo con la brevedad del corredor que tiene más en la cabeza de lo que muestra.
+La cadencia del sprint en los últimos cuatrocientos metros — no el sprint del corredor que tiene el sprint puro del velocista sino el sprint del escalador que en la calle de llegada da lo que el Jenkin Road le ha dejado disponible. Noventa y dos revoluciones por minuto. Noventa y cuatro.
 
-Nairo le dio un abrazo. No el abrazo de las cámaras — el abrazo breve del corredor colombiano que después de años de intentar el Mundial con resultados correctos pero no suficientes veía a un corredor de diecinueve años traer lo que él no había podido traer, y que en ese abrazo no había envidia sino algo más complicado y más honesto: el orgullo generacional del ciclista que sabe que el ciclismo colombiano es más grande que cualquiera de sus partes individuales.
+Trescientos metros.
 
-— El próximo año el Tour — dijo Nairo.
+En algún punto — en algún punto de los trescientos metros que quedaban — Santi supo que nadie lo iba a alcanzar. No fue un pensamiento consciente. Fue algo que el cuerpo calculó sin que el cerebro necesitara intervenir: la velocidad que llevaba, la distancia que faltaba, la física de lo que estaba pasando.
 
-— El Tour — dijo Santi.
+Doscientos metros.
 
-Y Nairo sonrió — la sonrisa que Nairo tenía cuando el futuro era lo suficientemente concreto como para que sonreírle tuviera sentido.
+La multitud de los lados se convirtió en el ruido que no es ruido — el ruido que el corredor escucha sin que entre en el canal de la consciencia, el ruido del fondo sobre el que ocurre lo que tiene que ocurrir.
 
----
+Cien metros.
 
-La cena del equipo Colombia en Harrogate fue la cena de los campeones del mundo.
+El arco de llegada.
 
-No el banquete — la mesa larga del hotel con la pasta de siempre y el pollo de siempre y el agua con gas y sin gas y el vino que Peña puso en la mesa porque era el Mundial y el vino estaba permitido. Los ocho corredores. Peña. Los auxiliares. El médico del equipo. La traductora del UCI que había aceptado la invitación a cenar porque era la noche del Mundial y las traducciones del día habían sido las traducciones de una noche que valía la pena recordar.
+Cincuenta metros.
 
-No hubo discursos.
+Santi levantó los brazos.
 
-Peña levantó el vaso al principio — el gesto breve, sin palabras, que decía lo que los discursos habrían dicho más largo pero no mejor.
+No los abrió completamente — los levantó a media altura, el gesto contenido del corredor que en la victoria no necesita el gesto grande porque el gesto grande ya está en la carretera y en el Jenkin Road y en los doscientos ochenta y cinco kilómetros del Yorkshire y en el Giro de Italia de mayo y en el Stelvio y en Courmayeur y en la rampa de San Marino del diecinueve de mayo de dos años de carrera.
 
-Comieron.
+Santiago Reyes cruzó la línea de llegada del Campeonato del Mundo de Ciclismo en Ruta de Yorkshire 2019.
 
-Santi comió la pasta con mantequilla — la pasta de los días grandes, el alimento de los grandes esfuerzos — con el apetito del corredor que después de siete horas de carrera tiene el hambre real y no el hambre social. Nadie le preguntó más sobre el Jenkin Road. Nadie analizó la táctica. Era la cena donde la carrera ya había pasado y lo que quedaba era comer y dormir.
-
-Broeckx no estaba — Broeckx era el compañero del equipo FCV-Procycling, no del equipo Colombia. Pero Santi pensó en él. En la Clásica de Lombardía donde se verían en dos semanas. En el café de Feltre.
-
-*Dale un abrazo de mi parte*, había dicho Broeckx sobre Hernando.
-
-Lo había dado.
+Primero.
 
 ---
 
-La habitación del hotel a las once y cuarenta de la noche.
+Van Aert llegó doce segundos después.
 
-Santi se sentó en la cama con el jersey arcoíris en la mano.
+Van der Poel a dieciséis. Valverde a veintiuno. Bernal a treinta y cuatro, el quinto lugar del mejor resultado de un equipo colombiano en la historia de los Mundiales de ruta.
 
-Lo miró.
+Santi hizo el giro de desaceleración — la vuelta que el corredor da después de cruzar la meta para frenar la velocidad del sprint sin detener la bicicleta de golpe. El giro de la llegada de la carrera más larga del año.
 
-El blanco del maillot con las cinco bandas del arcoíris — azul, rojo, negro, amarillo, verde — que en el jersey del campeón del mundo eran las cinco bandas de los anillos olímpicos adaptados para el ciclismo por el UCI en los años veinte, en el primer campeonato del mundo de la historia del deporte de la bicicleta. Un siglo de esta prenda. Un siglo de corredores que la habían usado durante un año.
+No lloraba.
 
-Binda. Coppi. Merckx. Hinault. Indurain. Cipollini. Freire. Gilbert.
+No era el tipo de corredor que lloraba.
 
-Y ahora él.
+Pero había algo en el cuerpo — algo que no era el noventa y cuatro de VO2 máximo ni el ritmo cardíaco ni el lactato ni ninguno de los números del laboratorio de Vargas — que era diferente a lo que había sentido en Verona y en Courmayeur y en el Lago Serrù. Era algo sin nombre que existía en el cuerpo del corredor que acaba de cruzar la línea del Campeonato del Mundo.
 
-El pensamiento no lo sobrepasó — Santi no era el tipo de corredor que dejaba que los pensamientos de la historia lo sobrepasaran. Lo procesó con la misma economía con que procesaba todo: el jersey era el jersey del mejor corredor del mundo en el día de hoy. El año que venía era el año del Tour. Los dos hechos existían en el mismo espacio sin que uno cancelara al otro.
+El jersey.
 
-Dobló el jersey.
+El jersey arcoíris — el maillot de campeón del mundo con las bandas de los colores del arcoíris sobre el blanco que en el ciclismo profesional es el jersey que un corredor puede usar durante un año entero en todas las carreras del calendario. El jersey que nadie tiene hasta que alguien lo tiene.
 
-Lo puso sobre la silla del cuarto.
+El técnico del equipo colombiano se lo puso en los hombros.
 
-Abrió el cuaderno — el cuaderno de la temporada, el cuaderno del Giro y del verano de Laureles y del VO2 máximo de Vargas y del reconocimiento de Yorkshire.
+Santi lo miró.
 
-La última página que había escrito decía: *Mañana el Jenkin Road. Octava vuelta.*
+---
 
-Debajo de esa línea, escribió:
+La zona mixta del Campeonato del Mundo.
 
-*Yorkshire. 29 de septiembre.*
+Los periodistas en el corredor de la zona mixta — los de Colombia que habían venido específicamente, los internacionales que cubrían el Mundial, los de las agencias que iban a mandar la foto del campeón a todos los periódicos del mundo. Los micrófonos, las cámaras, los flashes.
 
-*Primero.*
+Santi habló.
+
+No con el discurso preparado. Con las palabras que tenía.
+
+— Este resultado es de Colombia — dijo, al micrófono de RCN. — Es de Egan, de Nairo, de todo el equipo. Colombia tiene los mejores ciclistas del mundo.
+
+El periodista de Colombia le preguntó por su padre.
+
+Santi lo miró.
+
+Era la pregunta que no había esperado y que era la única pregunta que importaba.
+
+— Mi papá — dijo Santi — está viendo esto desde Medellín. — Pausa. — Lleva el año peleando su propia carrera. Y va ganando.
+
+---
+
+*En el apartamento de Laureles, a las siete y cuarenta y nueve de la tarde:*
+
+El comentarista del canal deportivo seguía hablando cuando Hernando apagó el televisor.
+
+Carmen lo miró.
+
+Hernando estaba sentado en el sofá con el cuaderno cerrado sobre las rodillas y los ojos en la pantalla negra. No era la pantalla negra lo que miraba — era lo que había visto antes de que la pantalla se apagara: a su hijo cruzando la línea del Campeonato del Mundo con los brazos levantados y el jersey de los colores del arcoíris todavía en los hombros del técnico que lo estaba poniendo.
+
+Carmen no dijo nada.
+
+Esperó.
+
+Hernando abrió el cuaderno en la última página de los circuitos de Harrogate.
+
+Debajo de todo lo que había anotado durante la tarde — los tiempos, las posiciones, los ataques, la caída de Alaphilippe, la cima del Jenkin Road — escribió una línea final.
+
+*7h:14:23. Primero.*
 
 Cerró el cuaderno.
 
-Apagó la luz.
+— Bien — dijo.
+
+Era el *bien* de siempre. Era el *bien* que en cuarenta y dos años de vida con este hombre Carmen había aprendido a traducir en todas sus variantes — el *bien* del aprendizaje, el *bien* de la corrección, el *bien* del puerto subido correctamente, el *bien* del gregario que cumplió su trabajo, el *bien* del Giro de mayo.
+
+Este *bien* era diferente.
+
+Este *bien* era el *bien* del padre que en el sofá de Laureles, con el cuarto ciclo de quimioterapia en el cuerpo y el libro del ferrocarril antioqueño en la mesa y el cuaderno con los circuitos de Yorkshire cerrado en la rodilla, había visto a su hijo ganar el Campeonato del Mundo de Ciclismo en Ruta.
+
+Carmen puso la mano sobre la mano de Hernando.
+
+Hernando no la retiró.
 
 ---
 
-*En Laureles, medianoche:*
+La ceremonia del podio fue bajo el arco de llegada del Promenade de Harrogate, con la lluvia que seguía cayendo sobre Yorkshire con la indiferencia de la lluvia inglesa que no distingue entre las ceremonias que importan y las que no.
 
-Carmen entró a la habitación y vio a Hernando durmiendo.
+El podio: Santi primero. Van Aert segundo. Van der Poel tercero.
 
-Había dormido desde las nueve — el cuerpo del cuarto ciclo que en las noches después de los días de televisión y café y esfuerzo sostenido necesitaba el descanso que la quimioterapia había aprendido a exigir. Carmen apagó la lámpara de la mesita que Hernando había dejado encendida.
+El himno de Colombia.
 
-Sobre la mesita: el libro del ferrocarril antioqueño abierto en la página ciento cuarenta y cuatro — la página donde el nombre de Aurelio Reyes aparecía en la lista de trabajadores de la cuadrilla del tramo Girardota-Barbosa del año mil novecientos treinta y uno.
+Santi lo escuchó.
 
-Carmen lo leyó.
+No era la primera vez que escuchaba el himno colombiano en un podio europeo — en Verona había sonado, en el Giro, en la ceremonia de la Maglia Rosa de Courmayeur. Pero en los podios del Giro el himno era el himno del líder de una clasificación. En el podio del Mundial, el himno del campeón era el himno de una nación — el himno de Colombia sonando en Harrogate, Yorkshire, frente a los miles de aficionados internacionales que en ese momento escuchaban esas notas por primera vez con este significado.
 
-*"Cuadrilla 7 — Tramo Girardota-Barbosa. Trabajadores: Aurelio Reyes, Luis Amador Giraldo, Honorio Pérez..."*
+*¡Oh gloria inmarcesible! ¡Oh júbilo inmortal!*
 
-El bisabuelo de Santi. El abuelo de Hernando. El hombre que había puesto los rieles del ferrocarril antioqueño en los años treinta y que había muerto antes de que ninguno de los que vivían en este apartamento hubiera nacido.
+La lluvia sobre el Promenade.
 
-Carmen miró a Hernando dormido.
+El jersey arcoíris sobre los hombros de Santi.
 
-Cerró el libro con cuidado — sin marcar la página, porque Hernando ya sabía exactamente en qué página estaba — y lo puso sobre la mesita.
+El teléfono que empezó a vibrar en el bolsillo del pantalón del equipo en el momento en que el himno terminó.
 
-Apagó la luz y se acostó.
+Santi lo sacó.
 
-En algún punto de la madrugada de Yorkshire, a ocho mil kilómetros de este apartamento, su hijo dormía con el jersey arcoíris del Campeonato del Mundo en la silla de su habitación de hotel.
+Un número de Medellín.
 
-Era suficiente.
+Respondió.
 
-Era exactamente suficiente.
+— Felicitaciones — dijo Hernando.
+
+La voz de Hernando. La voz de siempre — el tono neutro del hombre que no necesita los matices del tono para que las palabras tengan el peso que tienen.
+
+— Gracias — dijo Santi.
+
+Silencio.
+
+— El Jenkin Road estuvo bien — dijo Hernando.
+
+— El kilómetro exacto — dijo Santi.
+
+— Sí.
+
+Un silencio más largo.
+
+— ¿Cómo estás, papá?
+
+— Bien — dijo Hernando. Y luego, en el tono que usaba para las cosas que eran más de lo que parecían: — El ferrocarril antioqueño llegó a Barbosa en mil novecientos dieciocho. Cien años antes de que vos nacieras.
+
+Santi tardó un momento en entender la conexión.
+
+— ¿Y?
+
+— El abuelo construyó el tramo de Girardota a Barbosa en los años treinta — dijo Hernando. — Era obrero de la cuadrilla. No el director de obra. El que ponía los rieles.
+
+— ¿Lo dice el libro?
+
+— Lo dice el libro. Aparece en una lista de trabajadores de mil novecientos treinta y uno. — Pausa. — Aurelio Reyes.
+
+Aurelio Reyes. El bisabuelo de Santi — el obrero del ferrocarril antioqueño de los años treinta que había puesto los rieles del tramo de Girardota a Barbosa y que había muerto antes de que Hernando naciera y que en el libro del ferrocarril antioqueño aparecía en una lista de trabajadores.
+
+— Bien — dijo Santi.
+
+— Bien — dijo Hernando.
+
+Y colgaron.
 
 ---
 
-*30 de septiembre de 2019:*
+*Campeonato del Mundo de Ciclismo en Ruta, Yorkshire 2019.*
+*Prueba en línea masculina élite — 285,1 km.*
+*1º Santiago Reyes (Colombia) — 7h:14:23*
+*2º Wout van Aert (Bélgica) — +0:12*
+*3º Mathieu van der Poel (Países Bajos) — +0:16*
+*4º Alejandro Valverde (España) — +0:21*
+*5º Egan Bernal (Colombia) — +0:34*
 
-*Santiago Reyes Cardona — Campeón del Mundo de Ciclismo en Ruta.*
-*Maillot arcoíris UCI: Santiago Reyes, Colombia.*
-
-*El presidente de Colombia llamó al hotel de Harrogate a las seis de la mañana, hora de Bogotá.*
-*El alcalde de Medellín emitió un comunicado.*
-*El alcalde de San José de la Montaña declaró feriado municipal.*
-
-*Santi Reyes respondió a ninguno de los tres. Estaba durmiendo.*
+*Primera victoria colombiana en el Campeonato del Mundo de Ciclismo en Ruta.*
+*Santiago Reyes: 19 años, 7 meses, 15 días. El campeón del mundo más joven desde Eddy Merckx en 1967.*
 
 ---

@@ -222,7 +222,7 @@ Las rampas del veintidós por ciento obligan a los ciclistas a levantarse del si
 
 Santi estaba a tres ruedas de Yates cuando llegó a la primera rampa.
 
-Cambió la posición en el cuadro — manos al centro del manillar, cuerpo más erguido, el peso sobre los pedales — y empujó. El veintidós por ciento no se negocia. Se paga o no se paga, y el precio es inmediato e inequívoco: en las primeras diez pedaladas Santi supo exactamente cómo estaban las piernas. No eran las piernas del Etna — que habían llegado al volcán con algo de la frescura de los primeros días. Eran las piernas del día quince de una Grand Tour, piernas que habían acumulado ochenta y cinco mil metros de desnivel positivo en catorce jornadas y que a pesar de eso todavía respondían cuando el cerebro mandaba la señal.
+Cambió la posición en el cuadro — manos al centro del manillar, cuerpo más erguido, el peso sobre los pedales — y empujó. El veintidós por ciento no se negocia. Se paga o no se paga, y el precio es inmediato e inequívoco: en las primeras diez pedaladas Santi supo exactamente cómo estaban las piernas. No eran las piernas del Etna — que habían llegado al volcán con algo de la frescura de los primeros días. Eran las piernas del día quince de una Grand Tour, piernas que habían acumulado treinta y cuatro mil metros de desnivel positivo en catorce jornadas y que a pesar de eso todavía respondían cuando el cerebro mandaba la señal.
 
 Respondían.
 

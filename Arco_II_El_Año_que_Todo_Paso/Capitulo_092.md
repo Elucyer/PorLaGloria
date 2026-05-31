@@ -262,7 +262,9 @@ Había encajado en Santa Elena y el Boquerón y Las Palmas y los puertos de Anti
 
 Todo venía de aquí.
 
-El taxi bajó por la autopista y entró a la ciudad por el acceso del norte. Medellín de madrugada — las calles con el tráfico mínimo de las tres de la mañana de un martes, los buses del Metro que seguían corriendo aunque el Metro en superficie hubiera cerrado, los vendedores nocturnos en las esquinas del centro con los carritos de frutas y los termos de café. Medellín que nunca se duerme del todo, que tiene esa vitalidad específica de las ciudades colombianas que han aprendido a habitar también la noche.
+El taxi bajó por la autopista hacia el Valle de Aburrá y tomó La Regional hacia el norte — la autopista que en el fondo del valle corre paralela al río Medellín de sur a norte, la carretera que a las tres de la mañana de un martes tenía el tráfico mínimo de la ciudad que no duerme del todo pero que en la madrugada deja las vías a los buses y a los que tienen que llegar a algún lado. Medellín de madrugada — los vendedores nocturnos en las esquinas del centro con los carritos de frutas y los termos de café, el ruido del Metro que seguía corriendo en los tramos elevados.
+
+Desde La Regional, el taxi tomó hacia el occidente por La 80 — la avenida que cruza el costado noroccidental de la ciudad, la carretera que en el barrio de Robledo bordea las cuadras de casas populares y los locales comerciales cerrados a esta hora y que lleva directamente al Hospital Pablo Tobón Uribe.
 
 El Hospital Pablo Tobón Uribe.
 
