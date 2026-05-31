@@ -554,6 +554,156 @@ No porque llorara. Para tenerlos disponibles.
 
 ---
 
+Las marcas llegaron en julio con la misma oleada que las ofertas de los equipos — pero con otra lógica.
+
+Los equipos WorldTour querían al corredor. Las marcas querían la imagen del corredor — la diferencia entre contratar a alguien para que haga algo y contratar a alguien para que sea algo frente a una cámara o en el frente de un producto.
+
+Patiño empezó a recibir las llamadas la primera semana de julio. No era el trabajo para el que Patiño había sido recomendado — Ferretti lo había recomendado como abogado de contratos deportivos, no como agente de imagen — pero Patiño era pragmático: si el cliente necesitaba que alguien manejara las reuniones, él manejaba las reuniones.
+
+La primera fue con Bancolombia.
+
+No el banco como institución corporativa — el departamento de marketing de Bancolombia, que en los años donde el ciclismo colombiano había ganado reconocimiento internacional había aprendido que poner su logo en la camiseta de entrenamiento de un ciclista colombiano famoso era la publicidad que no se sentía como publicidad porque el deporte tenía la cualidad específica de producir afecto genuino, no el afecto construido de la campaña.
+
+La reunión fue en una sala del piso dieciséis de la Torre Bancolombia en El Poblado — la torre de vidrio que en el skyline de Medellín era el símbolo visible del dinero corporativo de la ciudad. Mesa larga, proyector, cuatro personas del departamento de marketing con sus portátiles y sus carpetas de presentación.
+
+Santi llegó con Patiño.
+
+— Santiago — empezó el director de marketing, un hombre de cuarenta y tantos con la camisa sin corbata del ejecutivo moderno — queremos contarte la visión que tenemos para esta alianza. Vos representás algo que Bancolombia también representa: Colombia que sale adelante, Colombia que llega a los primeros lugares del mundo.
+
+Santi escuchó la presentación.
+
+Doce minutos de slides con los valores del banco, los datos de audiencia de sus campañas, los números de las redes sociales de ciclistas latinoamericanos con los que habían trabajado antes.
+
+Al final: una propuesta de patrocinio de tres años, con cifras que Patiño anotó sin que su cara dijera nada.
+
+— ¿Qué implicaría en tiempo para mí? — dijo Santi.
+
+— Cuatro activaciones al año — dijo el director de marketing. — Dos campañas fotográficas. Presencia en el lanzamiento de productos específicos. Nada que interfiera con el calendario de carreras.
+
+Santi miró a Patiño.
+
+Patiño asintió levemente — el gesto de *los números sirven, podemos hablar*.
+
+— Lo revisamos — dijo Santi. — Esta semana les damos respuesta.
+
+---
+
+La segunda reunión fue diferente.
+
+No una sala corporativa — un almuerzo en el restaurante Mercado del Río, en el barrio El Chagualo, el tipo de restaurante de Medellín donde los empresarios jóvenes hacían sus reuniones informales porque el ambiente tenía la informalidad que una sala de juntas no podía fingir.
+
+Enfrente de Santi: Alejandro Vélez, el fundador de una marca colombiana de ropa deportiva llamada Alto Performance que en los últimos dos años había pasado de ser una empresa de Bogotá a tener distribución en doce países latinoamericanos. Cuarenta y dos años, ciclista aficionado él mismo — lo de aficionado era relativo: hacía el Clásico RCN con los corredores profesionales como corredor invitado y completaba en los tiempos del pelotón.
+
+— Quiero hacer algo diferente — dijo Vélez. — No el patrocinio donde ponés nuestro logo y listo. Quiero diseñar contigo la línea de ropa. Que vos digas qué funciona en la montaña, qué no funciona. Que la colección salga con tu nombre.
+
+Era la propuesta del empresario que había pensado en esto antes de llegar al almuerzo y que tenía claro que con Santiago Reyes la negociación no podía ser la negociación corporativa estándar.
+
+— ¿Cuánto tiempo requeriría de mi parte? — dijo Santi.
+
+— Un día al inicio, para el diseño. Luego revisiones por correo. Y el lanzamiento, que sería en Medellín.
+
+Vélez puso sobre la mesa una carpeta con los bocetos preliminares de la colección — el diseño que el equipo de Alto Performance había preparado anticipando que la reunión iría bien. Los colores de Colombia, el azul y el rojo y el amarillo sobre el negro del ciclismo de montaña.
+
+Santi los miró.
+
+No eran malos.
+
+— Lo pensamos — dijo Santi.
+
+---
+
+La tercera reunión no fue en Colombia.
+
+Fue un correo en el buzón de Patiño del departamento de asociaciones globales de una marca internacional de relojes suizos — el tipo de marca que en el ciclismo europeo ponía su logo en la muñeca de los ganadores del Tour y del Giro y que en la historia del ciclismo había estado asociada a los campeones que trascendían el deporte.
+
+El correo era directo y formal en el idioma del lujo discreto: interés en explorar una asociación de largo plazo con Santiago Reyes Cardona en el contexto de su trayectoria como uno de los deportistas más relevantes de su generación.
+
+Patiño reenviaba el correo a Santi con una sola línea: *Este es diferente.*
+
+---
+
+Había más — muchas más. Empresas de nutrición deportiva, una aerolínea colombiana, una marca de café del eje cafetero que tenía la lógica perfecta del corredor que venía de los municipios del café antioqueño, una empresa de equipamiento para ciclismo de aventura, dos o tres más que Patiño fue filtrando con el criterio del abogado que entiende que no todo lo que llega vale la pena y que el tiempo del cliente tiene precio.
+
+Al final del verano, las marcas que seguían en conversación eran seis.
+
+Bancolombia. Alto Performance. La suiza de los relojes. La aerolínea. El café del eje. Y una más que Patiño todavía estaba evaluando.
+
+Santi no había firmado nada.
+
+No porque no quisiera. Porque necesitaba tiempo. Y porque cada reunión nueva que llegaba le dejaba más clara la misma cosa: que manejar todo esto solo, mientras entrenaba y corría y visitaba a su padre en el Pablo Tobón y pensaba en el Tour del año siguiente, era exactamente el tipo de trabajo para el que necesitaba a alguien que no fuera él.
+
+---
+
+La conversación con Ospina y Hernando fue la semana después del evento de las bicicletas.
+
+No fue una reunión planificada — fue un sábado de tarde en el que Ospina pasó por la casa nueva de Laureles porque Santi lo había invitado a ver el partido de la Liga y porque en Colombia el fútbol es la excusa que permite que las conversaciones importantes sucedan sin que tengan que anunciarse como importantes.
+
+Hernando estaba en el patio con el café.
+
+Ospina saludó a Hernando con el respeto específico del entrenador que conoce al padre del corredor desde antes de que el corredor fuera el corredor — con la economía de los que llevan veinte años en el mismo mundo y que no necesitan ponerse al día porque nunca se desconectaron.
+
+— Don Hernando.
+
+— Ospina.
+
+Y eso fue suficiente.
+
+Carmen trajo el café para los tres. El partido empezó. Nacional perdió en el primer tiempo. Hernando dijo que el técnico no entendía el sistema de cuatro cuatro dos. Ospina dijo que el problema era el mediocampista derecho. Santi no dijo nada sobre el partido porque a Santi nunca le había importado demasiado el fútbol.
+
+En el descanso del partido, Santi dijo:
+
+— Necesito un representante.
+
+Ospina y Hernando lo miraron.
+
+— Patiño es bueno — continuó Santi — pero no es lo que necesito. Patiño es abogado de contratos. Lo que viene ahora — los patrocinios, la imagen, las decisiones de largo plazo sobre la carrera — necesita a alguien que entienda el ciclismo desde adentro. No solo la parte legal.
+
+— ¿Alguien del pelotón? — dijo Ospina.
+
+— Alguien que haya estado en el pelotón y que sepa cómo funciona el negocio. — Pausa. — O alguien que sea de aquí y haya construido algo desde aquí.
+
+Hernando bebió el café.
+
+— ¿Qué es lo que más te preocupa? — dijo Hernando.
+
+Era la pregunta de Hernando — no *¿qué querés hacer?* sino *¿qué te preocupa?* porque para Hernando el problema real siempre estaba en lo que el otro no había dicho.
+
+Santi lo pensó.
+
+— Que alguien me firme algo que en cinco años resulta ser un error — dijo. — En las marcas, en los contratos de equipo, en lo que venga. No tengo tiempo de revisar todo. Y Patiño revisa los términos legales pero no tiene el ojo del deporte.
+
+— No confiás en Patiño — dijo Hernando.
+
+— Sí confío en Patiño. Pero Patiño no sabe qué es perder tres etapas del Tour por una campaña de imagen mal programada. Yo necesito a alguien que sí lo sepa.
+
+Hernando asintió.
+
+Era la respuesta correcta — el análisis con la precisión del corredor que sabe exactamente cuál es el problema real.
+
+Ospina puso el vaso de café sobre la mesa del patio.
+
+— Hay un exciclista — dijo Ospina. — Andrés Duarte. Corrió diez años en Europa, dos en el WorldTour. Se retiró en el quince. Ahora tiene una empresa de representación de deportistas en Bogotá. Lo conozco de las carreras de los años noventa.
+
+— ¿Es bueno? — dijo Santi.
+
+— Es honesto — dijo Ospina. Era la respuesta de Ospina — no *es bueno* sino *es honesto*, porque en el universo de Ospina la honestidad era la característica más difícil de encontrar y la que más valía.
+
+Santi lo miró.
+
+— Consígame el contacto.
+
+— Esta semana.
+
+Hernando no dijo nada más. Volvió a mirar el partido — Nacional estaba empatando en el segundo tiempo — con la expresión del hombre que ha escuchado la conversación necesaria y que ha comprobado que el hijo toma las decisiones correctas.
+
+El partido terminó dos a dos.
+
+Un resultado que a Hernando no le satisfizo y que al técnico, en su análisis posterior, le costó el trabajo.
+
+Pero eso era otra historia.
+
+---
+
 *Junio–agosto de 2019:*
 
 *Santiago Reyes Cardona — Campeón del Giro di Italia 2019.*
