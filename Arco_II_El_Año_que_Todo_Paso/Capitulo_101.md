@@ -64,11 +64,11 @@ Era el holandés en su elemento — el corredor de ciclocross y de montaña que 
 
 Quince metros de ventaja al pie del descenso.
 
-Colombia persiguió. Bernal cerró los quince metros en el siguiente tramo llano del circuito — un kilómetro plano que en el circuito servía de enlace y que Bernal hizo al sprint durante cuarenta segundos para neutralizar el ataque de Van der Poel.
+Bernal fue solo — no porque Peña lo ordenara sino porque Bernal leyó el momento y decidió que Van der Poel suelto era una amenaza real. Cerró los quince metros en el siguiente tramo llano del circuito al sprint durante cuarenta segundos. No fue trabajo de equipo — fue la decisión del corredor que también va a ganar y que sabe que dejar escapar a Van der Poel en la cuarta vuelta es dejarle construir una ventaja que en la octava nadie cierra.
 
-— Bernal: bien hecho — dijo Peña.
+Bernal regresó al grupo con la respiración del esfuerzo máximo sostenido.
 
-Pero Bernal había gastado algo. Y algo en el kilómetro ciento treinta del circuito era algo que Bernal no iba a tener en el kilómetro ciento treinta y seis.
+Había gastado algo. Y algo en el kilómetro ciento treinta del circuito era algo que en el kilómetro ciento treinta y seis podía ser la diferencia entre estar en la pelea y no estar.
 
 ---
 
@@ -132,15 +132,15 @@ La séptima vuelta.
 
 Bernal atacó en el Harlow Hill — antes de que Alaphilippe pudiera hacerlo.
 
-Era la instrucción de Peña y era también la lectura de Bernal: el francés iba a atacar aquí, y si Bernal atacaba primero, Alaphilippe tendría que responder en lugar de atacar. El primer corredor que ataca dicta la condición; el que responde gasta.
+No era sacrificio. Era la apuesta del corredor que después de seis vueltas todavía cree que puede ganar y que entiende que la única manera de ganar es partir el grupo ahora, antes del Jenkin Road, para llegar a la subida decisiva con Van Aert y Van der Poel ya gastados. Si el grupo no lo cerraba, Bernal llegaba a la cima del Jenkin Road con ventaja y el Mundial era suyo. Si lo cerraban, los cerraba a ellos también.
 
 Bernal abrió veinte metros en la Harlow Hill.
 
 Alaphilippe fue de inmediato. Van Aert fue. Van der Poel fue.
 
-Santi fue último — esperó dos segundos y luego la progresión, los tres vatios adicionales que eran ya la firma del corredor en el límite que todavía tiene algo.
+Santi fue — no esperó, porque dejar a Bernal solo era dejar ir al campeón del Tour con opciones reales de ganar, y el plan era que si uno de los dos salía, el otro seguía.
 
-El grupo reabsorbió a Bernal en la base del Jenkin Road.
+El grupo reabsorbió a Bernal en la base del Jenkin Road — todos habían gastado para cerrar, y eso era exactamente lo que Bernal necesitaba que pasara.
 
 Pero la séptima subida del Jenkin Road fue la más rápida hasta entonces — el grupo de nueve corredores que habían sobrevivido al Harlow Hill subiendo al cuatro minutos veinte, cuatro minutos veinticinco, el ritmo que eliminó a Bardet y a Mas y a Matthews.
 
@@ -202,13 +202,11 @@ Bernal detrás de él.
 
 Peña, por el pinganillo:
 
-— Octava vuelta. Harlow Hill en dos kilómetros. Luego el Jenkin Road final. Santi: en el Jenkin Road, al kilómetro. Es el momento.
+— Octava vuelta. Harlow Hill en dos kilómetros. Luego el Jenkin Road final. Santi: al kilómetro de la subida — no progresión, no vatios extra. Te parás en los pedales y te vas. Uno solo. El que pueda que te siga.
 
 Al kilómetro del Jenkin Road final.
 
-Ochocientos metros para la cima. Cuatrocientos metros para el descenso.
-
-Si atacaba al kilómetro y mantenía la ventaja hasta la cima, el descenso posterior — en húmedo, al catorce — iba a ser el momento donde los que hubieran cedido en la subida intentarían cerrar. Pero en la cima del Jenkin Road con una ventaja de veinte metros, el descenso de ochocientos metros no alcanzaba para que nadie lo cerrara.
+Ochocientos metros para la cima.
 
 — Lo sé — dijo Santi.
 
@@ -218,15 +216,19 @@ Y el Harlow Hill apareció.
 
 En el Harlow Hill de la octava vuelta, Bernal atacó.
 
-Era el último trabajo del colombiano de veintidós años — el último ataque del gregario que en este día era más que un gregario, el trabajo que Peña había pedido y que Bernal hacía con lo que le quedaba después de siete vueltas de carrera y una escapada en el Harlow Hill anterior.
+Era la última apuesta del colombiano de veintidós años — no el gregario que sacrifica, sino el co-líder que después de siete vueltas y un Harlow Hill anterior y cuatro horas de pelea todavía tenía la convicción de que podía ganar el Campeonato del Mundo. Bernal iba a ganar o iba a reventar en el intento, y en el Harlow Hill de la octava vuelta eligió el intento.
 
 Veinte metros.
 
 Van Aert fue de inmediato. Van der Poel fue. Valverde fue.
 
-Bernal no podía sostenerlo. En treinta segundos, el grupo lo reabsorbió.
+Santi los siguió — y en el momento en que Santi aceleró para seguir el grupo, vio a Bernal. La cara de Bernal. La cara del corredor que ha encontrado el fondo y que en ese fondo ya no hay más — el corredor que en veintidós años y un Tour de Francia ganado sabía exactamente cuándo el cuerpo no tenía lo que necesitaba.
 
-Pero el Harlow Hill los había gastado. Los tres kilómetros del Harlow Hill en la octava vuelta a este ritmo habían costado — en Van Aert, en Van der Poel, en Valverde — algo que no iban a recuperar en el Jenkin Road.
+Bernal cedió.
+
+El grupo pasó sobre él como pasa el agua sobre la piedra.
+
+Pero el Harlow Hill los había costado. Los tres kilómetros al límite habían sacado de Van Aert, de Van der Poel, de Valverde, algo que no iban a recuperar en el Jenkin Road. Bernal lo sabía desde que atacó. Era el precio que había cobrado.
 
 La base del Jenkin Road.
 
@@ -248,45 +250,47 @@ Ochocientos metros para la cima.
 
 ---
 
-Santi atacó.
+Santi se paró en los pedales.
 
-No fue el ataque del sprint — fue la progresión. Cuatro vatios sobre el ritmo. Ocho. El cuerpo encontrando lo que tenía disponible después de seis horas y cuarenta minutos de carrera, después del Giro de Italia y el verano de Laureles y el cuarto ciclo de quimioterapia de Hernando y la prueba de VO2 máximo de la semana anterior y el reconocimiento del martes y las siete vueltas anteriores.
+No fue una progresión ni una aceleración calculada — fue el gesto del corredor que abandona el sillín y pone todo el peso del cuerpo sobre los pedales en el kilómetro exacto que habían acordado, el gesto que en la montaña significa una sola cosa: me voy ahora y el que pueda que venga.
 
-En diez segundos: tres metros sobre Van Aert.
+El cambio fue inmediato y violento. La bicicleta saltó hacia adelante como si el asfalto hubiera desaparecido. Cinco metros en tres segundos. Diez.
 
-Van Aert respondió.
+Van Aert respondió — el belga tenía los reflejos del corredor clásico, reaccionó antes de que el cerebro terminara de procesar lo que había visto.
 
-El belga subió el ritmo — el corredor completo que en la subida tenía más que cualquier sprinter puro. Cuatro vatios, cinco. La brecha se estabilizó en tres metros.
+Pero Santi no esperó a que Van Aert respondiera. Ya estaba a quince metros cuando Van Aert empezó a subir el ritmo.
 
-Santi fue.
-
-Cinco vatios más. Siete. El noventa y cuatro de VO2 máximo no era un número que pudiera sentirse pero era lo que el cuerpo tenía disponible cuando el cuerpo tenía que dar lo que ningún otro cuerpo en la carretera podía dar.
-
-Cinco metros. Siete.
+Santi seguía de pie sobre los pedales — los primeros cien metros del ataque con el cuerpo balanceándose sobre la bicicleta, la técnica de los puertos cortos donde el escalador hace del propio peso un aliado, la fuerza saliendo de las caderas y bajando por los muslos con una potencia que el cicloergómetro de Vargas había registrado en cuatrocientos sesenta vatios y que en el Jenkin Road final del Campeonato del Mundo era un número sin nombre porque el número no importaba, importaba lo que hacía.
 
 Van Aert cedió.
 
-No de golpe — con la matemática del corredor que en el kilómetro setecientos de los ochocientos metros del Jenkin Road final había llegado a lo que tenía y que en ese momento el número de lo que tenía era cero.
+No gradualmente. En el momento en que la brecha pasó de quince metros a veinte y Van Aert entendió que el colombiano no iba a bajar el ritmo, el cuerpo del belga procesó la información y respondió con lo único que podía responder: con honestidad. Ya no tenía lo que necesitaba para cerrar eso.
 
-Siete metros. Diez. Doce.
+Veinte metros. Treinta.
 
-Santi solo en el Jenkin Road de Yorkshire.
+Santi volvió al sillín — pero no para administrar. Para seguir. Los últimos ochocientos metros del Jenkin Road los subió al mismo ritmo del ataque, el ritmo del cuerpo que tiene noventa y cuatro de VO2 máximo y que en el kilómetro final del Campeonato del Mundo todavía no ha llegado al fondo real.
 
-Quinientos metros para la cima.
+Cuarenta metros. Cincuenta. Sesenta.
+
+Van Aert dejó de intentar cerrar. Valverde y Van der Poel ni siquiera estaban en el cuadro de la cámara.
+
+Solo en el Jenkin Road de Yorkshire.
+
+Con la cima a doscientos metros y el pelotón a más de cien metros atrás.
 
 ---
 
 *En Laureles, a las siete y doce de la tarde:*
 
-*— ¡Santi Reyes ataca! ¡El colombiano va! ¡Señoras y señores — Van Aert cede — Van Aert no puede — Santi Reyes está solo en el Jenkin Road de Yorkshire! ¡Solo a quinientos metros de la cima del último puerto del Campeonato del Mundo de Ciclismo en Ruta!*
+*— ¡Santi Reyes ataca! ¡El colombiano SE PARA EN LOS PEDALES y va — señoras y señores Van Aert intenta responder y NO PUEDE — Reyes se va — se va — REYES SE VA SOLO EN EL JENKIN ROAD!*
 
 Hernando no se movió del sofá.
 
-*— ¡Trescientos metros! ¡Doscientos! ¡Van Aert a diez metros — intenta — no puede! ¡El colombiano de diecinueve años que ganó el Giro de Italia en mayo está a punto de llegar solo a la cima del Jenkin Road!*
+*— ¡Treinta metros! ¡Cuarenta! ¡Van Aert ha dejado de intentar cerrar — el belga más completo del mundo ha dejado de intentar cerrar a un corredor de diecinueve años en la última subida del Campeonato del Mundo! ¡Cincuenta metros de diferencia! ¡Sesenta! ¡Santi Reyes está destruyendo el Jenkin Road, señoras y señores — esto no es una carrera, esto es una demostración!*
 
 Carmen de pie. Sin saber cuándo se había levantado.
 
-*— ¡LA CIMA! ¡SANTI REYES LLEGA SOLO A LA CIMA DEL JENKIN ROAD! ¡SEÑORAS Y SEÑORES — COLOMBIA VA AL DESCENSO SOLA! ¡QUEDA EL DESCENSO — QUEDA EL DESCENSO Y LA LLEGADA EN HARROGATE!*
+*— ¡LA CIMA! ¡SANTI REYES LLEGA A LA CIMA CON MÁS DE CIEN METROS SOBRE VAN AERT! ¡SEÑORAS Y SEÑORES — ESTO ESTÁ HECHO — COLOMBIA VA AL DESCENSO CON LA CARRERA GANADA!*
 
 Hernando miraba la pantalla con la expresión de siempre.
 

@@ -6,77 +6,107 @@
 
 El descenso del Jenkin Road.
 
-Ochocientos metros al catorce por ciento en el asfalto mojado de Yorkshire, con diez metros de ventaja sobre Van Aert y el conocimiento de que el descenso iba a determinar si los diez metros se convertían en treinta o si los diez metros desaparecían.
+Santi bajó solo.
 
-Santi bajó.
+No con la urgencia del corredor que tiene diez metros de ventaja y necesita cada segundo — sino con la precisión del corredor que tiene más de cien metros sobre el siguiente y que en el descenso del Jenkin Road puede escoger la línea correcta, respetar la junta de dilatación donde Alaphilippe había caído, salir de cada curva sin forzar. No al límite — al noventa. No porque tuviera miedo sino porque no hacía falta más.
 
-Lo había estudiado el martes — la línea correcta de cada curva, el punto donde el asfalto tenía la junta de dilatación donde Alaphilippe había caído, la curva penúltima donde la inclinación era más baja y donde se podía acelerar. No bajó al límite — bajó al noventa y dos, el porcentaje del descenso donde el riesgo era manejable y donde el tiempo ganado era suficiente.
+La ventaja en la cima era suficiente. La carrera estaba ganada en el Jenkin Road.
 
-Van Aert bajó al cien.
-
-El belga tenía treinta metros de desventaja en la cima y los cerró a doce en el pie del descenso. Doce metros al pie del descenso, con ochocientos metros de llegada en Harrogate.
-
-Santi los conocía.
-
-Los ochocientos metros de llegada en Harrogate — la calle de la meta, el Promenade de las termas victorianas, la calle recta y ligeramente descendente donde los sprinters de las carreras de un día vivían y donde los corredores que llegaban solos morían si la ventaja no era suficiente.
-
-Doce metros.
-
-¿Era suficiente?
-
-Ferretti, en el pinganillo. La voz de Ferretti — no por el canal del equipo nacional sino por el teléfono que Ferretti había conectado con Peña para seguir la carrera:
-
-— Santi: no mirés atrás. Seguí pedaleando.
-
-No mirar atrás.
-
-Era lo que Hernando le había enseñado en el primer puerto de San José de la Montaña — no mirar atrás porque mirar atrás cuesta tiempo y el tiempo no se recupera.
-
-Santi no miró atrás.
+Lo que quedaba era llegar.
 
 ---
 
-Los ochocientos metros de la calle de llegada de Harrogate.
+Los ochocientos metros del Promenade de Harrogate.
 
-La multitud a los lados — los miles de aficionados que en el Promenade de Harrogate habían esperado durante horas bajo la lluvia con sus impermeable y sus banderas y que ahora veían al corredor colombiano venir solo desde el descenso del Jenkin Road, el corredor de diecinueve años que en el año que llevaba la Maglia Rosa del Giro venía a buscar el jersey arcoíris del Campeonato del Mundo.
+La multitud a los lados — miles de aficionados que habían esperado bajo la lluvia durante horas y que ahora veían algo que ninguno de ellos había anticipado del todo: no un sprint cerrado, no una llegada con dos corredores disputándose la línea en los últimos metros. Veían a un corredor de diecinueve años rodar solo por el Promenade de las termas victorianas de Harrogate con la calma del que sabe que nadie viene.
 
-Los ochocientos metros de la calle recta.
+Santi pedaleó.
 
-El asfalto negro y mojado. Las vallas a los lados. El arco de llegada al fondo.
+Sin apuro. Con el ritmo del cuerpo que después de siete horas de carrera todavía tiene lo que necesita porque lo que gastó en el Jenkin Road fue lo que decidió gastar y no más.
 
-Santi no miró atrás.
+Seiscientos metros.
 
-Pedaleó.
+Ferretti, en el pinganillo — la voz de Ferretti desde Italia, la voz del director deportivo que había seguido la carrera en la pantalla del ordenador y que en este momento miraba los números del power meter que llegaban en tiempo real al análisis del equipo:
 
-La cadencia del sprint en los últimos cuatrocientos metros — no el sprint del corredor que tiene el sprint puro del velocista sino el sprint del escalador que en la calle de llegada da lo que el Jenkin Road le ha dejado disponible. Noventa y dos revoluciones por minuto. Noventa y cuatro.
+— Santi. Llegás solo. Van Aert está a veinte segundos.
+
+Veinte segundos. En ochocientos metros de llegada, veinte segundos era un continente.
+
+— Lo sé — dijo Santi.
+
+Y siguió pedaleando. Sin cambiar el ritmo. Sin levantarse del sillín. Sin el gesto del sprint final porque el sprint final no hacía falta.
 
 Trescientos metros.
 
-En algún punto — en algún punto de los trescientos metros que quedaban — Santi supo que nadie lo iba a alcanzar. No fue un pensamiento consciente. Fue algo que el cuerpo calculó sin que el cerebro necesitara intervenir: la velocidad que llevaba, la distancia que faltaba, la física de lo que estaba pasando.
-
-Doscientos metros.
-
-La multitud de los lados se convirtió en el ruido que no es ruido — el ruido que el corredor escucha sin que entre en el canal de la consciencia, el ruido del fondo sobre el que ocurre lo que tiene que ocurrir.
+La multitud del Promenade estaba de pie — los paraguas cerrados, las banderas quietas, los aficionados mirando al corredor colombiano que venía por la calle recta con el jersey del FCV-Procycling mojado por la lluvia y los ojos al frente y la cadencia del corredor que termina una carrera que ya ganó.
 
 Cien metros.
 
-El arco de llegada.
+Ferretti cerró el portátil.
+
+No para no ver — para levantarse. Para estar de pie cuando Santi cruzara la línea.
 
 Cincuenta metros.
 
-Santi levantó los brazos.
+Santi abrió los brazos.
 
-No los abrió completamente — los levantó a media altura, el gesto contenido del corredor que en la victoria no necesita el gesto grande porque el gesto grande ya está en la carretera y en el Jenkin Road y en los doscientos ochenta y cinco kilómetros del Yorkshire y en el Giro de Italia de mayo y en el Stelvio y en Courmayeur y en la rampa de San Marino del diecinueve de mayo de dos años de carrera.
+No a media altura — los abrió completamente, los dos brazos hacia el cielo gris del Yorkshire, el gesto grande del corredor que en la victoria no necesita contenerse porque esto no era el Giro donde había llegado por segundos ni era el Stelvio donde había calculado cada vatio. Esto era el Campeonato del Mundo ganado con cien metros de ventaja en el último puerto, ganado de una manera que en el ciclismo se llama de una sola forma: aplastando.
 
 Santiago Reyes cruzó la línea de llegada del Campeonato del Mundo de Ciclismo en Ruta de Yorkshire 2019.
 
 Primero.
 
+Solo.
+
+Con veintidós segundos de ventaja sobre el segundo.
+
 ---
 
-Van Aert llegó doce segundos después.
+Van Aert llegó segundo.
 
-Van der Poel a dieciséis. Valverde a veintiuno. Bernal a treinta y cuatro, el quinto lugar del mejor resultado de un equipo colombiano en la historia de los Mundiales de ruta.
+La cara de Van Aert al cruzar la línea era la cara del corredor que ha dado todo lo que tenía y que en ese todo no había sido suficiente — no porque él hubiera fallado sino porque el corredor que lo había precedido era algo que Van Aert, en diez años de pelotón profesional, no había visto así.
+
+Van der Poel a veintiséis segundos. Valverde a treinta y uno. Bernal a cuarenta y tres — el quinto lugar del mejor resultado de un equipo colombiano en la historia de los Mundiales de ruta, el resultado del corredor que había quemado sus últimas reservas en el Harlow Hill de la octava vuelta y que había pagado ese precio con los segundos finales.
+
+---
+
+Ferretti estaba en su apartamento de Turín.
+
+Solo — la pantalla del ordenador con los datos de la carrera, el power meter de Santi, el análisis en tiempo real que Rusconi mandaba desde el servidor del equipo. Cuando Santi cruzó la línea, Ferretti no habló. Miró los números.
+
+El power meter registraba el ataque del kilómetro del Jenkin Road: cuatrocientos setenta y dos vatios sostenidos durante ochocientos metros. Cuatrocientos setenta y dos vatios al catorce por ciento, después de seis horas y cuarenta minutos de carrera.
+
+Ferretti conocía esos números. Sabía lo que significaban. En treinta años de dirección deportiva había trabajado con corredores buenos, con corredores excepcionales, con uno o dos que habían ganado grandes vueltas y que en el retiro seguían siendo los puntos de referencia con los que medía todo lo que venía después.
+
+Ninguno había hecho esto.
+
+Ninguno había subido el kilómetro decisivo del Campeonato del Mundo a cuatrocientos setenta y dos vatios después de seis horas cuarenta de carrera y llegado a la cima con más de cien metros de ventaja sobre el segundo mejor corredor del mundo.
+
+Ferretti llamó a Rusconi.
+
+El analista contestó al segundo timbre — estaba despierto, evidentemente también mirando los datos.
+
+— ¿Viste el power del Jenkin Road? — dijo Ferretti.
+
+— Sí — dijo Rusconi.
+
+— ¿Cuántos corredores en la historia han subido un puerto decisivo a ese vataje con ese tiempo de carrera encima?
+
+Silencio de Rusconi. El silencio del analista que sabe la respuesta pero que necesita un momento para decirla porque la respuesta tiene peso.
+
+— Ninguno que yo haya podido verificar — dijo Rusconi. — Con esas condiciones exactas — tiempo de carrera, gradiente, vatios sostenidos — no hay precedente documentado.
+
+Ferretti miró la pantalla.
+
+— Tiene diecinueve años — dijo.
+
+— Sí.
+
+— Rusconi — dijo Ferretti, con el tono que usaba cuando decía algo que no quería que se malinterpretara. — Llevamos tres años construyendo algo. Hoy empecé a entender qué es lo que estamos construyendo.
+
+Rusconi no respondió.
+
+No hacía falta.
 
 Santi hizo el giro de desaceleración — la vuelta que el corredor da después de cruzar la meta para frenar la velocidad del sprint sin detener la bicicleta de golpe. El giro de la llegada de la carrera más larga del año.
 
@@ -217,10 +247,10 @@ Y colgaron.
 *Campeonato del Mundo de Ciclismo en Ruta, Yorkshire 2019.*
 *Prueba en línea masculina élite — 285,1 km.*
 *1º Santiago Reyes (Colombia) — 7h:14:23*
-*2º Wout van Aert (Bélgica) — +0:12*
-*3º Mathieu van der Poel (Países Bajos) — +0:16*
-*4º Alejandro Valverde (España) — +0:21*
-*5º Egan Bernal (Colombia) — +0:34*
+*2º Wout van Aert (Bélgica) — +0:22*
+*3º Mathieu van der Poel (Países Bajos) — +0:26*
+*4º Alejandro Valverde (España) — +0:31*
+*5º Egan Bernal (Colombia) — +0:43*
 
 *Primera victoria colombiana en el Campeonato del Mundo de Ciclismo en Ruta.*
 *Santiago Reyes: 19 años, 7 meses, 15 días. El campeón del mundo más joven desde Eddy Merckx en 1967.*
