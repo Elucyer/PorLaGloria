@@ -174,7 +174,7 @@ La brecha con Nibali: cinco metros. Siete. El siciliano subía sin mirar atrás 
 
 Santi fue.
 
-Cinco vatios sobre el ritmo que llevaba. Siete. El cuerpo respondió — el noventa y cuatro de la mañana del inventario respondió en el kilómetro ocho del Monte Avena de la manera en que el cuerpo que ha sido entrenado para responder responde: no con el entusiasmo del fresco sino con la eficiencia del que sabe exactamente qué tiene disponible y lo usa.
+El cuerpo no tenía entusiasmo — tenía eficiencia. Era la diferencia del kilómetro ocho del Monte Avena en el día veintiuno del Giro: el corredor fresco ataca con hambre, el corredor que lleva tres semanas de carrera encima ataca con exactitud. Santi sabía lo que tenía disponible y lo puso todo en la rueda de Nibali sin desperdiciar nada en el gesto.
 
 La brecha no creció más.
 

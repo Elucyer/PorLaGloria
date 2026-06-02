@@ -177,6 +177,73 @@ Usar este documento como fuente única para características físicas, estilo de
 
 ---
 
+---
+
+## CORREDORES ARCO III (2020–2022)
+
+### Tao Geoghegan Hart
+- **Real**: Thomas George "Tao" Geoghegan Hart, nacido 30/08/1995, Londres
+- **Equipo**: Ineos Grenadiers (2016–)
+- **Tipo**: Escalador completo. Fuerte en contrarreloj para ser escalador. Corredor de gran vuelta que emerge en 2020.
+- **Resultado real 2020**: Ganó el Giro de Italia 2020 (en la ficción: pierde ante Santi, termina 2.º).
+- **Carácter en la novela**: Profesional discreto. No habla mucho. El corredor que en el podio de Milán 2020 estrecha la mano de Santi con el respeto del rival que dio todo.
+- **Rol narrativo**: Antagonista principal del Giro 2020. Después de perder ante Santi, no reaparece como rival central.
+
+### João Almeida
+- **Real**: João Pedro Gonçalves Almeida, nacido 05/08/1998, Portugal
+- **Equipo**: Deceuninck-QuickStep / UAE Team Emirates (2020–)
+- **Tipo**: Escalador-rodador completo. Especialista en resistencia en alta montaña y contrarreloj sólida para escalador.
+- **Resultado real 2020 Giro**: Llevó la maglia rosa 15 etapas, terminó 4.º general. En la ficción: cede la rosa a Santi en la etapa 15 (Piancavallo) y termina 4.º.
+- **Carácter**: Silencioso, económico. El corredor que Santi reconoce en el Giro 2020 como alguien que habla el mismo idioma de la montaña.
+- **Edad en el Giro 2020**: 22 años (mismo rango generacional que Santi).
+- **Rol narrativo**: Rival del Giro 2020. Puede reaparecer en Arcos posteriores como rival de Grand Tour.
+
+### Jai Hindley
+- **Real**: Jai Alan Hindley, nacido 05/05/1996, Perth (Australia)
+- **Equipo**: Team Sunweb / Bora-Hansgrohe (2020–)
+- **Tipo**: Escalador puro. Motor de fondo excepcional. Ligero (60 kg), eficiente. Débil en contrarreloj larga.
+- **Resultado real 2020 Giro**: 2.º general (perdió la maglia rosa en la última CRI ante Geoghegan Hart por 39 segundos). En la ficción: pierde ante Santi por 28 segundos en la CRI final de Milán.
+- **Carácter**: Tranquilo, sin ego visible. El tipo de corredor que hace su carrera sin declaraciones.
+- **Rol narrativo**: El rival más cercano de Santi en el Giro 2020. La última CRI entre los dos es el momento de tensión máxima del bloque Giro 2020.
+
+### Wout van Aert
+- **Real**: Wout van Aert, nacido 15/09/1994, Herentals (Bélgica)
+- **Equipo**: Jumbo-Visma / Visma–Lease a Bike (2019–)
+- **Tipo**: Corredor completo excepcional. Sprinter, rodador, escalador, cronista. El corredor más versátil de su generación.
+- **Resultados clave**: Strade Bianche 2020 (ganador real). Múltiples victorias en clásicas. Campeón belga, etapas de Grand Tour.
+- **Relación con Santi**: Ya establecida desde Yorkshire 2019 (Mundial). Los dos se respetan mutuamente. En el pelotón del Tour 2022 son rivales pero con el código de conducta de quienes ya se midieron.
+- **Carácter**: Competitivo sin crueldad. El corredor que en Yorkshire preguntó por el descenso y aceptó la respuesta. Eso define su relación con Santi.
+- **Rol en Arco III**: Rival en Strade Bianche, Lieja y etapas del Tour. No es el antagonista central — es el corredor que siempre está ahí.
+
+### Mathieu van der Poel
+- **Real**: Mathieu van der Poel, nacido 19/01/1995, Kapelmuur (Bélgica)
+- **Equipo**: Alpecin-Fenix / Alpecin-Deceuninck (2021–)
+- **Tipo**: Corredor completo de otro tipo — especialista en terreno técnico, descensos, pavé, y subidas cortas explosivas. Nieto de Raymond Poulidor.
+- **Resultados clave**: Tour de Flandes múltiples años, Paris-Roubaix, Strade Bianche top 5, Lieja top 5. Gana donde la técnica suma tanto como la potencia.
+- **Relación con Santi**: Rival en Yorkshire 2019 (4.º en el Mundial). En el Arco III aparece en clásicas y en algunas etapas de Grand Tour donde el terreno le favorece.
+- **Carácter**: Audaz, sin cálculo excesivo. El corredor que en Yorkshire bajó al cien por ciento en húmedo. Eso define su estilo.
+- **Rol en Arco III**: Rival circunstancial en clásicas. No es el antagonista de Grand Tour — es el corredor que en un día técnico puede ganar a cualquiera.
+
+### Luca Arnheim *(FICTICIO)*
+- **Nacimiento**: ~1994, Stuttgart (Alemania)
+- **Equipo**: FCV-Procycling WorldTour (desde 2020)
+- **Tipo**: Escalador-rodador. Motor de fondo excepcional, no explosivo. El gregario perfecto: puede tirar durante 20 km en un puerto largo sin que parezca costarle.
+- **Estatura**: 1,76 m / 64 kg
+- **Carácter**: Silencioso hasta lo monástico. Habla en alemán con el mecánico y en inglés con Santi — nunca en español aunque lleva años en equipos con corredores colombianos. No necesita conversación para comunicarse: en la bicicleta dice lo que tiene que decir.
+- **Historia**: Corrió cuatro años en equipos continentales alemanes sin llegar al WorldTour. Ferretti lo ficha en 2020 específicamente para ser el primer lanzador de Santi en los puertos largos. Nadie lo ficha para ganar. Él lo sabe y no le importa.
+- **Relación con Santi**: Sin palabras. Arnheim tira, Santi ataca. La economía perfecta. Primer reaparece en el cap. 107. Su momento cumbre está en el Arco V (Alpe d'Huez, Tour 2028 — se deja caer exhausto en el arcén mientras Santi ataca).
+- **Rol narrativo**: El gregario que hace posible las victorias sin aparecer en el podio. La imagen más poderosa del Arco V.
+
+### Enric Mas
+- **Real**: Enric Mas Nicolau, nacido 07/01/1995, Mallorca (España)
+- **Equipo**: Movistar Team (2019–)
+- **Tipo**: Escalador puro. Ligero, económico. Especialista en Grand Tours de tres semanas. Buena resistencia a la fatiga acumulada.
+- **Resultados clave**: Vuelta a España top 3 múltiples años. Tour de France top 5.
+- **Rol en Arco III**: Rival recurrente de Santi en la Vuelta 2021. Cede definitivamente en Sierra Nevada. Aparece en el podio de Vuelta como 3.º.
+- **Carácter**: Corredor serio, poco mediático. El tipo de rival que no hace declaraciones previas sino que responde en la montaña.
+
+---
+
 ## REGLAS DE USO DE ESTE DOCUMENTO
 
 1. **Antes de escribir cualquier capítulo** que involucre a un corredor conocido: verificar aquí sus características, equipo, edad y resultado real.

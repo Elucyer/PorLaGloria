@@ -35,7 +35,7 @@ Este repositorio no contiene código — es una novela en proceso de escritura. 
 |------|---------|-----------|--------|
 | I — El Hijo del Frío | 2000–2018 | 1–39 | Completo (pendientes correcciones menores) |
 | II — El Año que Todo Pasó | 2018–2019 | 40–104 | En curso (caps. 40–104 escritos en `Arco_II_El_Año_que_Todo_Paso/`, falta cap. 045) |
-| III — Aprender a Matar | 2020–2022 | 84–136 | No iniciado |
+| III — Aprender a Matar | 2020–2022 | 105–225 | Planificado (ver MAPA_Capitulos_Arco_III.md) |
 | IV — El Reinado Incompleto | 2022–2025 | 137–194 | No iniciado |
 | V — La Cosecha | 2025–2028 | 195–256 | No iniciado |
 | VI — El Cóndor y el Silencio | 2029–2033 | 257–300 | No iniciado |

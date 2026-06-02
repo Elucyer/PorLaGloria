@@ -106,7 +106,7 @@ Santi cruzó la cima solo.
 
 Mantuvo el ataque durante los veinte kilómetros hasta Guarne —los llanos no eran su territorio natural pero la adrenalina y la certeza de lo que acababa de hacer le pusieron en las piernas algo que ningún entrenamiento produce: la conciencia de que estás ganando.
 
-Llegó a Guarne con treinta y ocho segundos sobre el segundo.
+Llegó a Guarne con veinte segundos sobre el segundo.
 
 Ganó la etapa. Quedó segundo en la clasificación general, a nueve segundos del chico rubio del Indeportes —que había terminado tercero en la última etapa pero tenía suficiente ventaja acumulada para conservar el liderato.
 

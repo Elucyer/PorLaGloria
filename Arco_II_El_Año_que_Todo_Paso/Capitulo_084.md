@@ -142,7 +142,11 @@ Hernando cerró el bolígrafo.
 
 ---
 
-No fue el sprint del que persigue — fue la progresión del que alcanza. Tres vatios sobre el ritmo que llevaba. Cinco. El cuerpo encontrando el ritmo del ataque con la naturalidad del corredor que ha entrenado este momento específico — no Courmayeur, sino el momento de esperar y salir, el momento de confiar en que los veinte segundos de Ferretti son los veinte segundos correctos.
+Veinte segundos de espera. Veinte segundos en los que Roglič había gastado lo que tenía para responder a Carapaz, y Carapaz lo que tenía para sostener la ventaja, y Santi no había gastado nada porque Ferretti había dicho esperar y Santi había esperado.
+
+Ahora salió.
+
+Con lo que tenía — que era exactamente lo que había guardado para este momento.
 
 Detrás: Roglič intentó responder.
 

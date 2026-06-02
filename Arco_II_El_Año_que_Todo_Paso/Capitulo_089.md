@@ -84,7 +84,7 @@ Ferretti había dicho entre el diez y el quince.
 
 Fue el diez.
 
-No el ataque abierto — el incremento. Los dos vatios adicionales que el italiano sumaba a la cadencia con la expresión del corredor que ha hecho esto cientos de veces y que sabe exactamente cómo se ve y cómo se siente desde adentro. Cuatro vatios. Seis.
+El italiano no anunció nada. Simplemente la rueda trasera de Nibali empezó a alejarse — un metro, dos — con esa sutileza del ataque de escalador experimentado que no se parece a un ataque sino a que el resto del grupo frenó, aunque nadie frenó.
 
 La brecha entre Nibali y el grupo: diez metros.
 

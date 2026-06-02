@@ -300,7 +300,7 @@ Santi atacó.
 
 ---
 
-No fue el ataque del sprint — fue el ataque de la progresión. El tipo de aceleración que en la montaña no se ve de lejos porque no tiene el cambio explosivo del velocista sino el cambio sostenido del escalador que aumenta los vatios y mantiene el aumento. Tres vatios sobre el ritmo que llevaba. Cinco. Ocho.
+En la curva doce del Stelvio, Santi cambió el ángulo de la cadera sobre el sillín — un ajuste de dos centímetros que en la bicicleta de montaña era la diferencia entre el corredor que administra y el corredor que ataca. Nibali lo vio. Lo vio y no pudo hacer nada porque el cuerpo del siciliano ya estaba en el límite de lo que daba y el límite no negocia.
 
 En diez segundos, dos metros de diferencia con Nibali.
 

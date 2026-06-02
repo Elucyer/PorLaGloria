@@ -134,7 +134,7 @@ Kilómetro cuatro: Nibali subió el ritmo. No un ataque — el incremento gradua
 
 Santi fue.
 
-No con el sprint — con la progresión. Tres vatios sobre el ritmo que llevaba. Cinco. El cuerpo encontrando el ritmo de la persecución con la naturalidad del corredor que ha entrenado exactamente para este momento — el kilómetro cuatro del último puerto del día decimotercero cuando las piernas tienen el noventa y cinco que Ferretti había pedido y que el cuerpo tenía disponible.
+La diferencia entre seguir a Nibali y quedarse atrás era una decisión que el cuerpo tomó antes que el cerebro. Las piernas respondieron solas — el reflejo del corredor que en el kilómetro cuatro del último puerto del día decimotercero todavía tiene el noventa y cinco que Ferretti había pedido y que reconoce el momento de usarlo. No fue una orden. Fue el cuerpo haciendo lo que el cuerpo sabía hacer.
 
 La brecha con Nibali se cerró en ochenta metros.
 

@@ -6,7 +6,7 @@
 
 El frío entra primero por las manos.
 
-Siempre es así. Antes de que los pulmones protesten, antes de que los muslos empiecen a arder con ese fuego lento que Santiago Reyes Cardona ya aprendió a querer, el frío le encuentra los nudillos y se instala ahí, en los huesos finos de los dedos, como si la montaña quisiera recordarle desde el principio quién manda. Cinco y diecisiete de la mañana. El Alto de Minas todavía duerme envuelto en su propia oscuridad, una oscuridad espesa y húmeda que no es la oscuridad de las ciudades —esa naranja y artificial, llena de ruidos de motores— sino la oscuridad original, la que existía antes de que los hombres llegaran a estas montañas y decidieran que necesitaban iluminarlas.
+Siempre es así. Antes de que los pulmones protesten, antes de que los muslos empiecen a arder con ese fuego lento que Santiago Reyes Cardona ya aprendió a querer, el frío le encuentra los nudillos y se instala ahí, en los huesos finos de los dedos, como si la montaña quisiera recordarle desde el principio quién manda. Cinco y diecisiete de la mañana. El Alto de Minas todavía duerme envuelto en su propia oscuridad, espesa y húmeda — no la de las ciudades, esa naranja y artificial, llena de ruidos de motores, sino la original, la que existía antes de que los hombres llegaran a estas montañas y decidieran que necesitaban iluminarlas.
 
 Santi pedalea.
 
