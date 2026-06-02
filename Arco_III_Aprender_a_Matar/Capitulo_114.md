@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 114 — Las Palmas de vuelta
+### Capítulo 114 — Las Palmas de vuelta (Medellín, mayo–julio 2020)
 
 ---
 
@@ -168,7 +168,7 @@ En mayo grabaron con Alejandro Valverde — el murciano de treinta y nueve años
 
 En junio grabaron con Tadej Pogačar.
 
-El esloveno de veinte años — el mismo Pogačar que Santi había tenido a un metro en la primera fila de salida del Lombardia, el mismo que en el Tour 2019 había quedado tercero general, el corredor que Rusconi había identificado como la variable más difícil de analizar porque su perfil de esfuerzo no seguía los patrones convencionales.
+El esloveno de veinte años — el mismo que en la Vuelta a España 2019 había quedado tercero general a los veinte años en su primer Grand Tour, el corredor que en Yorkshire había estado en el mismo pelotón que Santi el día del Mundial, y que Rusconi había identificado desde septiembre como la variable más difícil de analizar porque su perfil de esfuerzo no seguía los patrones convencionales.
 
 El episodio con Pogačar duró cuarenta y siete minutos y fue el episodio donde Santi habló más. No porque Julián lo empujara — porque Pogačar le hacía las preguntas de vuelta. El esloveno que no esperaba que Santi preguntara y que cuando Santi preguntaba respondía con la misma precisión que le devolvía otra pregunta.
 

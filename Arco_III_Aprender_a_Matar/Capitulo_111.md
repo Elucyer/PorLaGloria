@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 111 — Aprender a Matar: Episodio 1 (Egan Bernal)
+### Capítulo 111 — Aprender a Matar, Ep. 1: Egan Bernal (grabado el 24 de marzo de 2020)
 
 ---
 

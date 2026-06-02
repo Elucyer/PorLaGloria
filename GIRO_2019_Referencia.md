@@ -281,7 +281,7 @@ La BIBLIA y el CLAUDE.md deben actualizarse con esta corrección.
   3. Roglič 3º, +2:15
   4. Carapaz 4º, +3:10
   5. Landa 5º, +4:00
-- **Nota narrativa CRÍTICA:** La noche del lunes 27 (noche de descanso, la noche ANTES de esta etapa), Hernando Reyes entra en la UCI del Hospital San Vicente por complicaciones del segundo ciclo de quimioterapia. Carmen lo sabe. Santi está durmiendo en Lovere.
+- **Nota narrativa CRÍTICA:** La noche del lunes 27 (noche de descanso, la noche ANTES de esta etapa), Hernando Reyes entra en la UCI del Hospital Pablo Tobón Uribe por complicaciones del segundo ciclo de quimioterapia. Carmen lo sabe. Santi está durmiendo en Lovere.
 
 ---
 
@@ -504,7 +504,7 @@ Referencia para la escena del ataque:
 | 19 mayo (E9) | CRI San Marino — pierde 1:38 a Roglič | En Laureles, viendo la TV con Carmen |
 | 25 mayo (E14) | **Gana Courmayeur, Maglia Rosa** | Carmen llora al verlo ganar. Hernando no dice nada. |
 | 26 mayo (E15) | Etapa transitoria | Hernando tiene fiebre alta — probable infección |
-| **27 mayo (descanso)** | **Noche en Lovere** | **Hospital San Vicente: UCI por complicaciones del ciclo 2** |
+| **27 mayo (descanso)** | **Noche en Lovere** | **Hospital Pablo Tobón Uribe: UCI por complicaciones del ciclo 2** |
 | **28 mayo (E16 Stelvio)** | **Ataca en el km 16. Gana la etapa.** | **Hernando en UCI. Inconsciente parte del día.** |
 | 29–31 mayo (E17–E19) | Defiende Maglia Rosa | Hernando estable pero en UCI |
 | 1 junio (E20) | Aguanta el ataque final de Nibali | Hernando trasladado a planta, consciente |

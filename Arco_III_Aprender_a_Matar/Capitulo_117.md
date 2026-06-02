@@ -1,18 +1,197 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 117 — La decisión
+### Capítulo 117 — La decisión: Tour + Giro (agosto de 2020)
 
 ---
 
-El dos de agosto — el día siguiente a la Strade Bianche — Ferretti llamó al mediodía.
+El dos de agosto — el día siguiente a la Strade Bianche — la reunión del equipo fue a las nueve de la mañana.
 
-No para el análisis de la carrera. El análisis lo habían hecho la noche anterior en el hotel de Siena, dos horas después de la llegada: los vatios del Monte Sante Marie, el ataque antes del kilómetro planeado, la diferencia de cuarenta y cuatro segundos sobre Pogačar, los datos de la crono corta de dieciséis kilómetros que había tenido la Strade Bianche como prólogo al inicio — una crono plana que Santi había terminado cuarto a veintiocho segundos del ganador Van Aert.
+El hotel de Siena. La sala de reuniones del segundo piso — la sala que en los hoteles de los equipos WorldTour era siempre la misma: la mesa larga con las sillas de respaldo recto, la pantalla en la pared para el proyector de Duchêne, la ventana que en este caso daba sobre los tejados de la ciudad medieval y el cielo azul del verano toscano que en agosto llegaba a las nueve de la mañana con la temperatura que a las dos de la tarde iba a ser el calor del día.
 
-El cuarto en la crono plana. El primero en la montaña.
+Los ocho corredores del FCV-WorldTour. Ferretti. Rusconi. El médico del equipo — el doctor Marchetti, que en las reuniones post-carrera tenía el rol del hombre que escuchaba los datos físicos de los corredores con la atención clínica del que sabe que los datos de potencia de Rusconi y los datos del cuerpo real que él manejaba no siempre coincidían.
 
-Los mismos datos que en todas las carreras: la montaña que da, la crono que quita. La diferencia en la Strade Bianche era que la suma final había dado uno. Pero el Tour no tenía solo montaña — tenía sesenta y cuatro kilómetros de contrarreloj divididos en dos etapas.
+Los ocho corredores en la mesa:
 
-La llamada del dos de agosto era sobre otra cosa.
+Santi a la izquierda de Ferretti — el líder siempre junto al director, la posición que en las reuniones del equipo era la posición del corredor que tiene más preguntas que hacer y al que el director tiene que ver de frente cuando habla.
+
+**Stef Broeckx** a la derecha de Santi — el belga de veintisiete años de Kortrijk que en su tercera temporada con el FCV-WorldTour era el gregario de montaña que mejor conocía a Santi en la carretera. Broeckx que en los Giros anteriores había subido el Stelvio y el Mortirolo hasta el kilómetro donde podía y que conocía exactamente el ritmo de Santi en la primera hora de la subida porque ese ritmo era el ritmo que él había intentado seguir las últimas dos temporadas. Los ojos de Broeckx en la reunión: la atención del corredor que todavía está procesando la Strade Bianche del día anterior — en la que él había sido uno de los cuatro del equipo que habían aguantado el ritmo de Santi en el Monte Sante Marie hasta el kilómetro tres antes de ceder.
+
+**Théo Duchêne** — el francés de veintinueve años de Lyon que en el equipo era el corredor que hacía dos cosas al mismo tiempo: subirse a la bicicleta en las etapas y manejar los datos tácticos desde el autobús y desde el pinganillo. Duchêne que en tres Tours de France anteriores con el equipo continental del que provenía había aprendido que el valor del gregario inteligente no era el vataje sino la capacidad de leer la carrera en tiempo real y comunicársela al líder sin que el líder tuviera que pensar en lo que Duchêne ya había pensado. Tenía el portátil abierto en la mesa con los datos de la Strade Bianche — los vatios del Monte Sante Marie, los splits de la crono de apertura, el análisis comparativo con los datos de Pogačar y Van Aert.
+
+**Simon Clarke** — el australiano de treinta y tres años de Melbourne que llevaba seis temporadas en el pelotón WorldTour y tres en el FCV-WorldTour. Clarke que era el rouleur del equipo: el corredor que en las etapas de viento lateral hacía el trabajo de los echelones que los escaladores no podían hacer, que en los días de pavés aguantaba donde los escaladores cedían, que en el Tour tomaba el relevo del tren cuando Broeckx y Vidal ya habían dado todo. Clarke que en las reuniones de equipo tenía la costumbre de inclinarse hacia atrás en la silla con los brazos cruzados — la postura del veterano que ha escuchado suficientes reuniones de equipo como para saber cuáles partes son para él y cuáles son para los otros.
+
+**Jorge Vidal** — el español de veintiséis años de Vitoria-Gasteiz que en su primera temporada con el FCV-WorldTour era el fichaje de montaña del invierno. Vidal que en el Vuelta del año anterior había sido el gregario de los últimos cinco kilómetros del equipo del que provenía — el corredor que en la montaña sostenida tenía el nivel de los mejores auxiliares del pelotón y que Rusconi había identificado en los datos como el gregario que podía llevar a Santi hasta más arriba que cualquier otro del equipo. Silencioso en la reunión. La mirada en el portátil de Duchêne cuando Duchêne pasaba la pantalla.
+
+**Martín Echavarría** — el colombiano de veinticinco años de Manizales que era el segundo colombiano del FCV-WorldTour y que en el equipo tenía el rol del gregario que puede convertirse en el corredor secundario en montaña — el hombre que si Santi tiene un mal día puede subir entre los diez primeros y no perder demasiado tiempo. Echavarría que en la Strade Bianche del día anterior había sido el primero del equipo en ceder en el Monte Sante Marie — en el kilómetro dos, antes incluso que Clarke — y que en la reunión de la mañana tenía la cara del corredor que está procesando por qué el kilómetro dos le había costado lo que le costó.
+
+**Lars Rensen** — el danés de veintiocho años de Odense que era el rouleur del equipo para las transiciones y las etapas de viento. Rensen que en los tres primeros días del Tour iba a ser el hombre que protegía a Santi en el pelotón compacto — el escudo, el corredor que en la primera semana gasta lo que los demás no quieren gastar para que el líder llegue a la montaña con el depósito que la montaña requiere. Rensen que en la reunión estaba con el café en la mano, el único de los ocho que había pedido el segundo café de la mañana.
+
+**Andrea Colombo** — el italiano de treinta y cinco años de Bérgamo que era el veterano del equipo y el hombre que en seis Tours de France anteriores había aprendido todo lo que se puede aprender sobre cómo se muere en tres semanas de carrera y cómo se sobrevive a esa muerte. Colombo que en la mesa de reuniones tenía la postura específica del corredor mayor que ya no necesita demostrar nada y que por eso escucha antes de hablar. Colombo que conocía la Piazza Cittadella de Bérgamo de la que salía el Lombardia porque era de Bérgamo, que conocía cada curva del Ghisallo porque lo había subido diecisiete veces en carrera, y que cuando la reunión terminara iba a ser el primero en llegar al desayuno y el último en acostarse la noche antes del Tour.
+
+---
+
+Ferretti abrió.
+
+— La Strade Bianche. — Miró a Duchêne.
+
+Duchêne proyectó los datos. La pantalla con los vatios del Monte Sante Marie, los splits de la crono de apertura, el comparativo con Pogačar y Van Aert.
+
+— El ataque fue en el kilómetro dos y medio — dijo Duchêne. — El plan era el cinco. — Miró a Santi con la brevedad del que registra un hecho sin emitir juicio. — En el kilómetro dos y medio, Santi leyó que Alaphilippe estaba en el límite. Atacó antes de lo planeado. Funcionó.
+
+Clarke, desde el fondo de la mesa: — ¿Cuándo empezás a atacar antes de lo planeado exactamente cuando el rival está en el límite?
+
+No era sarcasmo. Era la pregunta genuina del australiano que quería entender el mecanismo.
+
+Santi: — Cuando la respiración del otro cambia de frecuencia.
+
+Clarke asintió — la asimilación rápida del veterano que ha escuchado suficientes respuestas para saber cuándo una es verdadera.
+
+— La crono de apertura — continuó Duchêne. — Santi: cuarto, a 28 segundos de Van Aert. En el Monte Sante Marie, ganó con 44 segundos sobre Pogačar. — Pausa. — El mismo patrón que en todas las carreras. La montaña da. La crono quita.
+
+Broeckx: — En el Tour la crono quita más.
+
+— En el Tour la crono quita más — confirmó Rusconi, que en las reuniones de equipo tenía el rol del hombre que confirma lo que los corredores ya saben con los números que los corredores todavía no tienen.
+
+Ferretti dejó que Duchêne terminara el análisis de la Strade Bianche. Cuatro minutos de datos. Después cerró el tema.
+
+— La Strade fue ayer. El Tour empieza en veintisiete días. — Ferretti miró la mesa. — Ahora el tema del día.
+
+---
+
+La pantalla cambió. El calendario de agosto y septiembre.
+
+Dos carreras en rojo: **Tour de France** (29 agosto — 20 septiembre) y **Giro d'Italia** (3 octubre — 1 noviembre).
+
+— El Tour — dijo Ferretti — lleva ocho corredores. El Giro — si vamos — lleva otros ocho. No los mismos. — Pausa. — Hoy decidimos quién va a qué.
+
+Silencio en la mesa.
+
+Colombo fue el primero en hablar — el veterano de treinta y cinco años que en seis Tours anteriores había desarrollado la confianza del que puede decir lo que piensa antes de que el director lo pida:
+
+— ¿Santi va a los dos?
+
+Ferretti: — Santi va al Tour. Si el Tour va bien, el Giro se decide después. Si el Tour no va bien por alguna razón — lesión, enfermedad — el Giro sigue siendo opción. — Miró a Santi. — ¿Correcto?
+
+— Correcto — dijo Santi.
+
+Echavarría, desde el medio de la mesa: — ¿El Giro quién lo lidera si Santi no va?
+
+Ferretti: — Todavía no hay decisión. El Giro sin Santi tiene otro planteamiento. — Pausa. — Hoy nos concentramos en el Tour.
+
+Duchêne proyectó el roster.
+
+**Tour de France 2020 — FCV-WorldTour:**
+
+1. **Santiago Reyes** — Líder
+2. **Stef Broeckx** — Montaña. Lleva a Santi hasta donde puede en los puertos clave
+3. **Théo Duchêne** — Datos y comunicación táctica. El pinganillo de Santi
+4. **Simon Clarke** — Rouleur. Semana uno, viento, transiciones
+5. **Jorge Vidal** — Alta montaña. El que sube más tiempo con Santi
+6. **Martín Echavarría** — Alta montaña. Colombiano, conoce el ritmo de Santi
+7. **Lars Rensen** — Transición y viento. Semana dos
+8. **Andrea Colombo** — Experiencia. Seis Tours. Sabe exactamente qué hacer y cuándo
+
+La mesa leyó la pantalla.
+
+Clarke: — Me parece bien. Aunque me alegra que Rensen esté para los echelones — yo en el viento lateral de Provenza ya no soy lo que fui.
+
+Rensen: — *Tak.*
+
+Risa corta alrededor de la mesa. No la risa del grupo que se relaja — la risa de los corredores que en la tensión de la víspera de tres semanas de trabajo usan el humor como el calibrador de la presión.
+
+Broeckx miró a Santi. Santi no miraba la pantalla — miraba la mesa, el punto fijo que en las reuniones del equipo era el punto donde almacenaba lo que escuchaba.
+
+— ¿Cuántos kilómetros me dais en el Loze? — dijo Broeckx. No a Ferretti — a Santi.
+
+Santi lo miró.
+
+— Lo que puedas — dijo Santi. — El Loze no tiene un número fijo. Depende de cómo llegamos.
+
+Broeckx asintió.
+
+Era el tipo de respuesta que Broeckx necesitaba — no el número exacto del plan sino la confirmación de que el plan era adaptable. Que si en el kilómetro ocho del Loze Broeckx todavía tenía vatios para dar, iba a usarlos. Y si en el kilómetro cuatro ya había dado todo, tampoco era un fracaso.
+
+Vidal, en silencio hasta ese momento: — En el Loze, ¿en qué kilómetro esperáis que yo ceda?
+
+Rusconi: — Con tu perfil de potencia, el kilómetro nueve. Quizás diez si la semana dos fue bien.
+
+Vidal anotó. La exactitud del corredor nuevo que quiere saber exactamente cuál es su trabajo.
+
+— El kilómetro diez — dijo Vidal. Como si lo repitiera para fijarlo.
+
+Colombo, desde el fondo: — En mi Tour número siete espero ceder en el kilómetro cuatro y sobrevivir en los diecisiete que quedan. — Pausa. — Y después de la etapa tomar una cerveza.
+
+Risa más larga esta vez.
+
+Ferretti esperó que se apagara.
+
+— El Giro — dijo. — Los que van al Tour no van al Giro. — Proyectó el segundo roster en la pantalla:
+
+**Giro d'Italia 2020 — FCV-WorldTour (si se confirma):**
+
+Lista provisional de ocho corredores que no iban al Tour — los corredores del equipo que en el Giro iban a tener objetivos de etapa y posicionamiento en la GC sin la presión del liderazgo de Santi.
+
+Clarke: — ¿Quién lidera el Giro?
+
+Ferretti: — Etapas, no liderazgo de GC. El Giro sin Santi no es un Giro para ganar la GC con el nivel que hay este año — Bernal, Hart, Hindley. Podemos ganar etapas. Podemos estar en el top cinco con alguien que dé la sorpresa.
+
+Echavarría miró a Ferretti.
+
+— ¿Yo podría estar en esa lista?
+
+Ferretti lo miró. Rusconi lo miró.
+
+Era la pregunta del corredor joven que había cedido en el kilómetro dos de la Strade Bianche y que sabía que su actuación en el Monte Sante Marie no había sido la actuación que el Tour necesitaba de él, pero que también sabía que en el Giro la montaña era diferente — más larga, más sostenida, el territorio donde en los últimos meses Rusconi había visto sus mejores datos.
+
+— Posiblemente — dijo Ferretti. — Si el Tour va como tiene que ir, en el Giro tenemos conversación.
+
+Echavarría asintió.
+
+La respuesta correcta. No un no, no un sí — el posiblemente del director que deja la puerta abierta para el corredor que la puede merecer.
+
+---
+
+La reunión terminó cuarenta minutos después de empezar.
+
+Los corredores salieron en grupos. Clarke y Colombo hacia el desayuno tardío — el australiano y el italiano que en el equipo compartían la franja de edad de los veteranos y que en los desayunos de los días de reunión hablaban del ciclismo con la perspectiva de los que lo han visto suficiente como para no necesitar analizarlo todo.
+
+Broeckx se quedó al lado de Santi mientras Ferretti y Rusconi revisaban los datos con Duchêne.
+
+— ¿Cómo estás? — dijo Broeckx. En voz baja. La pregunta que no era sobre las piernas.
+
+— Bien — dijo Santi.
+
+— ¿Y tu papá?
+
+— Remisión completa — dijo Santi. — Desde mayo.
+
+Broeckx asintió.
+
+No dijo *qué bien* ni *me alegra* ni las frases del protocolo social. Asintió. Era el flamenco que en el Giro 2019 había preguntado por Hernando en la caminata a Rávena y que sabía que las noticias sobre el padre de Santi no se celebraban con frases — se recibían con el peso exacto que tenían.
+
+— El Tour este año — dijo Broeckx — lo podemos ganar.
+
+Santi lo miró.
+
+— Sí — dijo.
+
+— En el Loze llego hasta donde llegue — dijo Broeckx. — Pero llego.
+
+No era promesa. Era la declaración del gregario que entiende su trabajo y que en el kilómetro donde no pueda más va a dejar al líder con lo que el líder necesita para el kilómetro siguiente.
+
+Santi puso la mano en el hombro de Broeckx.
+
+Un segundo.
+
+Después soltó y salió de la sala.
+
+---
+
+Ferretti llamó al mediodía.
+
+No para el análisis de la carrera — eso ya había ocurrido en la reunión. La llamada del dos de agosto era para confirmar lo que la reunión había establecido en los términos oficiales del equipo: la decisión de Santi, en voz alta, para el registro.
+
+— El Giro — dijo Ferretti. — El Giro empieza el tres de octubre. Trece días después del final del Tour el veinte de septiembre.
 
 — El Giro — dijo Ferretti. — El Giro empieza el tres de octubre. Trece días después del final del Tour el veinte de septiembre.
 

@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 115 — La convocatoria
+### Capítulo 115 — Strade Bianche I: La convocatoria — regreso a Europa (julio–31 de julio de 2020)
 
 ---
 

@@ -98,7 +98,7 @@ Santi soltó el aire que no sabía que había estado guardando.
 
 —¿Cuándo?
 
-—Tres semanas. En el Hospital San Vicente de Medellín. Tienen que hacer más pruebas primero pero el especialista dijo que la ubicación es favorable.
+—Tres semanas. En el Hospital Pablo Tobón Uribe de Medellín. Tienen que hacer más pruebas primero pero el especialista dijo que la ubicación es favorable.
 
 —¿Y él?
 

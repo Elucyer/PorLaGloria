@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 110 — El mundo se para
+### Capítulo 110 — El mundo se para (Girona, marzo–abril 2020)
 
 ---
 
@@ -70,11 +70,11 @@ La zona 3, la zona 4, la zona 5. La nomenclatura del entrenamiento que convierte
 
 En Laureles, el protocolo del hospital había cambiado.
 
-Los seguimientos oncológicos de Hernando — el control mensual post-quimio que el doctor Gustavo había programado para los primeros seis meses del año — se adaptaron a los protocolos de pandemia. La mascarilla, el traje de protección del personal médico, el distanciamiento que en los pasillos del San Vicente convertía el hospital en un lugar diferente: el mismo hospital, los mismos corredores blancos, pero con la dimensión añadida de la distancia que el virus había introducido en todos los espacios cerrados.
+Los seguimientos oncológicos de Hernando — el control mensual post-quimio que el doctor Gustavo había programado para los primeros seis meses del año — se adaptaron a los protocolos de pandemia. La mascarilla, el traje de protección del personal médico, el distanciamiento que en los pasillos del Pablo Tobón convertía el hospital en un lugar diferente: el mismo hospital, los mismos corredores blancos, pero con la dimensión añadida de la distancia que el virus había introducido en todos los espacios cerrados.
 
 Hernando fue al seguimiento de marzo solo.
 
-Carmen se quedó en el apartamento — el protocolo del San Vicente en las primeras semanas del confinamiento recomendaba entrada individual para los pacientes en seguimiento no urgente. Hernando tomó el Uber desde Laureles, entró al hospital, se sentó en la sala de espera con la mascarilla que en esos días todavía era el objeto extraño que la gente se ponía sin saber bien cómo, y esperó al doctor Gustavo.
+Carmen se quedó en el apartamento — el protocolo del Pablo Tobón en las primeras semanas del confinamiento recomendaba entrada individual para los pacientes en seguimiento no urgente. Hernando tomó el Uber desde Laureles, entró al hospital, se sentó en la sala de espera con la mascarilla que en esos días todavía era el objeto extraño que la gente se ponía sin saber bien cómo, y esperó al doctor Gustavo.
 
 Los resultados del seguimiento post-radioterapia: la respuesta del tejido residual era la respuesta que el doctor Gustavo había esperado. La radioterapia de seis semanas de enero-febrero había hecho lo que tenía que hacer.
 

@@ -88,7 +88,7 @@ No entrenamiento intensivo — salidas largas por los puertos de Antioquia, el B
 
 El miércoles: el control de seguimiento del cuarto ciclo.
 
-El doctor Gustavo en el consultorio del San Vicente, las imágenes en el monitor, los valores hematológicos. La reducción tumoral acumulada — el número que en agosto había sido el cuarenta y uno por ciento — era ahora el cuarenta y seis por ciento.
+El doctor Gustavo en el consultorio del Pablo Tobón, las imágenes en el monitor, los valores hematológicos. La reducción tumoral acumulada — el número que en agosto había sido el cuarenta y uno por ciento — era ahora el cuarenta y seis por ciento.
 
 — Cuarenta y seis — dijo el doctor Gustavo. — El cuarto ciclo fue el más efectivo hasta ahora. — Pausa. — Si el quinto ciclo da resultados similares, podemos empezar a hablar de radioterapia localizada como fase final del tratamiento.
 
@@ -124,49 +124,61 @@ Era la evaluación del médico. Era también la verdad.
 
 ---
 
-La Clásica de Lombardía — el doce de octubre.
+El viernes cuatro de octubre, Ferretti llamó desde Bérgamo.
 
-El monumento de otoño, la carrera de la caída de las hojas, los doscientos cuarenta y tres kilómetros del Lago Como con la Madonna del Ghisallo y la Civiglio y el Forzora — los puertos que en el ciclismo de los monumentos eran los puertos de la última gran carrera del año, el último día antes del invierno.
+No para el análisis del Mundial — ese análisis lo habían hecho en Harrogate, la noche del veintinueve, con los datos de Yorkshire todavía frescos. Ferretti llamó para el año que venía.
 
-Santi corrió la Clásica de Lombardía con el jersey arcoíris.
+— El Tour — dijo Ferretti. Sin preámbulo. La palabra que desde enero había estado en el fondo de todas las conversaciones entre los dos y que ahora, con el Giro y el Mundial en el historial del año, era la palabra que no necesitaba preámbulo.
 
-El campeón del mundo en el pelotón del monumento de otoño — la imagen que en el ciclismo tiene el peso de la tradición y de la jerarquía visible. El jersey arcoíris no exige nada de la carrera pero dice algo de quien lo lleva. Dice que en algún punto de la temporada, el corredor que lo lleva fue el mejor del mundo en un día.
+— El Tour — confirmó Santi.
 
-La carrera fue dura — como siempre, como todos los otoños en el Lago Como.
+— El Tour tiene una crono que el Giro no tenía. Dos contrarrelojes: veintisiete kilómetros en la primera semana, treinta y siete en la última. Sesenta y cuatro kilómetros en total. El Giro tenía treinta y cuatro. — Ferretti hizo la pausa de los números que se dejan reposar. — Treinta kilómetros de diferencia. Treinta kilómetros donde Roglič va a intentar lo que no pudo en el Giro.
 
-Santi llegó séptimo.
+— Rusconi.
 
-No fue el resultado que cambiaría la narrativa de la temporada — la narrativa de la temporada ya era lo que era: el Giro, el Mundial, el jersey arcoíris. El séptimo puesto de la Lombardía era el resultado del corredor que corrió la Lombardía después del Mundial con lo que le quedaba de temporada, que era suficiente para el séptimo pero no para la victoria.
+— Rusconi en Sierra Nevada en enero. El túnel de viento en diciembre. El invierno completo con la crono. — Pausa. — Pero primero: la Lombardía.
 
-Después de la Lombardía: Ferretti.
+El doce de octubre. La Clásica de Lombardía — el monumento de las hojas muertas, los doscientos cuarenta y tres kilómetros de Bérgamo a Como con la Madonna del Ghisallo y el Civiglio y el San Fermo. La última carrera grande del año. El jersey arcoíris por primera vez en un pelotón de monumento.
 
-El director deportivo esperaba en el aparcamiento del fin de la carrera con el análisis de siempre — la cara, el estado, el corredor evaluado por el hombre que lleva treinta años evaluando corredores.
-
-— ¿Las piernas?
+— ¿Las piernas? — dijo Ferretti.
 
 — Al ochenta y seis.
 
-— Bien. Noviembre empieza el bloque de pretemporada en Mallorca. Rusconi te espera el tres.
+— Con el ochenta y seis llegás a pelear el resultado. No te reservés — la Lombardía es la última carrera. Lo que gastés ahí, lo reconstruís en noviembre.
 
-— El tres — confirmó Santi.
+Santi anotó en el cuaderno los perfiles que Rusconi le había mandado por correo la semana anterior: el Ghisallo al kilómetro noventa y uno, el Civiglio al doscientos trece, el San Fermo alla Battaglia a nueve kilómetros del final. Los puertos del otoño italiano en el papel, el lápiz de Santi marcando los kilómetros del ataque posible.
 
-— El Tour — dijo Ferretti. La palabra del año que venía. La carrera que estaba en el calendario y que cada conversación con Ferretti desde enero había estado apuntando sin decirlo directamente.
+La Lombardía era en ocho días.
 
-— El Tour — dijo Santi.
+Ocho días en Medellín y después el vuelo de vuelta.
 
-Ferretti lo miró.
+---
 
-— La crono de setenta kilómetros — dijo Ferretti. — El Tour tiene una crono de setenta kilómetros. El Giro tenía treinta y cuatro. Hay treinta y seis kilómetros de diferencia entre los dos cronos. Treinta y seis kilómetros que Roglič va a usar para recuperar lo que perdió en mayo.
+Los días siguientes en Medellín tuvieron el ritmo de los días del corredor entre carreras: el entrenamiento de mantenimiento en las mañanas, la visita al Pablo Tobón el miércoles con Hernando, las tardes en el balcón de Laureles.
 
-— Rusconi en Mallorca — dijo Santi.
+El apartamento de Laureles al que se habían mudado hacía dos años y medio — cuando el primer contrato serio del FCV-Procycling había traído el dinero suficiente para dejar el apartamento de Floresta donde habían vivido desde que llegaron de San José en el año doce. El cuarto piso con la vista sobre los samanes que en octubre seguían verdes con la indiferencia tropical de los árboles que no tienen otoño.
 
-— Rusconi en Mallorca — confirmó Ferretti. — Hombro quieto. Posición afinada. Dos meses de crono plana antes de que empiecen los Alpes.
+Hernando en el balcón las tardes.
 
-— Bien.
+El libro del ferrocarril antioqueño. El café. Los samanes. El cuerpo del cuarto ciclo que se recuperaba con la lentitud que el cuarto ciclo había establecido: más lento que en los meses anteriores, con la fatiga acumulada de los cuatro tratamientos que en el cuerpo de Hernando era la fatiga visible del corredor en la última semana del Giro — presente, funcionando, sin sobrar nada.
 
-Ferretti asintió. Era el hombre que miraba el año que venía desde el año que terminaba — el director deportivo que en el parking de la Lombardía ya tenía en la cabeza el entrenamiento de noviembre y el Tour de julio y la crono de setenta kilómetros que Roglič iba a usar para recuperar.
+El quinto ciclo estaba programado para la primera semana de noviembre.
 
-Era su trabajo. Lo hacía bien.
+Santi no lo dijo en el balcón.
+
+Hernando tampoco.
+
+Era un dato que los dos tenían y que existía entre ellos sin necesitar ser dicho, como existen los datos que son demasiado reales para ser declarados en voz alta.
+
+El miércoles: el control de seguimiento del cuarto ciclo con el doctor Gustavo. La reducción tumoral acumulada al cuarenta y seis por ciento. El médico hablando del quinto ciclo y de la radioterapia y del primer semestre del año que venía. Hernando escuchando con la atención del corredor que ha aprendido a leer las frases médicas con la misma precisión con que Santi leía las diferencias de vatios en el Ghisallo.
+
+En el coche de vuelta a Laureles, Carmen tenía los ojos húmedos.
+
+Santi condujo.
+
+Hernando miró por la ventana.
+
+El Valle de Aburrá con sus laderas llenas de casas y sus buses y su ruido — la ciudad que en los doce años desde que habían llegado seguía siendo la ciudad de los demás, el lugar donde Santi había aprendido a ganar pero que nunca había sido del todo suyo de la manera en que San José era suyo: por la niebla, por el frío, por los seis años de la infancia que se quedan en el cuerpo antes de que el cuerpo tenga el lenguaje para nombrarlos.
 
 ---
 

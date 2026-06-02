@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 108 — El invierno de Laureles
+### Capítulo 108 — El invierno de Laureles (noviembre–diciembre 2019)
 
 ---
 
@@ -128,15 +128,19 @@ Pero tampoco contradijo.
 
 ---
 
-El seguimiento oncológico de Hernando fue la primera semana de noviembre.
+El quinto ciclo de quimioterapia fue la primera semana de noviembre.
 
-El doctor Gustavo, el consultorio del San Vicente, las imágenes que el oncólogo miraba en el monitor con la atención de quien ha seguido un caso durante dos años y que en cada control lee la diferencia entre lo que estaba y lo que está. La reducción tumoral acumulada desde el diagnóstico: cincuenta y tres por ciento. El quinto ciclo había dado el resultado más alto de todos.
+Hernando entró al Hospital Pablo Tobón Uribe el lunes cuatro de noviembre con la puntualidad del corredor al que no le gusta llegar tarde. El mismo pasillo blanco, la misma silla, el mismo gotero. El quinto ciclo fue el más corto en número de sesiones pero el que el cuerpo recibió con la mayor acumulación de los cuatro anteriores: dos años de tratamiento que en el organismo de Hernando habían construido la resistencia y también el agotamiento.
+
+El seguimiento post-ciclo fue la primera semana de diciembre.
+
+El doctor Gustavo, el consultorio del Pablo Tobón, las imágenes que el oncólogo miraba en el monitor con la atención de quien ha seguido un caso durante dos años y que en cada control lee la diferencia entre lo que estaba y lo que está. La reducción tumoral acumulada desde el diagnóstico: cincuenta y tres por ciento. El quinto ciclo había dado el resultado más alto de todos.
 
 — Si el tejido residual responde a la radioterapia — dijo el doctor Gustavo — como esperamos que responda, primer semestre del año que viene hablamos de remisión completa.
 
 Hernando asintió.
 
-Era el mismo *primer semestre del año que viene* que el doctor Gustavo había dicho en octubre. Pero en noviembre, con el número del quinto ciclo en la pantalla, la frase tenía el peso diferente de la cosa que se acerca — no el horizonte que está siempre a la misma distancia sino el horizonte que en cada control se mueve un paso más cerca.
+Era el mismo *primer semestre del año que viene* que el doctor Gustavo había dicho antes. Pero en diciembre, con el número del quinto ciclo en la pantalla y el quinto ciclo completado, la frase tenía el peso diferente de la cosa que se acerca — no el horizonte que está siempre a la misma distancia sino el horizonte que en cada control se mueve un paso más cerca.
 
 — ¿Cuándo empieza la radioterapia? — dijo Santi.
 
@@ -158,13 +162,13 @@ Cincuenta y tres por ciento.
 
 Era la misma palabra de siempre.
 
-Pero en el consultorio del San Vicente de noviembre de dos mil diecinueve, con el quinto ciclo completado y la radioterapia de enero como el siguiente paso, *bien* tenía un peso específico que en los veinte meses desde el primer diagnóstico no había tenido todavía.
+Pero en el consultorio del Pablo Tobón de noviembre de dos mil diecinueve, con el quinto ciclo completado y la radioterapia de enero como el siguiente paso, *bien* tenía un peso específico que en los veinte meses desde el primer diagnóstico no había tenido todavía.
 
 ---
 
 La noche del treinta y uno de diciembre.
 
-El balcón de Laureles con la ciudad abajo. Los fuegos artificiales del Valle de Aburrá que en Medellín empezaban a las once de la noche — el sonido de los cohetes sobre los cerros, la luz que estallaba sobre los barrios, el olor a pólvora que llegaba suave hasta el piso cuatro del edificio.
+El balcón de Laureles — el apartamento al que se habían mudado hacía dos años y medio, cuando el primer contrato del FCV trajo el dinero suficiente para salir del apartamento de Floresta donde habían vivido los primeros años desde San José — con la ciudad abajo. Los fuegos artificiales del Valle de Aburrá que en Medellín empezaban a las once de la noche — el sonido de los cohetes sobre los cerros, la luz que estallaba sobre los barrios, el olor a pólvora que llegaba suave hasta el piso cuatro del edificio.
 
 Los tres en el balcón: Hernando, Carmen, Santi.
 
@@ -204,9 +208,9 @@ El tres de enero había un vuelo a Sierra Nevada.
 
 La tarde del dos de enero.
 
-Santi hizo la última salida de entrenamiento del año en Medellín — dos horas por Las Palmas y el retorno por el Boquerón, el circuito de los corredores antioqueños que en los días de entrenamiento libre rodaban solos con la cadencia del cuerpo que conoce el camino.
+Santi hizo la última salida de entrenamiento del año en Medellín — dos horas por Las Palmas hacia el oriente, el retorno por la misma vía, el recorrido del corredor que en los días de entrenamiento libre rueda solo con la cadencia del cuerpo que conoce el camino.
 
-En la bajada del Boquerón, pasó frente al colegio donde había estudiado en los primeros años de Medellín. El colegio del barrio que en los años de los doce y los trece había sido el lugar del chico de San José de la Montaña sin acento de ciudad, con el uniforme prestado y la bicicleta que no encajaba. El colegio cerrado en el enero de las vacaciones, las rejas verdes, el patio vacío.
+En la bajada de Las Palmas, pasó frente al colegio donde había estudiado en los primeros años de Medellín. El colegio del barrio que en los años de los doce y los trece había sido el lugar del chico de San José de la Montaña sin acento de ciudad, con el uniforme prestado y la bicicleta que no encajaba. El colegio cerrado en el enero de las vacaciones, las rejas verdes, el patio vacío.
 
 Santi no frenó.
 

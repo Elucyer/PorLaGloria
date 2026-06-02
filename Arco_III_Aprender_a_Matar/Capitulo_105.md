@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 105 — La carrera de las hojas muertas
+### Capítulo 105 — Lombardia I: La carrera de las hojas muertas (Il Lombardia, Bérgamo–Como, 12 de octubre de 2019)
 
 ---
 
@@ -148,9 +148,9 @@ Era la primera vez que lo usaba en carrera desde Yorkshire — el primer día de
 
 En la primera fila de la Piazza Cittadella, los corredores que tenían a Santi al lado lo miraron.
 
-No todos. No con la atención larga del análisis. Con la atención rápida del escalador que en el primer kilómetro de pelotón ya está calibrando quién está a qué distancia y qué significa esa distancia. Van Aert — el belga del Jumbo que en el Jenkin Road había llegado segundo — estaba dos posiciones a la derecha. Lo miró una vez. No dijo nada. Pogačar — el esloveno de veinte años del UAE que en la Vuelta 2019 había quedado tercero general a los diecinueve años y que era, según Rusconi, el corredor más parecido a Santi en la generación — estaba cuatro posiciones atrás. Santi lo vio en el espejo del coche del equipo. Pogačar tenía la cara del corredor que todavía está aprendiendo a estar en la primera fila.
+No todos. No con la atención larga del análisis. Con la atención rápida del escalador que en el primer kilómetro de pelotón ya está calibrando quién está a qué distancia y qué significa esa distancia. Fuglsang — el danés del Astana, el mismo que había ganado la Flecha Valona en mayo — estaba dos posiciones a la derecha con la cara del corredor que ha corrido el Ghisallo diecisiete veces y que sabe exactamente lo que viene. Valverde — el murciano de treinta y nueve años del Movistar, el corredor que había ganado esta misma carrera en dos mil dieciséis — estaba tres posiciones atrás. Santi lo vio en el espejo del coche del equipo: los ojos de Valverde en los suyos durante un segundo. El reconocimiento sin palabras del pelotón, el lenguaje del ciclismo que no necesita presentaciones.
 
-*Dentro de uno o dos años*, pensó Santi, *ya no va a tener esa cara.*
+Alaphilippe, el francés del Deceuninck, estaba cuatro posiciones atrás. Lo había visto en Yorkshire — habían competido en el mismo Mundial dos semanas antes. Aquí, en la Piazza Cittadella de Bergamo, el jersey arcoíris de Santi y la presencia de Alaphilippe eran los dos datos que el pelotón procesaba antes de que la bandera bajara.
 
 El director de carrera levantó la bandera.
 

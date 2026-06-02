@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 107 — El Lago di Como
+### Capítulo 107 — Lombardia III: El Lago di Como — llegada en Como (Il Lombardia, km 170–243, 12 de octubre de 2019)
 
 ---
 
@@ -20,7 +20,7 @@ La carretera del lago.
 
 La Strada Statale 583 que bordeaba el brazo oriental del Lago di Como — la carretera estrecha con el lago a la izquierda y las villas del siglo XIX a la derecha, las paredes de piedra, los olivos, los jardines cerrados con las verjas de hierro que en otoño tenían el color del hierro viejo y las hojas que se acumulaban sobre las verjas. La carretera que en los días normales tenía el tráfico de los coches que van y vienen entre los pueblos del lago y que en el día del Lombardia era solo la carrera: las motos, el helicóptero arriba, los coches de los directores a cien metros detrás, y adelante el corredor con el jersey arcoíris que en el kilómetro ciento ochenta de la carrera todavía iba solo.
 
-El pinganillo de Ferretti: *Un minuto cuarenta en la bajada. El grupo reagrupó. Van a tirar. Conservá lo que podés conservar hasta el Civiglio. El Civiglio decide.*
+El pinganillo de Ferretti: *Un minuto cuarenta en la bajada. El grupo reagrupó. Fuglsang y Valverde tirando. Conservá lo que podés conservar hasta el Civiglio. El Civiglio decide.*
 
 Santi: — Bien.
 
@@ -34,7 +34,7 @@ La aritmética era la aritmética.
 
 Santi rodó.
 
-El lago a la izquierda — el Lago di Como de las tres y media de la tarde de octubre con el cielo que se había cerrado desde el norte, las nubes más oscuras sobre los Alpes suizos al fondo, el reflejo del lago convertido en el gris del cielo. Las villas cerradas. Los olivares. Los muelles de los botes privados con las embarcaciones atadas para el invierno. Una figura de vez en cuando en la cuneta — el tifosi solitario que había elegido ver la carrera desde un punto donde casi nadie elegiría verla, lejos de la multitud del Ghisallo y del San Fermo, en el tramo tranquilo del lago donde la carrera pasa en treinta segundos y después no vuelve.
+El lago a la izquierda — el Lago di Como de las dos y media de la tarde de octubre con el cielo que se había cerrado desde el norte, las nubes más oscuras sobre los Alpes suizos al fondo, el reflejo del lago convertido en el gris del cielo. Las villas cerradas. Los olivares. Los muelles de los botes privados con las embarcaciones atadas para el invierno. Una figura de vez en cuando en la cuneta — el tifosi solitario que había elegido ver la carrera desde un punto donde casi nadie elegiría verla, lejos de la multitud del Ghisallo y del San Fermo, en el tramo tranquilo del lago donde la carrera pasa en treinta segundos y después no vuelve.
 
 Santi los veía pasar.
 
@@ -76,15 +76,15 @@ El lago seguía a la izquierda.
 
 ---
 
-En Laureles, a las cuatro y cinco de la tarde.
+En Laureles, a las tres de la tarde.
 
 La diferencia en el televisor: *Reyes +1:08*. El narrador colombiano: *El campeón del mundo lleva noventa kilómetros solo. El grupo intenta reducir pero Santi Reyes no pierde ventaja. Esto, señores, es una demostración.*
 
 Hernando escribía.
 
-*km 187. Diferencia: 1:08. Grupo: Fuglsang/Van Aert al frente. 12 km al Civiglio.*
+*km 187. Diferencia: 1:08. Grupo: Fuglsang/Valverde al frente. 12 km al Civiglio.*
 
-Llevaba dos horas en el sillón de la sala con el cuaderno sobre las rodillas. El café se había enfriado en la mesita. El quinto ciclo de quimioterapia había terminado hacía diez días y en las tardes donde la atención era total, el cuerpo de Hernando hacía la cosa que los cuerpos en recuperación hacen cuando la mente está en otra parte: procesar sin protestar. El dolor de espalda — el dolor residual post-tratamiento que el oncólogo llamaba *neuropatía periférica leve* — existía. Hernando lo sabía. No lo registraba como información relevante.
+Llevaba dos horas en el sillón de la sala con el cuaderno sobre las rodillas. El café se había enfriado en la mesita. El cuarto ciclo de quimioterapia había terminado hacía tres semanas — el quinto empezaba en noviembre — y en las tardes donde la atención era total, el cuerpo de Hernando hacía la cosa que los cuerpos en recuperación hacen cuando la mente está en otra parte: procesar sin protestar. El dolor de espalda — el dolor residual post-tratamiento que el oncólogo llamaba *neuropatía periférica leve* — existía. Hernando lo sabía. No lo registraba como información relevante.
 
 La información relevante estaba en la pantalla.
 
@@ -116,11 +116,11 @@ Santi subió el Civiglio.
 
 No fue el ataque del Ghisallo — fue la subida del corredor que necesita llegar arriba con suficiente para el San Fermo y que gestiona. El ritmo del noventa y cinco: el dolor presente, controlado, el umbral anaeróbico que en los seis kilómetros al nueve era el umbral del trabajo real. Los pulmones funcionando. Las piernas respondiendo. El depósito en el cuarenta y ocho por ciento.
 
-Al kilómetro tres del Civiglio el pinganillo: *El grupo está subiendo. Fuglsang y Van Aert solos al frente — se separaron del resto. Tu diferencia sobre los dos: cuarenta y ocho segundos.*
+Al kilómetro tres del Civiglio el pinganillo: *El grupo está subiendo. Fuglsang y Alaphilippe solos al frente — se separaron de Valverde. Tu diferencia sobre los dos: cuarenta y ocho segundos.*
 
 Santi no respondió.
 
-Cuarenta y ocho sobre Fuglsang y Van Aert en la mitad del Civiglio — la mitad de la diferencia del pie de la subida. El danés y el belga iban a recuperar veinte más en los tres kilómetros que faltaban. En la cima del Civiglio: ventaja de treinta y cinco segundos, cuarenta a lo sumo.
+Cuarenta y ocho sobre Fuglsang y Alaphilippe en la mitad del Civiglio — la mitad de la diferencia del pie de la subida. El danés y el francés iban a recuperar veinte más en los tres kilómetros que faltaban. En la cima del Civiglio: ventaja de treinta y cinco segundos, cuarenta a lo sumo.
 
 El San Fermo della Battaglia empezaba a nueve kilómetros del final de la carrera.
 
@@ -130,7 +130,7 @@ El pinganillo de Ferretti: *No calculés. Subí.*
 
 Santi subió.
 
-La cima del Civiglio a las cuatro y cuarenta de la tarde — el cielo más cerrado, las nubes del norte ya sobre el lago, el viento que había girado. No estaba lloviendo. El asfalto seco. La vista del lago desde la cima del Civiglio: el brazo occidental del Lago di Como, las luces de los pueblos que empezaban a encenderse en la tarde cerrada de octubre, Cernobbio y Moltrasio y Laglio a los lejos.
+La cima del Civiglio a las tres y cuarenta de la tarde — el cielo más cerrado, las nubes del norte ya sobre el lago, el viento que había girado. No estaba lloviendo. El asfalto seco. La vista del lago desde la cima del Civiglio: el brazo occidental del Lago di Como, las luces de los pueblos que empezaban a encenderse en la tarde cerrada de octubre, Cernobbio y Moltrasio y Laglio a los lejos.
 
 La diferencia en la cima: treinta y ocho segundos sobre Fuglsang. Dos minutos y once sobre el grupo principal.
 
@@ -142,15 +142,15 @@ La última hora de la carrera.
 
 El narrador colombiano en la transmisión: *Santi Reyes lleva ciento ochenta kilómetros al frente. Con el jersey arcoíris de campeón del mundo. En el monumento más hermoso del ciclismo. Y le falta el San Fermo.*
 
-Hernando escribió: *Cima Civiglio. +0:38 sobre Fuglsang. 21 km al final. Falta San Fermo.*
+Hernando escribió: *Cima Civiglio. +0:38 sobre Fuglsang. 21 km al final. Falta San Fermo. 3:40 pm.*
 
 Los doce kilómetros entre el Civiglio y el San Fermo fueron los doce kilómetros del cálculo.
 
-El cálculo de Ferretti en el pinganillo: *Treinta y ocho sobre Fuglsang. En el descenso te va a recuperar ocho, diez. Llegás al San Fermo con treinta. En el San Fermo Fuglsang puede subir en cuatro cincuenta. Con treinta segundos de ventaja, si vos subís en cuatro cuarenta y cinco —*
+El cálculo de Ferretti en el pinganillo: *Treinta y ocho sobre Fuglsang. En el descenso te va a recuperar ocho, diez. Llegás al San Fermo con treinta. Fuglsang puede subir el San Fermo en veintinueve minutos. Con treinta segundos de ventaja, si vos subís en veintisiete —*
 
-— ¿Cuánto me lleva el San Fermo?
+— ¿En cuánto subo el San Fermo?
 
-— Cuatro treinta.
+— Rusconi dice veintisiete. Quizás veintiséis y medio.
 
 — Entonces llego.
 
@@ -172,7 +172,7 @@ No el coraje. No la voluntad. La exactitud.
 
 El pie del San Fermo della Battaglia.
 
-Cuatro y cuarenta y ocho de la tarde.
+Las tres y cincuenta y dos de la tarde.
 
 La diferencia en el panel electrónico de la organización al pie de la subida: *+0:31 Fuglsang*.
 
@@ -190,7 +190,7 @@ Treinta y dos segundos en el kilómetro tres del San Fermo.
 
 *Subí a tu ritmo*, había dicho Ferretti. *No más.*
 
-El ritmo de Santi en el San Fermo a las cuatro y cincuenta y uno de la tarde del doce de octubre de dos mil diecinueve era el ritmo del corredor que ha dado todo durante cinco horas y que en los últimos noventa kilómetros ha dado más. El ácido láctico en los muslos — el ardor que en los puertos del Lombardia tiene el nombre específico que los corredores italianos llaman *gambero*, el cangrejo que muerde desde adentro. Los pulmones al límite funcional. La frecuencia cardíaca en ciento setenta y tres.
+El ritmo de Santi en el San Fermo a las tres y cincuenta y nueve de la tarde del doce de octubre de dos mil diecinueve era el ritmo del corredor que ha dado todo durante cinco horas y que en los últimos noventa kilómetros ha dado más. El ácido láctico en los muslos — el ardor que en los puertos del Lombardia tiene el nombre específico que los corredores italianos llaman *gambero*, el cangrejo que muerde desde adentro. Los pulmones al límite funcional. La frecuencia cardíaca en ciento setenta y tres.
 
 No era suficiente para sufrir.
 
@@ -198,7 +198,7 @@ Era exactamente suficiente para ganar.
 
 ---
 
-En Laureles, el narrador colombiano: *Santi Reyes en el San Fermo. Fuglsang a treinta segundos. Van Aert a un minuto diez. El campeón del mundo puede ganar la Clásica de Lombardía. El primer colombiano en ganar el Lombardia. El primer campeón del mundo en ganar el Lombardia el mismo año de su título en —*
+En Laureles, el narrador colombiano: *Santi Reyes en el San Fermo. Fuglsang a treinta segundos. Alaphilippe a cuarenta y cinco. El campeón del mundo puede ganar la Clásica de Lombardía. El primer colombiano en ganar el Lombardia. El primer campeón del mundo en ganar el Lombardia el mismo año de su título en —*
 
 Hernando puso el lápiz sobre la mesita.
 
@@ -250,7 +250,7 @@ El sprint del corredor que ha dado todo durante doscientos treinta y nueve kiló
 
 El arco a cincuenta metros.
 
-El lago a la izquierda — el Lago di Como de las cinco y cuatro minutos de la tarde del doce de octubre con el cielo cerrado y el agua gris y las luces de los pueblos en la orilla lejana.
+El lago a la izquierda — el Lago di Como de las cuatro y veintidós de la tarde del doce de octubre con el cielo cerrado y el agua gris y las luces de los pueblos en la orilla lejana.
 
 El arco.
 
@@ -262,7 +262,7 @@ Primero.
 
 ---
 
-El número en el panel de la organización: *Fuglsang +0:42. Van Aert +1:08.*
+El número en el panel de la organización: *Fuglsang +0:42. Alaphilippe +1:04.*
 
 Santi desaceleró.
 
@@ -284,7 +284,7 @@ El agua gris de octubre. Los Alpes suizos al fondo, apenas visibles entre las nu
 
 ---
 
-En Laureles, a las cinco y cinco de la tarde:
+En Laureles, a las cuatro y veintidós de la tarde:
 
 Hernando abrió el cuaderno.
 
@@ -329,16 +329,6 @@ El lago de Como al fondo de la llamada — el viento del lago que en el micrófo
 Silencio de los Reyes.
 
 El silencio que no era silencio.
-
-— El quinto ciclo terminó bien — dijo Hernando. — El doctor Gustavo lo confirmó el lunes.
-
-— Lo sé.
-
-— El primer semestre del año que viene — dijo Hernando — podemos empezar a hablar de otra cosa.
-
-— Lo sé — dijo Santi.
-
-Otro silencio.
 
 — Il Lombardia — dijo Hernando. — El Giro. El Mundial. — Una pausa. — Tres.
 

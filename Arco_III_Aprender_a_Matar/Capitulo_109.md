@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 109 — Campo base enero 2020
+### Capítulo 109 — Campo base enero 2020 (Sierra Nevada de Granada, 3–28 de enero de 2020)
 
 ---
 

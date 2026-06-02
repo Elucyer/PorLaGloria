@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 106 — El ataque
+### Capítulo 106 — Lombardia II: El ataque en el Ghisallo (Il Lombardia, km 91–170, 12 de octubre de 2019)
 
 ---
 
@@ -72,21 +72,11 @@ No la fragmentación catastrófica — la fragmentación que siempre ocurre cuan
 
 Santi se colocó en el interior del grupo de favoritos.
 
-Treinta y dos corredores. Fuglsang al frente, marcando el ritmo — el danés que había subido el Ghisallo diecisiete veces en su carrera y que conocía cada metro. Van Aert a la derecha de Fuglsang, sin esfuerzo aparente — el belga que no era un escalador puro pero que tenía el motor de los corredores que pueden hacer cualquier cosa durante un tiempo limitado. Alaphilippe tres posiciones atrás, el francés pequeño con la posición en la bicicleta del corredor que nació para las subidas cortas y empinadas.
+Treinta y dos corredores. Fuglsang al frente, marcando el ritmo — el danés que había subido el Ghisallo diecisiete veces en su carrera y que conocía cada metro. Valverde a la derecha de Fuglsang — el murciano con la experiencia de los treinta y nueve años sobre el Ghisallo, la posición del corredor que ha ganado este monumento y que en la subida tiene el ritmo del que sabe adónde va. Alaphilippe tres posiciones atrás, el francés pequeño con la posición en la bicicleta del corredor que nació para las subidas cortas y empinadas.
 
-Pogačar estaba a la izquierda de Santi.
+Nibali estaba a la izquierda de Santi.
 
-A un metro.
-
-Era la primera vez en la temporada que los dos rodaban juntos en una subida — en Yorkshire habían estado en el mismo pelotón pero no en el mismo grupo, la ruta de Yorkshire no era para los escaladores. Aquí, en el Ghisallo, el esloveno de veinte años estaba a un metro con la cara del corredor que tiene energía de sobra y que todavía no ha decidido qué hacer con ella.
-
-Santi lo miró un segundo.
-
-Pogačar no lo miró.
-
-Miraba adelante.
-
-*Dentro de uno o dos años*, volvió a pensar Santi, *ya no va a tener esa cara.*
+El siciliano del Bahrain — el campeón del Giro, el Tour y la Vuelta, el corredor que en los treinta y cuatro años de octubre tenía las piernas del veterano que en la montaña todavía podía hacer daño a cualquiera. Nibali no miró a Santi. Miraba el asfalto adelante, la posición del corredor que en el Ghisallo calcula sin mostrar el cálculo.
 
 Al kilómetro cuatro del Ghisallo — en la curva donde el asfalto giraba a la derecha y la vista del lago aparecía por primera vez, el lago de Como doscientos metros abajo con el gris del cielo que hacía el agua gris también — Santi se paró en los pedales.
 
@@ -112,9 +102,9 @@ Fuglsang reaccionó.
 
 Alaphilippe reaccionó.
 
-Van Aert no.
+Valverde no — el murciano que llevaba el ritmo de los treinta y nueve años y del Ghisallo diecisiete veces subido se quedó en su cadencia, la evaluación del veterano que en el kilómetro cuatro del Ghisallo sabe que el ataque del campeón del mundo tiene el riesgo de quemar a quien lo persigue.
 
-Pogačar no — el esloveno que en el Ghisallo todavía estaba aprendiendo cuándo irse se quedó tres segundos antes de reaccionar, y esos tres segundos en la pendiente del Ghisallo con Santi ya en vuelo eran tres segundos que se convertían en cinco metros, y cinco metros en el siete y medio del Ghisallo con el viento del lago son cinco metros que se convierten en diez.
+Nibali no — el siciliano que tres posiciones atrás calibró la brecha en el segundo uno y eligió no moverse, la misma elección que en el Tour de France le había dado los segundos para el contraataque.
 
 Fuglsang y Alaphilippe fueron.
 

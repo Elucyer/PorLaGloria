@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 112 — Aprender a Matar: Episodio 2 (Nairo Quintana)
+### Capítulo 112 — Aprender a Matar, Ep. 2: Nairo Quintana (grabado el 9 de abril de 2020)
 
 ---
 

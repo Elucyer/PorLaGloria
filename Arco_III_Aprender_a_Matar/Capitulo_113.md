@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 113 — Aprender a Matar: Episodio 3 (Rigoberto Urán)
+### Capítulo 113 — Aprender a Matar, Ep. 3: Rigoberto Urán (grabado el 28 de abril de 2020)
 
 ---
 
