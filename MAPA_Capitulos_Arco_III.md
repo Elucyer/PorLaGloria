@@ -351,6 +351,7 @@
 - [ ] Confirmar que Vingegaard NO corrió el Tour 2020 en realidad (su debut Grand Tour fue Vuelta 2020 como domestique de Roglič)
 - [ ] Revisar si en la narración del Tour 2020 (caps 115-134) se menciona a Vingegaard como figura secundaria visible o si se introduce solo en 2021
 - [ ] ¿Hernando va a Lieja 2021 en vivo o sigue por televisión? (cap 164)
+- [ ] **Lieja 2021 (cap 164): Julián Estrada debe estar al borde de la carretera en la provincia de Lieja, gritando el nombre de Santi con los brazos en alto, cara pintada de amarillo y azul, llorando sin avergonzarse.** Flash-forward prometido en Cap 6 del Arco I — deuda narrativa que hay que saldar aquí.
 - [ ] El Il Lombardia 2019 (caps 105-107): verificar el recorrido exacto de 2019 para las referencias geográficas específicas
 
 ---

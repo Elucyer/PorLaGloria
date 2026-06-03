@@ -122,7 +122,7 @@ Debajo de esa línea, escribió:
 
 *Mañana.*
 
-Cerró el cuaderno.
+Dejó el cuaderno en la mesa.
 
 La ventana de la habitación daba sobre el casco antiguo de Bergamo Alta — las torres medievales, el campanario de Santa Maria Maggiore, las luces de la ciudad alta que en la noche de octubre tenían el amarillo cálido de los edificios de piedra que almacenan el calor del día. Abajo, en la ciudad baja, los últimos tifosi del Lombardia que cada año llegaban la noche anterior para ver la salida y que mañana estarían en el Ghisallo o en el San Fermo o en el casco antiguo con sus banderas y su idioma del ciclismo que no se aprende en los libros.
 

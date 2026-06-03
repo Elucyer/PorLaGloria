@@ -70,7 +70,7 @@ Se sentó. Pidió café. Lo tomó despacio, mirando la mesa.
 
 —Cuatro horas.
 
-—Yo cinco. —Una pausa—. Pensé en el Finestre toda la noche.
+—Yo cinco. Pensé en el Finestre toda la noche.
 
 —¿Y?
 
@@ -130,7 +130,7 @@ Luego se levantó.
 
 —Froome va a atacar en el Finestre —dijo. Sin preámbulo—. No sé en qué kilómetro. Puede ser en el pie o en el sterrato o en la cima. Pero va a atacar porque hoy es el último día de montaña y lleva diecinueve días esperando este día.
 
-Una pausa.
+Ferretti miró la carretera.
 
 —Cuando ataque, Santi — cuando Froome ataque — tenés tres segundos para decidir si podés seguirle.
 
@@ -148,7 +148,7 @@ Lo dijo sin drama. Era información, no consuelo.
 
 —¿Cuánto tengo encima de él en la general ahora?
 
-—Cinco segundos. —Una pausa—. Si hoy perdés más de cinco, la rosa cambia de manos.
+—Cinco segundos. Si hoy perdés más de cinco, la rosa cambia de manos.
 
 Santi asintió.
 
@@ -158,7 +158,7 @@ El autobús arrancó hacia Venaria Reale.
 
 ---
 
-*Señal internacional — Eurosport España, 8:53 de la mañana (hora Colombia)*
+*Eurosport España — 8:53 a.m., hora Colombia*
 
 Carmen Cardona había llegado al apartamento de Laureles a las ocho menos cuarto con dos bolsas de la panadería: pan de bono, arepas de choclo y dos envueltos de mazorca que Hernando no había pedido pero que ella sabía que iban a necesitar porque el día que ella tenía por delante era un día largo.
 
@@ -346,7 +346,7 @@ Los dos solos en el sterrato del Finestre.
 
 ---
 
-*Señal internacional — Eurosport España, 2:54 de la tarde (hora Colombia)*
+*Canal Internacional — 2:54 p.m.*
 
 —¡¡REYES RESPONDE!! ¡¡El colombiano de dieciocho años responde al ataque de Froome en el sterrato del Finestre!! ¡¡Son dos, señores!! ¡¡Froome y Reyes solos en la grava del Finestre a dos mil metros sobre el mar!! Riccardo—
 
@@ -410,7 +410,7 @@ Cinco Grandes Vueltas y cero.
 
 ---
 
-*Señal internacional — Eurosport España, 3:41 de la tarde (hora Colombia)*
+*Transmisión Eurosport, 3:41 p.m., etapa 19*
 
 —Llevan ya cuarenta kilómetros juntos, Riccardo. Cuarenta kilómetros desde el ataque en el sterrato. Y Reyes sigue ahí. Sigue en la rueda de Froome.
 
@@ -504,7 +504,7 @@ Había nada que decir.
 
 ---
 
-*Señal internacional — Eurosport España, 4:19 de la tarde (hora Colombia)*
+*Eurosport España — 4:19 p.m., hora Colombia*
 
 —Froome abre brecha. Froome abre brecha en el kilómetro cinco del Jafferau. Reyes... Reyes no puede seguir. El colombiano cede. Riccardo—
 

@@ -164,7 +164,7 @@ El Tour de France 2020 en cuatro días.
 
 *Hernando tenía el cuaderno abierto en el balcón.*
 
-*El Valle de Aburrá abajo. Los samanes. El ruido de la ciudad.*
+*El Valle de Aburrá abajo. El ruido de la ciudad.*
 
 *El número subrayado dos veces: 41 segundos.*
 

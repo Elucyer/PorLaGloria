@@ -216,7 +216,7 @@ Santi no frenó.
 
 Siguió.
 
-El camino hacia Laureles, los semáforos del occidente, el barrio al que habían llegado cuando el padre todavía era gregario de los equipos regionales y que en los años que siguieron se había convertido en el barrio de los Reyes — el apartamento del cuarto piso, el balcón sobre los samanes, el café de las mañanas.
+El camino hacia Laureles, los semáforos del occidente, el barrio al que habían llegado cuando el padre todavía era gregario de los equipos regionales y que en los años que siguieron se había convertido en el barrio de los Reyes — el apartamento del cuarto piso, el balcón sobre el parque, el café de las mañanas.
 
 En el cuaderno de esa noche, la última entrada antes del Tour de Sierra Nevada:
 

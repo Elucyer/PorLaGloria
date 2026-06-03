@@ -15,7 +15,7 @@
 | Capitulo_005 | La Colnago | Floresta, nov. 2012 | ✅ Escrito |
 | Capitulo_006 | El rey de los puertos | 2013 | ✅ Corregido |
 | Capitulo_007 | Lo que no entienden — vida escolar | 2013–2014 | ✅ Escrito |
-| Capitulo_008 | Lo que enseña la caída — Las Palmas | 2013–2014 | ✅ Escrito |
+| Capitulo_008 | Lo que enseñjua la caída — Las Palmas | 2013–2014 | ✅ Escrito |
 | Capitulo_009 | El número — primer torneo oficial | ene. 2015 | ✅ Corregido |
 | Capitulo_010 | Lo que Ospina sabe | 2015 | ✅ Escrito |
 | Capitulo_011 | El récord del Boquerón | dic. 2015 | ✅ Reescrito |
@@ -36,12 +36,12 @@
 | Capitulo_026 | Vuelta del Porvenir — llegada y etapas 1–4 | ago. 2017 | ✅ Escrito |
 | Capitulo_027 | Vuelta del Porvenir — etapa reina / 4 segundos | ago. 2017 | ✅ Escrito |
 | Capitulo_028 | El hombre de la tablet — la invitación | ago–sep. 2017 | ✅ Escrito |
-| Capitulo_029 | Tour de l'Avenir — pelotón europeo | sep. 2017 | ✅ Escrito* |
-| Capitulo_030 | Los Alpes — oferta de Élan Cycliste | sep. 2017 | ✅ Escrito* |
-| Capitulo_031 | Despedida a Ospina, última Navidad en San José | dic. 2017 | ✅ Escrito |
-| Capitulo_032 | Llegada a Bélgica / Waregem | ene. 2018 | ✅ Escrito |
-| Capitulo_033 | Los adoquines — pavé con Clarke | ene–feb. 2018 | ✅ Escrito |
-| Capitulo_034 | Simon Clarke — mentor | feb. 2018 | ✅ Escrito |
+| Capitulo_029 | Tour de l'Avenir — pelotón europeo (Loudéac, semana 1) | ago. 2017 | ✅ Escrito |
+| Capitulo_030 | Tour de l'Avenir — etapa reina Sainte-Foy | ago. 2017 | ✅ Escrito |
+| Capitulo_031 | Tour de l'Avenir — Albiez-Montrond + oferta Élan Cycliste | ago. 2017 | ✅ Escrito |
+| Capitulo_032 | Despedida de Ospina / última Navidad en San José | nov–dic. 2017 | ✅ Escrito |
+| Capitulo_033 | Bélgica — llegada a Waregem, bicicleta, compañeros | ene–feb. 2018 | ✅ Escrito |
+| Capitulo_034 | Los adoquines — pavé con Clarke | ene–feb. 2018 | ✅ Escrito |
 | Capitulo_035 | Campo de entrenamiento en Mallorca | mar. 2018 | ✅ Escrito |
 | Capitulo_036 | La llamada — salud del padre | abr. 2018 | ✅ Escrito |
 | Capitulo_037 | Llegada a Jerusalem, nota en el Muro | may. 2018 | ✅ Escrito |
@@ -51,20 +51,15 @@
 
 ## PENDIENTES DE CORRECCIÓN
 
-| Archivo | Corrección necesaria | Estado |
-|---------|---------------------|--------|
-| Capitulo_029 | Tour de l'Avenir: cambiar Lyon → Loudéac; quitar Col de la Loze; Egan Bernal como referencia real | ⏳ Pendiente |
-| Capitulo_030 | Tour de l'Avenir: ajustar geografía de etapas alpinas al recorrido real 2017 | ⏳ Pendiente |
-| Capitulo_033 | Encabezado dice "Capítulo 19" → debe decir "Capítulo 33" | ⏳ Pendiente |
-| Capitulo_034 | Encabezado dice "Capítulo 20" → debe decir "Capítulo 34" | ⏳ Pendiente |
+*Sin pendientes activos.*
 
 ---
 
 ## NOTAS DE CONTINUIDAD
 
-- **Rodrigo Torres**: Caps. 3, 4, 16, 22. Padre operado de cáncer de pulmón (mayo 2017, operable). Pendiente: llamada desde Bélgica (entre 033–034)
+- **Rodrigo Torres**: Caps. 3, 4, 16, 22. Padre operado de cáncer de pulmón (mayo 2017, operable). Llamada desde Bélgica: ✅ resuelta en cap 033 (padre bien, trabajo normal, cooperativa). Reaparece en Arco II.
 - **Julián Estrada**: Caps. 6, 7, 16, 24. Parte a Bogotá, Javeriana, periodismo deportivo. Reaparece en Arco II.
-- **Carmen (madre)**: Caps. 3, 5, 11, 28. Pendiente: escena antes del vuelo a Europa
+- **Carmen (madre)**: Caps. 3, 5, 11, 28. Escena despedida antes del vuelo: ✅ resuelta al final de cap 032 (madrugada del vuelo, enero 2018).
 - **David Arroyave**: Caps. 17, 21, 23, 26, 27. Gana Porvenir 2017 por 4 segundos. Es el rival definitivo del Arco I. Aparece en Arco II como profesional.
 - **Ferney Ríos**: Caps. 14, 21. Contrarrelojista, rival en Juventud. Archivado.
 - **Geografía**: Santa Elena corregida en cap. 4. Las Palmas corregida en cap. 8. Boquerón: añadir punto de partida concreto en cap. 11.
@@ -75,5 +70,5 @@
 
 ## ARCO II (inicia cap. 39)
 
-Cubre 2018–2024: Giro de Italia completo (incluyendo Stelvio + muerte del padre), consolidación europea, Tour de France, cima de la carrera.
+Cubre 2018–2024: Giro de Italia completo (incluyendo Stelvio), consolidación europea, Tour de France, cima de la carrera.
 Ver BIBLIA_PorLaGloria.md para detalles del Arco II.

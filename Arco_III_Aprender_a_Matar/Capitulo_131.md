@@ -122,8 +122,6 @@ El cuaderno abierto en la última entrada:
 
 Cerró el cuaderno.
 
-Apagó la luz.
-
 El Tour de France 2020 empezaba mañana de verdad — en 36,2 kilómetros donde el reloj hablaba sin intermediarios y donde el ciclismo mostraba lo que en la montaña solo se mostraba en partes: el corredor completo, el que sube y el que cronometra, el que gana en el Loze y el que pierde en el llano de La Planche.
 
 Santi sabía lo que iba a pasar.

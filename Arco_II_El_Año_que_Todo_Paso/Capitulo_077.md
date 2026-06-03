@@ -312,7 +312,7 @@ Pensó qué más escribir. No escribió nada más.
 
 Era suficiente.
 
-Cerró el cuaderno. Apagó la luz.
+Dejó el cuaderno en la mesa.
 
 Durmió.
 

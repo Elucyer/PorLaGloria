@@ -222,8 +222,6 @@ Escribió la frase de Nairo: *el que decide primero tiene los segundos del que e
 
 Debajo escribió: *Tour de France. Agosto (si ocurre). La crono. Los segundos de Nairo en el Ventoux son los mismos segundos que yo perdí en la crono del Lombardia 2019 — excepto que yo no tenía crono. Todavía.*
 
-Cerró el cuaderno.
-
 La catedral de Santa María marcó las diez.
 
 El confinamiento afuera.

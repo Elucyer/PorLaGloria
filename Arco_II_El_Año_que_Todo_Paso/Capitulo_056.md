@@ -202,7 +202,7 @@ El Stelvio todavía no estaba en ese papel — el recorrido oficial no se presen
 
 Ferretti lo miró sin sorpresa.
 
-— Etapa veinte — dijo —. Penúltima. El recorrido oficial se presenta en Milán en octubre. Pero lo tenemos. — Una pausa —. El Stelvio a dos mil setecientos cincuenta y ocho metros. Cuarenta y ocho curvas desde Prato allo Stelvio. El puerto más alto de las grandes vueltas europeas.
+— Etapa veinte — dijo —. Penúltima. El recorrido oficial se presenta en Milán en octubre. Pero lo tenemos. Ferretti cerró el portafolios un momento y volvió a abrirlo. El Stelvio a dos mil setecientos cincuenta y ocho metros. Cuarenta y ocho curvas desde Prato allo Stelvio. El puerto más alto de las grandes vueltas europeas.
 
 — Lo conozco.
 
@@ -382,7 +382,7 @@ No era una pregunta. Era el nombre dicho como se dicen los nombres de los lugare
 
 Clarke tomó la cerveza.
 
-— Estaba en el coche de Ferretti cuando atacó. Duchêne repetía los tiempos por el radio cada kilómetro — cuánto llevabais, cuánto os separabais del grupo, cuánto quedaba de sterrato. — Una pausa — . El Zoncolan yo lo vi por el retrovisor cuando me descolgué en el kilómetro tres. Pero el Finestre lo escuché entero.
+— Estaba en el coche de Ferretti cuando atacó. Duchêne repetía los tiempos por el radio cada kilómetro — cuánto llevabais, cuánto os separabais del grupo, cuánto quedaba de sterrato. El Zoncolan yo lo vi por el retrovisor cuando me descolgué en el kilómetro tres. Pero el Finestre lo escuché entero.
 
 — ¿Todo el radio?
 

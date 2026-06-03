@@ -326,6 +326,62 @@ La comió a las once de la noche, calentada en la sartén, sin nada encima porqu
 
 Santi la terminó, lavó el plato, y anotó en la libreta: *Traer ingredientes de Colombia en el próximo viaje.*
 
+Ese domingo por la tarde llamó a Rodrigo.
+
+No porque tuviera una razón particular. Porque el sabor de la arepa falsa en la boca le había recordado las arepas reales, y las arepas reales le habían recordado San José de la Montaña, y San José de la Montaña le recordó a la única persona que quedaba ahí de todo lo que había sido él antes de los puertos y el Club Rionegro y el Tour de l'Avenir y este apartamento de Waregem.
+
+Rodrigo respondió al tercer timbre.
+
+—Marica, ¿dónde estás? —fue lo primero que dijo. No *hola*, no *qué hubo*. Como si siempre hubiera estado esperando que llamara.
+
+—En Bélgica.
+
+—¿Cómo es eso?
+
+—Plano. Muy plano. Y frío, pero diferente al frío de San José.
+
+—¿Diferente cómo?
+
+—El de allá es seco. Este se mete de otra manera.
+
+Rodrigo procesó eso.
+
+—El señor Torres está bien —dijo, sin que Santi lo hubiera preguntado todavía. Como si supiera que era lo primero que Santi iba a preguntar y le quitara el trabajo.
+
+—¿Bien bien?
+
+—Bien bien. Volvió a la cooperativa en agosto. Flaco todavía, pero trabaja completo. El médico dijo que la quimio quedó limpia.
+
+—Qué bueno.
+
+—Sí. —Una pausa—. ¿Y vos?
+
+—Bien. Empezando a conocer esto. —Una pausa—. ¿Vos qué estás haciendo?
+
+—Trabajando con mi tío. Abrió una ferretería en el pueblo.
+
+No estudió en ningún lado, al menos por ahora. Rodrigo no lo dijo así, pero Santi lo entendió. Había cosas que no necesitaban explicación entre los dos.
+
+Hablaron diez minutos más. Nada importante. En San José las sillas del kiosco eran naranjas otra vez. El perro de los Montoya había muerto de viejo. El cura nuevo era más joven que el anterior y hablaba muy rápido en las misas.
+
+Cosas pequeñas. El ruido de fondo de un lugar donde el tiempo pasaba diferente.
+
+—Para el Giro, en mayo, ¿se va a ver acá? —preguntó Rodrigo al final.
+
+—Ciclo Rojo lo pasa siempre.
+
+—Entonces ahí estoy. Con mi papá, que ya sabe tu nombre mejor que yo.
+
+Cuando colgaron, Santi se quedó con el teléfono en la mano mirando la pantalla apagada. Afuera la calle de Waregem con sus adoquines mojados y sus farolas y ninguna montaña visible en ninguna dirección.
+
+*El señor Torres está bien.*
+
+Era lo que necesitaba saber.
+
+Abrió la libreta. Escribió: *Rodrigo: llamado. El señor Torres bien — trabajo normal.*
+
+Cerró la libreta.
+
 ---
 
 Los desayunos del cuartel empezaban a las siete y media.

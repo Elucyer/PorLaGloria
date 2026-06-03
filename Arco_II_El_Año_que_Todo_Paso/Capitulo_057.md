@@ -86,7 +86,7 @@ Santi los conocía de memoria.
 
 Cerró la tablet.
 
-Apagó la luz.
+Las persianas del hotel filtraban la luz de la calle.
 
 ---
 

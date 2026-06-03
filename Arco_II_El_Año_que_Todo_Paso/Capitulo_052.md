@@ -50,7 +50,7 @@ Santi lo miró.
 
 —¿Y?
 
-—Y en enero vuelvo a firmar el contrato. —Una pausa—. Ayer fue lo más grande que he visto en una carrera, Santi. No en este Giro. En ningún Giro.
+—Y en enero vuelvo a firmar el contrato. Ayer fue lo más grande que he visto en una carrera, Santi. No en este Giro. En ningún Giro.
 
 Santi no respondió.
 
@@ -76,7 +76,7 @@ Era la instrucción más corta que Ferretti le había dado en veintiún días de
 
 ---
 
-*Señal internacional — Eurosport España, 7:42 de la mañana (hora Colombia)*
+*Eurosport España — 7:42 a.m., hora Colombia*
 
 Hernando Reyes encendió el televisor antes de que Carmen llegara de la panadería.
 
@@ -129,8 +129,6 @@ Miró al grupo.
 Ferretti se levantó.
 
 —Santi —dijo—. Hoy vos no hacés nada. Rodás en el grupo de Froome. Si Froome decide subir Cervinia al ochenta por ciento, vos subís al setenta y cinco. Si Dumoulin intenta algo, no lo seguís — que lo siga el Sky. Nuestro trabajo hoy es llegar a Roma mañana en la posición que tenemos hoy.
-
-Una pausa.
 
 —¿Entendido?
 
@@ -262,7 +260,7 @@ Carmen estuvo en silencio durante un momento. Luego dijo:
 
 Hernando miró la pantalla.
 
-—Bien —dijo—. Como toma todo. —Una pausa—. Preguntó cuándo era la operación. Preguntó si estaba yo bien. Y me dijo que al día siguiente había una etapa.
+—Bien —dijo—. Como toma todo. Hernando tomó el café. Preguntó cuándo era la operación. Preguntó si estaba yo bien. Y me dijo que al día siguiente había una etapa.
 
 Carmen no dijo nada.
 
@@ -310,7 +308,7 @@ Clarke asintió y volvió a su posición sin decir nada más, con la economía d
 
 ---
 
-*Señal internacional — Eurosport España, 4:08 de la tarde (hora Colombia)*
+*Canal Internacional — 4:08 p.m.*
 
 —¡La fuga llega a Cervinia! ¡Con diez minutos de ventaja sobre el pelotón, Mikel Nieve encabeza al grupo de escapados en los últimos kilómetros de la subida! ¡El veterano vasco del Mitchelton–Scott puede ganar hoy!
 
@@ -386,7 +384,7 @@ El Cervino, rojo de la luz de última hora, la pirámide perfecta sobre los glac
 
 ---
 
-*Señal internacional — Eurosport España, 4:57 de la tarde (hora Colombia)*
+*Transmisión Eurosport, 4:57 p.m., etapa 20*
 
 —Y así concluye la Etapa 20 del Giro d'Italia 2018 con la victoria de Mikel Nieve — la victoria más emotiva de esta edición, Fernando, por todo lo que representa para el veterano. Y el pelotón de Froome llega dos minutos y cuarenta y siete después, con la clasificación general intacta.
 
@@ -422,7 +420,7 @@ La cena del equipo esa noche fue en el restaurante del hotel — no en el comedo
 
 Ferretti habló brevemente al principio.
 
-—Mañana son ciento quince kilómetros en circuito por Roma. No hay etapa de montaña. No hay general en juego. El equipo rueda junto hasta el final — nadie se dispersa, nadie trabaja para nadie. Llegamos juntos a Roma y en el Foro Italico hay un podio. —Una pausa—. Esta noche dormid bien. Os lo habéis ganado.
+—Mañana son ciento quince kilómetros en circuito por Roma. No hay etapa de montaña. No hay general en juego. El equipo rueda junto hasta el final — nadie se dispersa, nadie trabaja para nadie. Llegamos juntos a Roma y en el Foro Italico hay un podio. Esta noche dormid bien. Os lo habéis ganado.
 
 Se sentó.
 
@@ -463,8 +461,6 @@ Hernando respondió al primer timbre.
 —Llegaste.
 
 —Sí.
-
-Una pausa.
 
 —¿Cómo tenés las piernas? —dijo Hernando.
 
@@ -527,7 +523,5 @@ Sacó el cuaderno.
 *Cuatro puertos. Llegué.*
 
 Cerró el cuaderno.
-
-Apagó la luz.
 
 Durmió.

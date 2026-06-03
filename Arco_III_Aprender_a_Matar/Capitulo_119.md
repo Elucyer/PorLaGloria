@@ -8,7 +8,7 @@ En el ciclismo de los Grand Tours, los primeros días no son de transición.
 
 Son de observación.
 
-La transición implica que no pasa nada. Pero en un pelotón con tres tiburones, siempre pasa algo — solo que lo que pasa no aparece en los resultados oficiales. Lo que pasa está en los datos que Rusconi recopila cada noche en el portátil y que a las siete de la mañana del día siguiente entrega a Santi en una hoja de papel con las anotaciones en rojo y verde: rojo para lo que preocupa, verde para lo que confirma.
+La transición implica que no pasa nada. Pero con los tres en carrera, siempre pasa algo — solo que lo que pasa no aparece en los resultados oficiales. Lo que pasa está en los datos que Rusconi recopila cada noche en el portátil y que a las siete de la mañana del día siguiente entrega a Santi en una hoja de papel con las anotaciones en rojo y verde: rojo para lo que preocupa, verde para lo que confirma.
 
 La primera semana del Tour 2020 tuvo mucho verde.
 
@@ -114,7 +114,7 @@ Eso era lo que estaba calibrando en el techo del hotel de Sisteron.
 
 El cuarto día: la primera vez que los tres estaban en el mismo grupo final en una llegada con algo de montaña.
 
-La E2 (Nice-Nice) había tenido el Col de la Colmiane y el Col d'Èze — dos puertos de primer nivel que en la primera semana del Tour normalmente habrían sido los puertos de la primera batalla. En el Tour de dos mil veinte, con los tres tiburones presentes, los dos puertos de la segunda etapa fueron los puertos de la primera observación mutua.
+La E2 (Nice-Nice) había tenido el Col de la Colmiane y el Col d'Èze — dos puertos de primer nivel que en la primera semana del Tour normalmente habrían sido los puertos de la primera batalla. En el Tour de dos mil veinte, con los tres en el mismo pelotón, los dos puertos de la segunda etapa fueron los puertos de la primera observación mutua.
 
 Nadie atacó de verdad.
 
@@ -144,7 +144,7 @@ Santi: — Cuando tenga razón para hacerlo.
 
 La zona mixta fue diez minutos.
 
-En los diez minutos de zona mixta post-etapa, los tres tiburones habían dicho exactamente lo necesario para no decir nada. Era el lenguaje de los tres en las primeras etapas: las respuestas que cubren el protocolo sin revelar la táctica. Porque la táctica de los tres en esos primeros días era la misma — observar, medir, guardar — y esa táctica no tenía razón de ser explicada a los periodistas de la zona mixta.
+En los diez minutos de zona mixta post-etapa, los tres habían dicho exactamente lo necesario para no decir nada. Era el lenguaje de los tres en las primeras etapas: las respuestas que cubren el protocolo sin revelar la táctica. Porque la táctica de los tres en esos primeros días era la misma — observar, medir, guardar — y esa táctica no tenía razón de ser explicada a los periodistas de la zona mixta.
 
 ---
 
@@ -174,7 +174,7 @@ Santi escuchó.
 
 Anotó: *Orcières-Merlette: 7 km al 7,5%. Pogačar en su rango óptimo. Roglič: dato pendiente. Primer número real en cuatro días.*
 
-Cerró el cuaderno.
+Dejó el cuaderno en la mesa.
 
 — Bien — dijo.
 
@@ -196,7 +196,7 @@ En el balcón de Laureles a las diez de la noche de Colombia, Hernando tenía el
 
 No dormía.
 
-Miraba el parque de los samanes que en la oscuridad de la noche tenían el perfil de los árboles que no se ven pero que están.
+Miraba el parque — los árboles en la oscuridad de la noche, con ese perfil que no se ve pero que está.
 
 El Tour en cuatro días iba a llegar a la primera montaña real.
 

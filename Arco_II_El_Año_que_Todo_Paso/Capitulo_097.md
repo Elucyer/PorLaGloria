@@ -40,7 +40,7 @@ Hernando esperó a que Santi guardara el teléfono.
 
 — Yorkshire. Veintinueve de septiembre.
 
-Hernando asintió. No dijo nada durante un momento. Miró el parque — los samanes, los corredores, la luz de septiembre que en Medellín era la luz de la primera lluvia del segundo semestre, más suave que la de julio, con las nubes que en las mañanas todavía dejaban pasar el sol y que en las tardes lo cerraban.
+Hernando asintió. No dijo nada durante un momento. Miró el parque — los árboles del parque, los corredores, la luz de septiembre que en Medellín era la luz de la primera lluvia del segundo semestre, más suave que la de julio, con las nubes que en las mañanas todavía dejaban pasar el sol y que en las tardes lo cerraban.
 
 — ¿El recorrido? — dijo.
 

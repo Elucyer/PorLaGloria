@@ -124,7 +124,7 @@ No para hablar de Burgos. Para hablar de octubre y noviembre y de la estructura 
 
 — ¿Ya tienen el recorrido?
 
-— La presentación oficial es en octubre pero tenemos la información interna. — Una pausa —. El Giro 2019 pasa dos veces por los Dolomitas. El Stelvio está en la tercera semana.
+— La presentación oficial es en octubre pero tenemos la información interna. El Giro 2019 pasa dos veces por los Dolomitas. El Stelvio está en la tercera semana.
 
 Santi no respondió de inmediato.
 

@@ -80,7 +80,7 @@ Debajo, sin pensar demasiado:
 
 *Mañana se ve quién tiene el cinco.*
 
-Cerró el cuaderno. Apagó la luz.
+Guardó el cuaderno.
 
 ---
 

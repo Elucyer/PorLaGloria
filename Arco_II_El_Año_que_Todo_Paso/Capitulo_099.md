@@ -234,7 +234,7 @@ Escribió una sola línea.
 
 Cerró el cuaderno.
 
-Apagó la luz.
+Se dio vuelta hacia la pared.
 
 ---
 

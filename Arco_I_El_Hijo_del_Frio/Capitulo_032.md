@@ -175,3 +175,63 @@ Había desayuno esperando y una Navidad que festejar y dos semanas antes del vue
 El futuro podía esperar.
 
 San José de la Montaña, por última vez, no.
+
+---
+
+El vuelo salía a las seis y cuarenta de la mañana.
+
+Su madre lo despertó a las tres y cuarto, aunque Santi llevaba media hora despierto en la oscuridad del cuarto. La noche anterior habían hecho las maletas —una grande con la ropa de invierno que habían comprado en el Éxito del centro, la mochila con los documentos y el portátil— y su padre había llevado la caja de la bicicleta al aeropuerto el día anterior con la camioneta de la distribuidora.
+
+Carmen estaba en la cocina.
+
+No había hecho desayuno —a las tres de la mañana el cuerpo no pide comida— pero el café estaba hecho y había dos arepas envueltas en papel aluminio sobre la mesa.
+
+—Para el aeropuerto —dijo—. O en el avión, si te dejan.
+
+Santi tomó el café. Las arepas las metió en la mochila sin abrirlas.
+
+Carmen se sentó enfrente. Lo miraba de la manera en que lo había mirado toda la semana: con esa atención que no era vigilancia sino otra cosa, la de alguien que está aprendiendo de memoria algo que va a necesitar recordar después.
+
+—¿Tienes todo? —dijo.
+
+—Sí.
+
+—El número de la embajada.
+
+—Sí, ma.
+
+—Impreso. No solo en el teléfono.
+
+—Lo tengo impreso.
+
+Silencio.
+
+Carmen rodeó el pocillo con las dos manos, aunque ya no estaba caliente.
+
+—¿Tienes miedo? —dijo.
+
+Era la primera vez que se lo preguntaba directamente. En todos los años anteriores —las madrugadas en el Alto de Minas, el primer torneo, el Tour de l'Avenir— nunca se la había hecho.
+
+Santi pensó si decir que no.
+
+—Algo —dijo.
+
+Su madre asintió. No con alivio ni con alarma. Con el gesto de quien confirma algo que ya sabía y que era la respuesta correcta.
+
+—Bien —dijo—. El que no tiene nada de miedo no entiende lo que está haciendo.
+
+No dijo más.
+
+Hernando llegó a las tres y cuarenta con las llaves del taxi en la mano.
+
+Santi se levantó. Tomó la mochila. Carmen también se levantó.
+
+Lo abrazó. No fue un abrazo largo —no de esos que tratan de alargar el momento, que hacen el momento más pesado de lo que ya es. Fue el abrazo preciso y firme de alguien que ha practicado toda la vida no dejar que las emociones se desborden donde no ayudan.
+
+Le puso la mano en la mejilla. Un segundo. La retiró.
+
+—Llama cuando llegues —dijo.
+
+—Llamo cuando llegue.
+
+Salieron.

@@ -6,7 +6,7 @@
 
 Santi volvió a Medellín el primero de octubre.
 
-No porque fuera la opción más eficiente para el calendario de la temporada — octubre tenía la Clásica de Lombardía el doce, y el vuelo de Harrogate a Milán era directo, sin el rodeo del Atlántico. Volvió porque había prometido volver y porque la promesa tenía el peso de las promesas que se hacen frente a un balcón de Laureles con el café de la mañana y el parque de los samanes podados.
+No porque fuera la opción más eficiente para el calendario de la temporada — octubre tenía la Clásica de Lombardía el doce, y el vuelo de Harrogate a Milán era directo, sin el rodeo del Atlántico. Volvió porque había prometido volver y porque la promesa tenía el peso de las promesas que se hacen frente a un balcón de Laureles con el café de la mañana y el parque con los árboles podados.
 
 El vuelo de Manchester a Medellín fue largo.
 
@@ -44,7 +44,7 @@ Hernando asintió.
 
 — En el avión.
 
-Hernando miró el parque. Los samanes de Laureles — los samanes que habían vuelto a crecer después de la poda municipal de junio con la determinación tropical de los árboles que no entienden que la tijera del municipio sea una instrucción permanente. Estaban casi completos otra vez. Tres meses de crecimiento.
+Hernando miró el parque. Los árboles de Laureles — los que habían vuelto a crecer después de la poda municipal de junio con la determinación tropical de los árboles que no entienden que la tijera del municipio sea una instrucción permanente. Estaban casi completos otra vez. Tres meses de crecimiento.
 
 — El Jenkin Road — dijo Hernando.
 
@@ -78,7 +78,7 @@ Carmen salió con el café de Santi — el café que había preparado desde que 
 
 Los tres en el balcón.
 
-El parque abajo. Los samanes. La tarde de octubre que en Medellín empezaba a cerrar con las nubes del segundo semestre — las nubes que llegaban a las tres, tres y media, con la lluvia que en el Valle de Aburrá era la lluvia de los meses donde el año se cierra.
+El parque abajo, con la arboleda de la tarde de octubre que en Medellín empezaba a cerrar con las nubes del segundo semestre — las nubes que llegaban a las tres, tres y media, con la lluvia que en el Valle de Aburrá era la lluvia de los meses donde el año se cierra.
 
 ---
 
@@ -156,11 +156,11 @@ Ocho días en Medellín y después el vuelo de vuelta.
 
 Los días siguientes en Medellín tuvieron el ritmo de los días del corredor entre carreras: el entrenamiento de mantenimiento en las mañanas, la visita al Pablo Tobón el miércoles con Hernando, las tardes en el balcón de Laureles.
 
-El apartamento de Laureles al que se habían mudado hacía dos años y medio — cuando el primer contrato serio del FCV-Procycling había traído el dinero suficiente para dejar el apartamento de Floresta donde habían vivido desde que llegaron de San José en el año doce. El cuarto piso con la vista sobre los samanes que en octubre seguían verdes con la indiferencia tropical de los árboles que no tienen otoño.
+El apartamento de Laureles al que se habían mudado hacía dos años y medio — cuando el primer contrato serio del FCV-Procycling había traído el dinero suficiente para dejar el apartamento de Floresta donde habían vivido desde que llegaron de San José en el año doce. El cuarto piso con la vista sobre las copas anchas del parque, verdes todavía en octubre con la indiferencia tropical de los árboles que no tienen otoño.
 
 Hernando en el balcón las tardes.
 
-El libro del ferrocarril antioqueño. El café. Los samanes. El cuerpo del cuarto ciclo que se recuperaba con la lentitud que el cuarto ciclo había establecido: más lento que en los meses anteriores, con la fatiga acumulada de los cuatro tratamientos que en el cuerpo de Hernando era la fatiga visible del corredor en la última semana del Giro — presente, funcionando, sin sobrar nada.
+El libro del ferrocarril antioqueño. El café. El verde del parque abajo. El cuerpo del cuarto ciclo que se recuperaba con la lentitud que el cuarto ciclo había establecido: más lento que en los meses anteriores, con la fatiga acumulada de los cuatro tratamientos que en el cuerpo de Hernando era la fatiga visible del corredor en la última semana del Giro — presente, funcionando, sin sobrar nada.
 
 El quinto ciclo estaba programado para la primera semana de noviembre.
 
@@ -210,7 +210,7 @@ Hernando cerró el libro.
 
 Miró el parque.
 
-Los samanes de Laureles con las hojas completas de noviembre — el verde tropical que no se volvía naranja ni marrón porque en Medellín no había el otoño de las latitudes templadas, solo el verde continuo del trópico que existía independiente de lo que el calendario dijera.
+Los árboles del parque con las hojas completas de noviembre — el verde tropical que no se volvía naranja ni marrón porque en Medellín no había el otoño de las latitudes templadas, solo el verde continuo del trópico que existía independiente de lo que el calendario dijera.
 
 Santi salió al balcón con el café.
 
@@ -244,7 +244,7 @@ Porque era lo que era.
 
 Bebieron el café.
 
-El parque de Laureles abajo con los samanes que eran los mismos samanes de siempre.
+El parque de Laureles abajo, igual que siempre.
 
 ---
 

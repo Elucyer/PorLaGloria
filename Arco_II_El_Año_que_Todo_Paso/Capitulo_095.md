@@ -66,7 +66,7 @@ Marcela Saldarriaga lo miró. Era la periodista que en doce años había aprendi
 
 Escribió.
 
-La entrevista duró dos horas. Cuando Marcela Saldarriaga se fue, Santi volvió al balcón y se quedó mirando el parque de Laureles con los samanes de junio — los samanes que habían crecido de vuelta después de la poda municipal de mayo, con esa determinación tropical que no entiende de podas.
+La entrevista duró dos horas. Cuando Marcela Saldarriaga se fue, Santi volvió al balcón y se quedó mirando el parque de Laureles con los samanes de junio — los árboles que habían crecido de vuelta después de la poda municipal de mayo, con esa determinación tropical que no entiende de podas.
 
 La entrevista de *El Colombiano* salió al día siguiente en portada.
 
@@ -428,7 +428,7 @@ La casa nueva la encontró Carmen.
 
 No Santi — Carmen. Porque Carmen llevaba cuatro meses pasando por el barrio de Laureles con los ojos abiertos de la mujer que ha vivido en un apartamento de setenta metros cuadrados durante doce años y que en el segundo semestre de 2019 sabe que las cosas han cambiado de una manera que incluye el espacio donde vive la familia.
 
-Era una casa en la calle 73 con carrera 75 — a seis cuadras del apartamento, en el mismo barrio, con la misma distancia al parque y los mismos samanes pero con dos pisos, patio trasero, garaje para dos carros, cuatro habitaciones y un cuarto adicional que en la descripción del inmobiliario era *para visitas o estudio*.
+Era una casa en la calle 73 con carrera 75 — a seis cuadras del apartamento, en el mismo barrio, con la misma distancia al parque y los mismos árboles pero con dos pisos, patio trasero, garaje para dos carros, cuatro habitaciones y un cuarto adicional que en la descripción del inmobiliario era *para visitas o estudio*.
 
 Carmen la vio un martes de julio y llamó a Santi esa misma tarde.
 

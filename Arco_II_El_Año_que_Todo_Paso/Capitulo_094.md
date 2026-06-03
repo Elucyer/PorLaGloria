@@ -56,7 +56,7 @@ El verano colombiano no existe como el verano europeo — en la zona cafetera no
 
 Hernando salía al balcón por las mañanas.
 
-El balcón del apartamento de Laureles — el balcón de dos metros cuadrados con la baranda de hierro y las dos sillas de plástico blancas que Carmen había puesto ahí cuando llegaron al apartamento doce años atrás y que habían sobrevivido a doce años de lluvia y sol con la resiliencia de los objetos de plástico que no son bonitos pero son eternos. El balcón con la vista hacia la calle de debajo y el parque y los samanes recién podados del municipio.
+El balcón del apartamento de Laureles — el balcón de dos metros cuadrados con la baranda de hierro y las dos sillas de plástico blancas que Carmen había puesto ahí cuando llegaron al apartamento doce años atrás y que habían sobrevivido a doce años de lluvia y sol con la resiliencia de los objetos de plástico que no son bonitos pero son eternos. El balcón con la vista hacia la calle de debajo y el parque con la arboleda recién podada del municipio.
 
 Hernando tomaba el café de la mañana en el balcón.
 

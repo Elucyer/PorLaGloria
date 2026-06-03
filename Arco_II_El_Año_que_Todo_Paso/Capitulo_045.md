@@ -92,7 +92,7 @@ El autobús arrancó.
 
 ---
 
-*Señal internacional — Eurosport España, 8:47 de la mañana (hora Colombia)*
+*Eurosport España — 8:47 a.m., hora Colombia*
 
 En el apartamento de Laureles, Hernando Reyes estaba sentado en el sofá con el café de las ocho y media todavía sin terminar. Carmen Cardona estaba a su lado —había llegado a las ocho menos cuarto, cuando él la llamó para decirle que encendiera el televisor, que hoy era el Zoncolan.
 
@@ -194,7 +194,7 @@ Pausa.
 
 ---
 
-*Señal internacional — Eurosport España, 9:14 de la mañana (hora Colombia)*
+*Transmisión Eurosport, 9:14 a.m., etapa 14*
 
 —¡Verstraeten abandona! ¡El líder de Élan Cycliste abandona en el pie del Zoncolan con la rodilla izquierda. Riccardo, ¿qué significa esto para el equipo?
 
@@ -258,7 +258,7 @@ El grupo de favoritos tardó tres segundos en reaccionar. En esos tres segundos,
 
 ---
 
-*Señal internacional — Eurosport España, 9:22 de la mañana (hora Colombia)*
+*Canal Internacional — 9:22 a.m.*
 
 —¡¡Reyes ataca!! ¡¡El colombiano ataca en el kilómetro ocho del Zoncolan!! ¡Nadie le sigue! ¡Yates mira a Froome! ¡Froome mira a Yates! ¡Y Reyes se va solo!
 

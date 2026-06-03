@@ -208,7 +208,7 @@ Debajo de las tres líneas, una sola más:
 
 *No sé cuál es la mía. Todavía.*
 
-Cerró el cuaderno.
+Guardó el cuaderno.
 
 El confinamiento afuera. Girona quieta bajo el cielo de mayo que empezaba a calentar. La primavera catalana llegando sin que el mundo supiera todavía si el verano iba a ser el verano de la vuelta o el verano de la espera.
 

@@ -137,7 +137,7 @@ Ferretti lo miró a Santi.
 
 Santi asintió.
 
-Cerró el cuaderno.
+Guardó el cuaderno.
 
 *La crono de La Planche: GC +1:01 sobre Roglič. Margen proyectado: +41". Margen mínimo posible: +11".*
 

@@ -106,93 +106,17 @@ Santi siguió solo.
 
 ---
 
-En el kilómetro veintiuno — la parte media de la subida, donde la pendiente del cinco cedía momentáneamente al cuatro antes de volver al seis en los últimos diez kilómetros — un corredor empezó a subir al mismo ritmo que Santi.
+En el kilómetro veintiuno, un corredor del FCV empezó a subir al mismo ritmo que Santi.
 
-No al lado — tres metros atrás, en la línea del asfalto donde el ciclista que sigue a otro sin estar exactamente a su rueda puede calibrar el ritmo sin que el seguimiento sea obivio.
+No al lado — tres metros atrás. Santi lo oyó antes de verlo: la cadencia constante del motor bien calibrado para esa pendiente, la respiración del corredor que va a ese ritmo sin que le cueste.
 
-Santi lo oyó antes de verlo.
+Cuando incrementó al noventa y dos, el corredor también incrementó. No como respuesta — como si ya lo supiera.
 
-El sonido de la cadena — el sonido específico que el oído del escalador aprende a leer como información: la cadencia, la frecuencia, el esfuerzo en la respiración. Este corredor tenía el sonido del corredor que va a ese ritmo sin que le cueste — la cadencia constante del motor bien calibrado para esa pendiente específica.
-
-Santi no miró.
-
-Continuó.
-
-Al kilómetro veinticinco, incrementó dos vatios.
-
-El corredor de atrás incrementó.
-
-Al kilómetro veintisiete, Santi incrementó cuatro vatios más.
-
-El corredor incrementó.
-
-Tres vatios más. Cuatro. El corredor respondía con la precisión del que no tiene un vatímetro sino el cuerpo que sabe lo que pide sin necesitarlo.
-
-Al kilómetro veintinueve, Santi miró por primera vez.
-
-Era un corredor del Jumbo-Visma.
-
-El kit amarillo y negro del equipo holandés que en los campos de Sierra Nevada de enero compartía el hotel y la carretera con el FCV-WorldTour y con el Ineos y con el Movistar — los equipos WorldTour que en los primeros días del año convergían en los dos mil metros de Sierra Nevada para el mismo trabajo de construcción de base.
-
-El corredor del Jumbo era joven — no los veintiuno de Pogačar, un par de años más. El pelo rubio oscuro cubierto por el casco. La posición en la bicicleta del escalador delgado y eficiente: los codos levemente doblados, el tronco horizontal, la cadencia que en el Veleta al seis por ciento era la cadencia del corredor que ha encontrado su frecuencia óptima y que no la cambia porque no necesita cambiarla.
-
-No miraba a Santi.
-
-Miraba el asfalto. El kilómetro treinta, el treinta y uno, el treinta y dos. El corredor del Jumbo a tres metros, los ojos hacia adelante, la misma cadencia.
-
-Al kilómetro treinta, Santi pasó al noventa y dos por ciento.
-
-No el noventa y dos que Rusconi pedía para el día — el noventa y dos que era el noventa y dos de quien quiere saber qué tiene el corredor de atrás.
-
-El corredor del Jumbo pasó al noventa y dos por ciento.
-
-Santi lo notó en el audio — la respiración que se ajustó, la cadencia que subió en dos puntos, el sonido del cuerpo que incrementa y que en el incremento no pierde el ritmo.
-
-No era un corredor que seguía.
-
-Era un corredor que respondía.
-
-Al kilómetro treinta y dos, el corredor del Jumbo habló.
-
-— Luca Arnheim — dijo. En español, con el acento del alemán que ha aprendido el español del pelotón europeo — el español del vestuario y de la radio del equipo, no el español de los libros. Dos palabras. Solo el nombre.
-
-Santi rodó otros tres metros antes de responder.
-
-— Santi — dijo.
-
-Arnheim no respondió.
-
-No porque no supiera el nombre. El nombre de Santi en el pelotón del ciclismo mundial en enero de dos mil veinte era el nombre que no necesitaba respuesta.
-
-Rodaron juntos hasta el kilómetro treinta y seis. Ahí Ferretti por el pinganillo: *Bajad la intensidad — es trabajo aeróbico, no competitivo. El objetivo del día es la zona tres, no la cuatro.*
-
-Santi bajó.
-
-Arnheim bajó al mismo tiempo.
-
-La sincronía fue lo que Santi notó — no el hecho de que Arnheim bajara, que era lo esperable cuando el corredor de delante baja, sino la sincronía. El milisegundo entre el momento en que Santi ajustó la cadencia y el momento en que Arnheim la ajustó. Era demasiado rápido para ser una respuesta consciente.
-
-Era un reflejo.
-
-El tipo de reflejo que solo tienen los corredores que han pasado miles de horas en montaña con otros y que en la subida leen el cuerpo del que va delante con una precisión que supera el análisis racional.
-
-En el descenso, a las dos de la tarde de Sierra Nevada, Santi lo pensó.
-
-El corredor alemán del Jumbo-Visma. El año de Arnheim en el WorldTour: su tercera temporada. Los resultados anteriores: algunas etapas en carreras de segunda división, un puesto quince en el Criterium du Dauphiné, un par de etapas de apoyo al líder en el Tour del año anterior.
-
-Un corredor que en los resultados era gregario de montaña.
-
-Pero en el Veleta de enero había respondido a los incrementos de Santi como no responden los gregarios — como responden los que tienen el nivel y que todavía no han tenido la carrera donde ese nivel se vea.
+Era uno de los fichajes nuevos del equipo. Alemán. Lo había visto en la reunión del primer día.
 
 Esa noche, en el cuaderno:
 
-*Luca Arnheim, Jumbo-Visma. Alemán. Tres años WorldTour. Sube sin que parezca costarle. Responde a los incrementos con la velocidad de quien ya los anticipó. — No sé todavía qué rol va a jugar.*
-
-El rol de Arnheim en el año que empezaba todavía no tenía nombre.
-
-Pero la subida al Veleta era un dato.
-
-Y los datos de Santi Reyes Cardona no se borraban.
+*Luca Arnheim. Nuevo en el FCV. Responde a los incrementos como si los anticipara. Dato.*
 
 ---
 
@@ -203,52 +127,6 @@ Primera semana: base aeróbica. Zona dos y tres. Los cuerpos reajustándose a la
 Segunda semana: umbral. Zona tres y cuatro. Las sesiones largas en el Veleta — la subida completa de cuarenta y cinco kilómetros al ritmo de carrera, los intervalos en los últimos diez kilómetros, los datos de Rusconi que al final de la sesión se convertían en el gráfico de potencia que comparaba el dia con el día anterior y el campo con el campo anterior.
 
 Tercera semana: intensidad. Zona cuatro y cinco. Las simulaciones de etapa — el corredor que en los últimos días del campo hacía lo que haría en el Tour: atacar, responder, gestionar, sufrir con la precisión del esfuerzo calculado.
-
-En esas tres semanas, Arnheim apareció en la subida al Veleta cuatro veces más.
-
-No siempre en el mismo punto — a veces en el kilómetro quince, a veces en el kilómetro veintidós. Siempre desde atrás, siempre al mismo ritmo, siempre sin mirar. Santi empezó a reconocer el sonido de la cadena de Arnheim antes de verlo — el sonido específico de esa transmisión y esa cadencia que en el Veleta de Sierra Nevada era inconfundible.
-
-En la tercera semana, un día de trabajo al noventa por ciento, Arnheim lo alcanzó en el kilómetro veinticinco.
-
-No se puso al lado — se puso a dos metros. El ritmo: idéntico.
-
-Santi incrementó al noventa y tres.
-
-Arnheim incrementó.
-
-Al noventa y cinco.
-
-Arnheim incrementó.
-
-Ferretti por el pinganillo: *Santiago, la sesión es al noventa. No te disparés.*
-
-Santi bajó.
-
-Arnheim bajó.
-
-Y en esa bajada simultánea — los dos corredores reduciendo la intensidad en el mismo momento — Santi tuvo la primera confirmación de lo que en el kilómetro veintinueve de la primera semana había sido una observación: Arnheim no seguía a Santi. Arnheim corría al mismo nivel que Santi.
-
-No el mismo nivel de la vitoria — todavía faltaban carreras, todavía faltaban los momentos donde el nivel se verifica en la presión de un Grand Tour. Pero el nivel de la base, el nivel de los vatios en el Veleta de Sierra Nevada, era el nivel del corredor que en el pelotón del Tour de France iba a estar en el grupo final de las etapas de montaña.
-
-En el descenso de la tercera semana, Arnheim habló por segunda vez.
-
-— El Tour — dijo, en el mismo español del pelotón.
-
-Santi lo miró.
-
-— El Tour — dijo Santi. Como confirmación, no como pregunta.
-
-Arnheim asintió.
-
-Eso fue todo.
-
-Bajaron en silencio.
-
-En el cuaderno de esa noche, Santi actualizó la nota:
-
-*Arnheim. Cuarta semana en el Veleta. Cada vez más claro: tiene el nivel de los cinco primeros en la montaña. El Jumbo todavía no lo usa de líder — este año puede ser el año donde eso cambie. Dato.*
-
-El dato que en los meses que seguían iba a encontrar su lugar en la ecuación del Tour de France — el dato del corredor que en Sierra Nevada había subido al mismo ritmo que el campeón del mundo y que en agosto, en los Alpes y los Pirineos, iba a estar en el mismo grupo final.
 
 El campo de Sierra Nevada terminó el veintiocho de enero.
 

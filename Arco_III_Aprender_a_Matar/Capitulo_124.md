@@ -26,7 +26,7 @@ Santi en el interior del pelotón. Duchêne a su izquierda, Rensen a su derecha 
 
 Los tres Corredores en el grupo. Se miraron tres veces en 170 kilómetros.
 
-La primera: en el kilómetro cuarenta, cuando el viento giró al noroeste y el pelotón amenazó con el echelon. Roglič movió la posición hacia el interior — el tiburón que en el echelon de la tercera etapa había mandado y que en el Atlántico reconocía el mismo terreno. Santi lo siguió. Pogačar lo siguió. El viento no llegó a la velocidad del echelon.
+La primera: en el kilómetro cuarenta, cuando el viento giró al noroeste y el pelotón amenazó con el echelon. Roglič movió la posición hacia el interior — el esloveno que en el echelon de la tercera etapa había mandado y que en el Atlántico reconocía el mismo terreno. Santi lo siguió. Pogačar lo siguió. El viento no llegó a la velocidad del echelon.
 
 La segunda: en el kilómetro ciento diez, cuando Pogačar incrementó dos vatios en una rampa del tres por ciento. Sin razón táctica — la prueba del hombre que en las etapas de transición no puede dejar de medir. Roglič respondió en 1,1 segundos. Santi en 0,9.
 
@@ -117,7 +117,7 @@ En el kilómetro ciento treinta — el descenso del Cantal hacia la llanura, la 
 
 No en una subida. En el descenso.
 
-El tiburón del cronómetro que en los descensos tenía la técnica del especialista de la crono — el frenado en el punto exacto, la trayectoria óptima de curva, la salida de curva con la aceleración que el corredor que domina la física de la bicicleta en el descenso ejecuta como si fuera el resultado natural de la curva y no el trabajo técnico que es — Roglič en el descenso del Cantal aceleró y en cuatro segundos abrió siete metros sobre los dos.
+Roglič tenía en los descensos la técnica del especialista de la crono — el frenado en el punto exacto, la trayectoria óptima de curva, la salida de curva con la aceleración que el corredor que domina la física de la bicicleta en el descenso ejecuta como si fuera el resultado natural de la curva y no el trabajo técnico que es. En el descenso del Cantal aceleró y en cuatro segundos abrió siete metros sobre los dos.
 
 Santi lo siguió en 1,3 segundos.
 
@@ -125,7 +125,7 @@ Pogačar lo siguió en 1,9 segundos.
 
 En el kilómetro ciento treinta y dos, los tres juntos de nuevo.
 
-Roglič no dijo nada. No miró atrás. El mensaje no era para ellos — era para él. El tiburón del cronómetro que en los descensos todavía era el más rápido de los tres y que en el Col de la Loze, donde el Tour se iba a decidir, el descenso hacia Méribel después de la cima iba a ser el terreno donde podía intentar recuperar lo que la subida le hubiera costado.
+Roglič no dijo nada. No miró atrás. El mensaje no era para ellos — era para él. El corredor del Jumbo que en los descensos todavía era el más rápido de los tres y que en el Col de la Loze, donde el Tour se iba a decidir, el descenso hacia Méribel después de la cima iba a ser el terreno donde podía intentar recuperar lo que la subida le hubiera costado.
 
 Rusconi por el pinganillo de Santi: — Los datos del descenso. Roglič abre siete metros en cuatro segundos. Tu respuesta: 1,3. Pogačar: 1,9.
 

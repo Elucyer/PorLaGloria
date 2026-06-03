@@ -88,7 +88,7 @@ Hernando asintió.
 
 Volvió a Laureles en Uber.
 
-Carmen estaba en el balcón con el café. Hernando salió al balcón, se sentó, tomó el café. Abajo, el parque de los samanes sin nadie — el parque vacío de la cuarentena colombiana, los samanes con las hojas del trópico que no entendían que el mundo hubiera cerrado.
+Carmen estaba en el balcón con el café. Hernando salió al balcón, se sentó, tomó el café. Abajo, el parque sin nadie — el parque vacío de la cuarentena colombiana, los árboles con las hojas del trópico que no entendían que el mundo hubiera cerrado.
 
 Le escribió a Santi: *Seguimiento bien. Junio.*
 

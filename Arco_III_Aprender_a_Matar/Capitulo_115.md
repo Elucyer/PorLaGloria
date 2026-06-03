@@ -152,6 +152,4 @@ En el cuaderno de esa noche escribió: *Strade Bianche, 1 agosto 2020. La últim
 
 Cerró el cuaderno.
 
-Apagó la luz.
-
 ---

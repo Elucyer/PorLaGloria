@@ -72,7 +72,7 @@ Santi entendió.
 
 ---
 
-*Señal internacional — Eurosport España, 5:47 de la mañana (hora Colombia)*
+*Eurosport España — 5:47 a.m., hora Colombia*
 
 —Y el pelotón, señores, rueda en este momento por las llanuras centrales de Sicilia con un ritmo controlado — el Team Sky lleva el trabajo de cabeza desde el kilómetro ochenta, manteniendo una diferencia de tres minutos cuarenta segundos sobre la escapada del día, que sigue siendo inofensiva para la clasificación general. Estamos aproximadamente a noventa kilómetros de la llegada en la cima del Etna, que como saben ustedes va a ser la primera gran prueba de montaña de este Giro 2018. Dieciséis kilómetros de ascensión. El Etna no perdona a nadie que llegue con reservas vacías.
 
@@ -168,7 +168,7 @@ Durante dos kilómetros.
 
 ---
 
-*Señal internacional — Eurosport España, 7:48 de la mañana (hora Colombia)*
+*Transmisión Eurosport, 7:48 a.m., etapa 6*
 
 —¡Ataque de Yates! ¡Simon Yates ataca en el kilómetro ocho de la subida al Etna! Chaves se va con él, Froome responde, y el grupo de cabeza se está fracturando, señores — esto es lo que todos esperaban, la primera gran explosión del Giro 2018. Yates tiene quince metros, veinte metros ya sobre el segundo grupo—
 
@@ -246,7 +246,7 @@ Empujó.
 
 ---
 
-*Señal internacional — Eurosport España, 8:09 de la mañana (hora Colombia)*
+*Canal Internacional — 8:09 a.m.*
 
 —¡Esperen un momento! ¡Hay un corredor detrás del grupo de Yates que está remontando solo! Riccardo, ¿qué número es ese corredor?
 
@@ -342,7 +342,7 @@ Siguió pedaleando diez metros más hasta que la bicicleta se detuvo sola.
 
 ---
 
-*Señal internacional — Eurosport España, 8:31 de la mañana (hora Colombia)*
+*Eurosport España — 8:31 a.m., hora Colombia*
 
 —¡¡SANTIAGO REYES!! ¡¡El colombiano del Élan Cycliste gana la Etapa 6 del Giro de Italia 2018 en la cima del Etna!! ¡¡Dieciocho años, señores!! ¡¡Dieciocho años y acaba de ganar en el volcán!! Riccardo, dime que estoy viendo lo que creo que estoy viendo—
 

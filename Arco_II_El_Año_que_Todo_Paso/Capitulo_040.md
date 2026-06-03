@@ -54,7 +54,7 @@ No era un español perfecto —tenía el acento italiano que convertía las erre
 
 Se quedó de pie en el pasillo del autobús y miró a los once corredores uno por uno. No llevaba notas.
 
-—Hoy —dijo— nadie corre el Giro. Hoy hacemos una contrarreloj de diez kilómetros en una ciudad que no conocemos, con adoquines en los primeros dos kilómetros y viento en el cinco y el seis, y lo que necesitamos de esta tarde es llegar a la furgoneta con las dos piernas buenas. —Una pausa—. Pieter.
+—Hoy —dijo— nadie corre el Giro. Hoy hacemos una contrarreloj de diez kilómetros en una ciudad que no conocemos, con adoquines en los primeros dos kilómetros y viento en el cinco y el seis, y lo que necesitamos de esta tarde es llegar a la furgoneta con las dos piernas buenas. Miró la primera fila. Pieter.
 
 Verstraeten levantó la cabeza.
 
@@ -80,7 +80,7 @@ Ferretti miró a Santi.
 
 Santi lo miró. No era una pregunta retórica.
 
-—Voy a perder entre un minuto y un minuto veinte contra los mejores cronoman. Probablemente un minuto treinta contra Dumoulin. —Una pausa—. No es mi terreno.
+—Voy a perder entre un minuto y un minuto veinte contra los mejores cronoman. Probablemente un minuto treinta contra Dumoulin. No es mi terreno.
 
 —No es tu terreno —dijo Ferretti—. ¿Y entonces?
 
@@ -204,7 +204,7 @@ Hernando respondió al primer timbre, lo que significaba que había estado esper
 
 —Once veintiocho.
 
-Una pausa breve.
+Hernando hizo los números.
 
 —Un minuto veintitrés —calculó Hernando.
 

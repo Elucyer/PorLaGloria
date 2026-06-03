@@ -85,7 +85,7 @@ A 5 kilómetros de la cima.
 
 Pogačar atacó.
 
-Sin señal. Sin aceleración gradual. El cambio de ritmo en el segundo uno — el mismo ataque de los últimos metros de los lacets del Grand Colombier, el mismo ataque de la Marie-Blanque, la misma mecánica del tiburón que no da aviso porque el aviso le cuesta los segundos que el ataque gana.
+Sin señal. Sin aceleración gradual. El cambio de ritmo en el segundo uno — el mismo ataque de los últimos metros de los lacets del Grand Colombier, el mismo ataque de la Marie-Blanque, la misma mecánica del corredor que no da aviso porque el aviso le cuesta los segundos que el ataque gana.
 
 Doce vatios de más. Doce pedaladas.
 
@@ -121,7 +121,7 @@ Roglič respondió en 4,6 segundos.
 
 El 4,6.
 
-El número más alto del Tour. Cuatro décimas más que el Grand Colombier. El tiburón del cronómetro en el kilómetro nueve del Col de la Croix, después de catorce días de Tour, respondiendo en cuatro coma seis lo que al inicio respondía en dos coma ocho.
+El número más alto del Tour. Cuatro décimas más que el Grand Colombier. Roglič en el kilómetro nueve del Col de la Croix, después de catorce días de Tour, respondiendo en cuatro coma seis lo que al inicio respondía en dos coma ocho.
 
 Los cuatro coma seis que en el Col de la Loze — después del Glandon, el Télégraphe y el Galibier antes de la subida final — iban a ser lo que Rusconi había proyectado como 5,8 a 6,4.
 
@@ -149,7 +149,7 @@ Siete kilómetros de bajada técnica desde los 1.367 metros del Col de la Croix 
 
 Roglič lideró el descenso.
 
-El tiburón del cronómetro que en la subida había respondido en 4,6 segundos y que en el descenso tenía el vocabulario técnico del corredor que ha pasado su carrera convirtiendo los descensos en recuperaciones: la trayectoria de la curva memorizada, el punto de frenado exacto, la aceleración en la salida que en el corredor con la técnica de Roglič era natural y en el escalador puro era el gesto que se aprende o no se aprende.
+El esloveno que en la subida había respondido en 4,6 segundos y que en el descenso tenía el vocabulario técnico del corredor que ha pasado su carrera convirtiendo los descensos en recuperaciones: la trayectoria de la curva memorizada, el punto de frenado exacto, la aceleración en la salida que en el corredor con la técnica de Roglič era natural y en el escalador puro era el gesto que se aprende o no se aprende.
 
 Roglič, en el descenso de siete kilómetros hacia Villard-de-Lans, recuperó once segundos sobre el tiempo de Santi.
 
@@ -197,7 +197,7 @@ La GC sin cambio.
 
 *— El Loze — dijo Hernando.*
 
-*El Valle de Aburrá fuera del balcón. Los samanes. Las luces de la ciudad que empezaban a encenderse en la tarde de septiembre de Medellín.*
+*El Valle de Aburrá fuera del balcón. La tarde de septiembre de Medellín con sus luces encendiéndose.*
 
 *Hernando abrió el cuaderno en la página del perfil del Col de la Loze — el perfil que había dibujado en julio, cuatro veces, antes de empezar el Tour. Los 21,5 kilómetros desde Les Allues. La cima a 2.304 metros. Los tramos al 11% entre los kilómetros dieciséis y diecinueve.*
 
@@ -241,7 +241,7 @@ Rusconi: — En el Loze, en el kilómetro doce — cuando la montaña lleva sufi
 
 Santi asintió.
 
-Cerró el cuaderno.
+Guardó el cuaderno.
 
 — Mañana — dijo.
 

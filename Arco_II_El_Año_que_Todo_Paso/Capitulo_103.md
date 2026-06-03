@@ -114,9 +114,7 @@ Debajo de esa línea, escribió:
 
 *Primero.*
 
-Cerró el cuaderno.
-
-Apagó la luz.
+Puso el cuaderno boca abajo.
 
 ---
 

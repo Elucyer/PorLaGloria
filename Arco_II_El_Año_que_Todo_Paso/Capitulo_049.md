@@ -124,7 +124,7 @@ El autobús arrancó en silencio.
 
 ---
 
-*Señal internacional — Eurosport España, 8:53 de la mañana (hora Colombia)*
+*Eurosport España — 8:53 a.m., hora Colombia*
 
 En el apartamento de Laureles, Carmen Cardona encendió el televisor a las nueve menos diez porque Hernando le había dicho que hoy empezaban a emitir la cobertura antes de lo habitual — ciento noventa y seis kilómetros y la organización había adelantado la neutralización para terminar con luz.
 
@@ -410,7 +410,7 @@ Esos números — primero, cinco segundos, treinta y ocho — eran los números 
 
 ---
 
-*Señal internacional — Eurosport España, 5:12 de la tarde (hora Colombia)*
+*Transmisión Eurosport, 5:12 p.m., etapa 18*
 
 —¡¡REYES LIDERA EL GIRO!! ¡¡Con cinco segundos sobre Froome y treinta y ocho sobre el colapsado Yates, el colombiano de dieciocho años es el virtual líder de la clasificación general del Giro d'Italia 2018!! Riccardo, ¿estamos viendo lo que creemos que estamos viendo?
 

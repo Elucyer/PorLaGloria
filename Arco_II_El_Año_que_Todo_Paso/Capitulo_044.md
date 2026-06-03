@@ -66,7 +66,7 @@ Duchêne de pie:
 
 Se sentó. Ferretti se puso de pie.
 
-—Hoy Pieter tiene que llegar en el grupo de cabeza. —Una pausa—. Pieter, ¿cómo están las piernas?
+—Hoy Pieter tiene que llegar en el grupo de cabeza. Ferretti lo miró. —Pieter, ¿cómo están las piernas?
 
 Verstraeten, desde la primera fila:
 
@@ -162,7 +162,7 @@ Un silencio breve.
 
 —Sí. Está en la cocina.
 
-—Bien. —Una pausa—. Papá.
+—Bien. Papá.
 
 —Santi.
 
@@ -216,7 +216,7 @@ Y debajo, después de un espacio:
 
 *Verstraeten tiene la rodilla mal desde hace días. Ferretti lo sabe. Yo lo sé. Pieter lo sabe. Nadie lo dice.*
 
-Cerró el cuaderno.
+Dejó el cuaderno en la mesa.
 
 Durante una hora intentó dormir y no pudo, que era lo mismo que le había pasado la noche anterior al Etna y la noche anterior a cualquier cosa que importara de verdad. No era nerviosismo exactamente —era algo más parecido al estado de los perros antes de la tormenta: el cuerpo respondiendo a algo que el cerebro todavía no había procesado del todo.
 

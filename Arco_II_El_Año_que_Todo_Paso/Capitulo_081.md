@@ -224,8 +224,6 @@ La voz de Hernando. El *bien* con la textura diferente.
 
 Lo guardó.
 
-Apagó la luz.
-
 ---
 
 *La noche del veinte de mayo, en Laureles:*

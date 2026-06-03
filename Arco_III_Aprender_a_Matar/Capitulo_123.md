@@ -186,7 +186,7 @@ Era el inventario del equipo en el medio del Tour — el inventario que en los G
 
 *— Gracias — dijo.*
 
-*El Valle de Aburrá al fondo. Los samanes del parque. El ruido del tráfico de la tarde.*
+*El Valle de Aburrá al fondo. El parque. El ruido del tráfico de la tarde.*
 
 *Diez días para el Col de la Loze.*
 

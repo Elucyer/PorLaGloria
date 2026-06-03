@@ -144,7 +144,7 @@ Sivakov, solo adelante, estaba fuera de su vista.
 
 Los dos metros del rectilíneo, los cuatro metros de la curva cerrada del kilómetro cinco y medio, el punto donde la carretera se abre y el pueblo de Albiez-Montrond aparece al fondo con su arquitectura de madera y piedra de Saboya y las banderas del Tour de l'Avenir en los balcones: Santi llegó a ese punto con Bernal y Lambrecht a veinticinco metros, con Sivakov ya en la recta final hacia la línea, con el público de los últimos quinientos metros gritando en francés los nombres que no eran el suyo pero para quienes el pedaleo de un colombiano de diecisiete años en la última etapa de una carrera de nueve días era algo que valía la pena reconocer.
 
-Cruzó la línea de llegada cuerto en la etapa.
+Cruzó la línea de llegada cuarto en la etapa.
 
 Sivakov primero. Bernal segundo y Lambrecht tercero, a once segundos. Santi cuarto, a dieciséis.
 

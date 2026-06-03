@@ -56,7 +56,7 @@ El ritual de los Reyes. Las mismas dos preguntas, las mismas dos respuestas. Car
 
 Los tres en el balcón.
 
-El parque de los samanes abajo. La lluvia que llegaba desde los cerros. Medellín en el silencio relativo del confinamiento — no el silencio completo de Girona en marzo, el silencio parcial de la ciudad colombiana que nunca termina de callarse del todo, que tiene siempre el bus y el perro y el vallenato de algún vecino que decide que el confinamiento no es con él.
+El parque abajo. La lluvia que llegaba desde los cerros. Medellín en el silencio relativo del confinamiento — no el silencio completo de Girona en marzo, el silencio parcial de la ciudad colombiana que nunca termina de callarse del todo, que tiene siempre el bus y el perro y el vallenato de algún vecino que decide que el confinamiento no es con él.
 
 — El oncólogo — dijo Hernando.
 
@@ -84,7 +84,7 @@ No dijo nada.
 
 Tampoco Hernando.
 
-El parque de los samanes abajo, la lluvia sobre el Valle de Aburrá, el sonido de la ciudad que existía independiente de lo que ocurriera en el cuarto piso del edificio de Laureles.
+El parque abajo, la lluvia sobre el Valle de Aburrá, el sonido de la ciudad que existía independiente de lo que ocurriera en el cuarto piso del edificio de Laureles.
 
 Carmen tenía los ojos húmedos.
 
@@ -208,7 +208,7 @@ El vuelo al día siguiente. Ferretti esperaba en Barcelona con el plan de las ú
 
 La tarde del diecisiete: el balcón de Laureles.
 
-Los samanes con el verde de julio — el verde del trópico que no cambia con el mes porque en Medellín el mes no importa, el verde es el verde y la temperatura es la temperatura y la lluvia es la lluvia de las cinco de la tarde.
+Las copas anchas del parque con el verde de julio — el verde del trópico que no cambia con el mes porque en Medellín el mes no importa, el verde es el verde y la temperatura es la temperatura y la lluvia es la lluvia de las cinco de la tarde.
 
 Hernando con el cuaderno.
 

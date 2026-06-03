@@ -564,9 +564,9 @@ Debajo, después de un momento, la letra apretada de la nota al margen:
 
 *Nunca lo voy a poder predecir exactamente. Y eso, pienso, es lo que lo hace diferente.*
 
-Cerró el cuaderno.
+Dejó el cuaderno en la mesa.
 
-El parque de los samanes abajo. La lluvia de las cinco del Valle de Aburrá — la lluvia puntual del trópico que cae cuando tiene que caer, que no distingue el día de la Strade Bianche del día de cualquier martes de agosto.
+El parque abajo. La lluvia de las cinco del Valle de Aburrá — la lluvia puntual del trópico que cae cuando tiene que caer, que no distingue el día de la Strade Bianche del día de cualquier martes de agosto.
 
 El Tour en veintiocho días.
 

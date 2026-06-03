@@ -127,6 +127,30 @@ Santi firmó el control en silencio.
 
 La bicicleta de carretera — no la de crono, la de montaña, la que en el Loze iba a subir los 2.304 metros del puerto más alto del Tour con la geometría diseñada para el escalador que en los gradientes del 10% y el 11% necesita la posición erecta, los brazos abiertos, el centro de gravedad alto que en el 20% de los tramos más duros del Loze era la posición que permitía pedalear donde el corredor que no la domina solo puede pararse en los pedales y rezar.
 
+Cuando Santi salía del comedor del hotel con la botella en la mano, Clarke lo alcanzó en el pasillo.
+
+— Un segundo.
+
+Santi se detuvo.
+
+— En Waregem — dijo Clarke — en el dos mil dieciocho, te dije que cuando llegaras al Stelvio en tercera semana te acordaras de que era solo una subida.
+
+— Me acordé — dijo Santi.
+
+— Lo sé. Lo vi desde el carro. — Clarke lo miró—. Hoy es el Loze. Mismo principio.
+
+Santi asintió.
+
+Clarke hizo ademán de irse. Se detuvo.
+
+— Una cosa más. Hoy yo llego hasta donde llegue. Puede ser el kilómetro ocho, puede ser el diez. Cuando me veas ceder, no mires. Ya hice el trabajo. Vos seguís.
+
+Siguió por el pasillo sin esperar respuesta.
+
+Santi lo vio alejarse — los mismos pasos de siempre, la misma chaqueta del equipo, treinta y tres años y dieciséis Tours y la misma economía de movimiento que le había enseñado en los adoquines de Flandes cuando los dos eran otra cosa.
+
+---
+
 Broeckx al lado de Santi, esperando la salida:
 
 — El Loze — dijo Broeckx. — Yo llego hasta donde llegue.

@@ -100,7 +100,7 @@ Se sentó en la silla de la cocina — la misma posición que había tenido en e
 
 Carmen se detuvo un momento sobre el fogón.
 
-—Dijo que el tumor es pequeño. Que está localizado en el lóbulo inferior del pulmón derecho. Que las posibilidades de extirparlo completamente son altas. —Una pausa—. Dijo también que hay que hacer biopsia del tejido adyacente para descartar extensión.
+—Dijo que el tumor es pequeño. Que está localizado en el lóbulo inferior del pulmón derecho. Que las posibilidades de extirparlo completamente son altas. Dijo también que hay que hacer biopsia del tejido adyacente para descartar extensión.
 
 —¿Cuándo salen los resultados?
 
@@ -314,7 +314,7 @@ Carmen lo pensó.
 
 —¿Qué hacías?
 
-—Pensar en otra cosa. —Una pausa—. No funcionaba, pero lo intentaba.
+—Pensar en otra cosa. No funcionaba, pero lo intentaba.
 
 Santi asintió.
 
@@ -450,8 +450,6 @@ Hernando exhaló — no un suspiro de cansancio sino el tipo de exhalación del 
 
 —Bien —dijo—. Bien.
 
-Una pausa.
-
 —Papá —dijo Santi.
 
 —¿Qué.
@@ -579,8 +577,6 @@ Ospina lo miró.
 —¿Para qué.
 
 —Para hacer una transferencia.
-
-Una pausa.
 
 —¿Cuánto.
 
@@ -893,8 +889,6 @@ Luego abrió el cuaderno.
 *Bloque de julio: 23 junio. Burgos: agosto.*
 
 *Giro 2019: objetivo principal.*
-
-Cerró el cuaderno.
 
 Cerró los ojos.
 

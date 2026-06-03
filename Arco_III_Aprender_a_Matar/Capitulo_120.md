@@ -48,7 +48,7 @@ Treinta y ocho corredores. Los equipos de los favoritos al frente — el Jumbo d
 
 Roglič al frente del echelon.
 
-No los gregarios — el líder. En el viento lateral, la posición en el echelon determina quién llega al primer grupo y quién no, y Roglič lo sabía desde las Vueltas a España donde el viento lateral de Andalucía es parte del paisaje de las carreras de septiembre. El tiburón del cronómetro que en la montaña administra era en el llano con viento el tiburón que establece el ritmo al que los demás tienen que sobrevivir.
+No los gregarios — el líder. En el viento lateral, la posición en el echelon determina quién llega al primer grupo y quién no, y Roglič lo sabía desde las Vueltas a España donde el viento lateral de Andalucía es parte del paisaje de las carreras de septiembre. Roglič, que en la montaña administraba, era en el llano con viento el hombre que establecía el ritmo al que los demás tenían que sobrevivir.
 
 Rusconi por el pinganillo de Santi: — Primero del echelon. No cedás posición. El viento viene del noroeste a 52 km/h. Si perdés la rueda del de delante, el echelon sigue y el siguiente grupo va a rodar diez minutos detrás.
 
@@ -70,7 +70,7 @@ Los veintiocho corredores del echelon volando por la carretera de Provenza a 54 
 
 ---
 
-En Laureles, a las once de la mañana de Colombia.
+A las once de la mañana en Medellín, Hernando encendió el televisor.
 
 El narrador: *"Señoras y señores, el Tour de France tiene un problema en la tercera etapa: el mistral. El viento de Provenza ha roto el pelotón en dos. El echelon delantero tiene a Roglič, tiene a Santi Reyes, tiene a Pogačar. El pelotón principal está a dos minutos y pico. ¿Qué significa esto? Significa que si el grupo del frente llega con esos dos minutos, hay corredores que en el día tres del Tour ya perdieron el Tour."*
 
@@ -160,7 +160,7 @@ No dormía todavía — eran las diez y cuarto de la noche y el cuerpo del corre
 
 El cuaderno abierto.
 
-El perfil de la cuarta etapa: Gap — Orcières-Merlette, 157 kilómetros. Los últimos 7 kilómetros al 7,5% hacia la cima de la estación de esquí a 1.838 metros de altitud. La primera llegada en alto del Tour 2020. La primera vez que los tres tiburones iban a estar en la misma montaña con algo real en juego.
+El perfil de la cuarta etapa: Gap — Orcières-Merlette, 157 kilómetros. Los últimos 7 kilómetros al 7,5% hacia la cima de la estación de esquí a 1.838 metros de altitud. La primera llegada en alto del Tour 2020. La primera vez que los tres iban a estar en la misma montaña con algo real en juego.
 
 Santi dibujó el perfil del ascenso final con el lápiz.
 
@@ -178,11 +178,9 @@ Tres puntos de decisión en 7 kilómetros de montaña.
 
 La primera vez que los números iban a ser reales.
 
-Cerró el cuaderno.
+Puso el cuaderno boca abajo.
 
-Apagó la luz.
-
-En Laureles, a las once de la noche de Colombia, Hernando había dibujado el mismo perfil dos horas antes en el cuaderno azul oscuro.
+A las once de la noche de Colombia, en Laureles, Hernando había dibujado el mismo perfil dos horas antes en el cuaderno azul oscuro.
 
 Los mismos 7 kilómetros.
 

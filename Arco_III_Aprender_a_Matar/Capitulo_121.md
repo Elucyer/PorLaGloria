@@ -128,7 +128,7 @@ Roglič en el grupo — cuarto, detrás del tren del Ineos. El amarillo virtual 
 
 ---
 
-En Laureles, a las dos y cuarenta de la tarde de Colombia.
+A las dos y cuarenta de la tarde de Colombia, en el apartamento de Laureles.
 
 El narrador: *"Señoras y señores, estamos en el kilómetro dos del ascenso a Orcières-Merlette. La primera llegada en alto del Tour de France 2020. El grupo de veintiún corredores. Santi Reyes en el grupo — ojo al jersey arcoíris en el interior, señores, Santi guardando, Santi esperando el momento que él sabe cuándo llega. Roglič al frente de la GC. Pogačar en el grupo. Y los Alpes del Sur con su silencio y su altura y sus siete kilómetros al siete y medio que en el Tour de France valen lo que no vale ninguna otra cosa."*
 
@@ -200,11 +200,11 @@ Kilómetros cuatro a seis de Orcières-Merlette.
 
 Los dos kilómetros del diálogo.
 
-El diálogo que en el ciclismo de alta montaña entre tres corredores iguales no tiene palabras: tiene pedaladas. La pedalada de Pogačar que en el kilómetro cuatro y medio incrementa dos vatios más — el segundo movimiento del corredor que atacó y que al ver que los otros dos respondieron no cede sino que prueba si tienen más. La respuesta de Roglič en 1,8 segundos — no el 1,4 del primer movimiento sino el 1,8 del tiburón que al responder el segundo movimiento ya está calculando cuánto le cuesta responder el tercero. La respuesta de Santi en 2,3 — no los 2,1 sino los 2,3 del corredor que no muestra el máximo porque el máximo está guardado para el kilómetro seis.
+El diálogo que en el ciclismo de alta montaña entre tres corredores iguales no tiene palabras: tiene pedaladas. La pedalada de Pogačar que en el kilómetro cuatro y medio incrementa dos vatios más — el segundo movimiento del corredor que atacó y que al ver que los otros dos respondieron no cede sino que prueba si tienen más. La respuesta de Roglič en 1,8 segundos — no el 1,4 del primer movimiento sino el 1,8 del esloveno que al responder el segundo movimiento ya está calculando cuánto le cuesta responder el tercero. La respuesta de Santi en 2,3 — no los 2,1 sino los 2,3 del corredor que no muestra el máximo porque el máximo está guardado para el kilómetro seis.
 
 En el kilómetro cinco: Roglič incrementó.
 
-El turno del esloveno del Jumbo — el ataque del tiburón que en la administración de los primeros cuatro kilómetros había medido exactamente cuánto tenían los otros dos y que en el kilómetro cinco aplicó el diagnóstico: treinta vatios más durante cuarenta segundos, el tiempo que necesitaba para ver si Pogačar y Santi tenían el treinta más.
+El turno del esloveno del Jumbo — el ataque de Roglič que en la administración de los primeros cuatro kilómetros había medido exactamente cuánto tenían los otros dos y que en el kilómetro cinco aplicó el diagnóstico: treinta vatios más durante cuarenta segundos, el tiempo que necesitaba para ver si Pogačar y Santi tenían el treinta más.
 
 Pogačar respondió en 1,3 segundos. El 1,3 del corredor que en el kilómetro cinco todavía tenía el treinta más.
 
@@ -232,7 +232,7 @@ La brecha: ocho metros.
 
 Roglič reaccionó en 2,8 segundos.
 
-No el 1,4 del primer movimiento de Pogačar ni el 1,8 del segundo — el 2,8 del tiburón en el kilómetro seis de una subida al 7,5% después de ciento cincuenta kilómetros de carrera y cinco kilómetros de ataque y contraataque. Los 2,8 que costaban más de lo que los 1,4 habían costado. El dato que Rusconi había esperado: *si Roglič tiene un límite en la montaña pura, el kilómetro seis de la primera subida real del Tour es donde el límite empieza a mostrarse.*
+No el 1,4 del primer movimiento de Pogačar ni el 1,8 del segundo — el 2,8 del esloveno en el kilómetro seis de una subida al 7,5% después de ciento cincuenta kilómetros de carrera y cinco kilómetros de ataque y contraataque. Los 2,8 que costaban más de lo que los 1,4 habían costado. El dato que Rusconi había esperado: *si Roglič tiene un límite en la montaña pura, el kilómetro seis de la primera subida real del Tour es donde el límite empieza a mostrarse.*
 
 Pogačar reaccionó en 1,9 segundos.
 
@@ -246,7 +246,7 @@ Cuatro pedaladas más. La brecha de cuatro metros que se convertía en nueve.
 
 Roglič tardó 3,4 segundos.
 
-Los 3,4 del tiburón que en el kilómetro seis cuatrocientos metros de la primera subida real del Tour 2020 estaba en el límite de lo que podía sostener sin ceder terreno permanente. Roglič no cedió — cerró los nueve metros en dieciséis segundos. Pero el costo de cerrar esos nueve metros fue el costo que Rusconi iba a medir esa noche en el portátil y que iba a aparecer en el informe del día siguiente con la letra roja de lo que preocupa.
+Los 3,4 de Roglič en el kilómetro seis cuatrocientos metros de la primera subida real del Tour 2020 estaba en el límite de lo que podía sostener sin ceder terreno permanente. Roglič no cedió — cerró los nueve metros en dieciséis segundos. Pero el costo de cerrar esos nueve metros fue el costo que Rusconi iba a medir esa noche en el portátil y que iba a aparecer en el informe del día siguiente con la letra roja de lo que preocupa.
 
 Pogačar tardó 2,1 segundos.
 
@@ -260,7 +260,7 @@ El pelotón a cuarenta y cuatro segundos.
 
 El kilómetro siete — el último.
 
-Los tres tiburones solos en la montaña con el pelotón a cuarenta y cuatro segundos y la cima a un kilómetro.
+Los tres solos en la montaña con el pelotón a cuarenta y cuatro segundos y la cima a un kilómetro.
 
 Nadie atacó.
 
@@ -281,7 +281,7 @@ El narrador: *"¡Orcières-Merlette! La primera batalla del Tour de France 2020 
 
 ---
 
-En Laureles, a las tres y veintidós de la tarde de Colombia.
+Tres y veintidós de la tarde en Colombia.
 
 Hernando cerró el cuaderno.
 
@@ -432,7 +432,5 @@ Y en el cuaderno, al lado del 3,4 que había anotado durante la transmisión, es
 No seis.
 
 Antes del seis.
-
-Apagó la luz.
 
 ---

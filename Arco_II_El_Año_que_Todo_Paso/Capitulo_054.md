@@ -403,12 +403,10 @@ Abrió el cuaderno.
 
 *Operación papá: 9 de junio.*
 
-Cerró el cuaderno.
+Puso el cuaderno boca abajo.
 
 No pensó en el dinero esa noche. No porque no tuviera importancia — tenía la importancia que tiene el dinero cuando se viene de San José de la Montaña y el primer salario profesional fue el de Manzana Postobón, que alcanzaba para pagar la mitad de la cuota del apartamento de Floresta si los meses eran cortos. Tenía esa importancia.
 
 Pero el nueve de junio la operación de Hernando. Y antes de eso, el vuelo. Y antes del vuelo, dormir.
-
-Apagó la luz.
 
 Durmió.

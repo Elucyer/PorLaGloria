@@ -279,7 +279,7 @@ La GC final del Tour de France 2020:
 
 *Cerró el cuaderno.*
 
-*El Valle de Aburrá abajo. Los samanes del parque. La ciudad que en la tarde del 19 de septiembre de 2020 era la ciudad de siempre — el bus, el taxi, el motor de la moto — excepto que en el apartamento del cuarto piso de Laureles había dos personas en el balcón que no podían decir nada porque lo que acababa de pasar no tenía palabras que lo alcanzaran.*
+*El Valle de Aburrá abajo. La ciudad que en la tarde del 19 de septiembre de 2020 era la ciudad de siempre — el bus, el taxi, el motor de la moto — excepto que en el apartamento del cuarto piso de Laureles había dos personas en el balcón que no podían decir nada porque lo que acababa de pasar no tenía palabras que lo alcanzaran.*
 
 *Carmen le puso la mano encima del cuaderno.*
 
@@ -303,7 +303,7 @@ La misma del Stelvio. La misma del podio de Milán del primer Giro, del podio de
 
 Pero esta vez:
 
-El padre en Laureles, remisión completa, la bicicleta nueva, el balcón con los samanes, el café de las tardes.
+El padre en Laureles, remisión completa, la bicicleta nueva, el balcón con el parque abajo, el café de las tardes.
 
 El hijo en La Planche des Belles Filles con el maillot amarillo del Tour de France y el jersey arcoíris del Campeón del Mundo.
 

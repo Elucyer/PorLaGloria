@@ -30,7 +30,7 @@ Alaphilippe — el francés del Deceuninck que era el especialista en los finale
 
 ---
 
-En Laureles, a las tres y cuatro de la tarde, Hernando puso el segundo café.
+Hernando tenía el televisor encendido desde las tres. A las tres y cuatro puso el segundo café.
 
 La transmisión de Eurosport en el televisor de la sala — la transmisión en español del Lombardia que empezaba con el resumen de los primeros ciento cuarenta kilómetros y que en las tardes de las clásicas de otoño tenía el tono específico de los narradores de ciclismo italiano que hablan de la carrera como hablan de algo que existió antes de que ellos nacieran y que va a existir después de que mueran.
 

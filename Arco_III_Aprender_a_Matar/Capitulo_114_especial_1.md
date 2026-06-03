@@ -214,7 +214,7 @@ Santi cerró el cuaderno.
 
 La catedral de Santa María marcó las once.
 
-Santi estaba en Medellín — ya no era Girona ni la catedral, era el ruido de Laureles y los perros y el bus y el parque de los samanes abajo.
+Santi estaba en Medellín — ya no era Girona ni la catedral, era el ruido de Laureles y los perros y el bus y el parque abajo.
 
 Pero el hábito del cuaderno era el hábito de siempre.
 

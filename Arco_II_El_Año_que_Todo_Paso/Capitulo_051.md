@@ -62,7 +62,7 @@ Una pausa.
 
 Santi no dijo nada.
 
-—Noventa kilómetros siguiendo a Froome —continuó Ferretti—. Noventa kilómetros con lo que vos tenías en las piernas hoy. —Una pausa—. La rosa te la gana Froome. No se la perdés vos.
+—Noventa kilómetros siguiendo a Froome —continuó Ferretti—. Noventa kilómetros con lo que vos tenías en las piernas hoy. La rosa te la gana Froome. No se la perdés vos.
 
 —Ferretti —dijo Santi.
 
@@ -286,7 +286,7 @@ Hernando no dijo nada durante un momento.
 
 —¿Y en el Jafferau cuando cediste?
 
-—Cuarenta y siete cuando empecé el Jafferau. —Una pausa—. Menos cuando cedí.
+—Cuarenta y siete cuando empecé el Jafferau. Menos cuando cedí.
 
 —¿Cuánto menos?
 
@@ -314,7 +314,7 @@ Un silencio largo.
 
 —Bien.
 
-—Santi. —Una pausa—. ¿La rosa?
+—Santi. ¿La rosa?
 
 Santi miró el maillot del equipo colgado en la silla. La silla donde ayer había estado el jersey rosa y que hoy tenía el blanco y azul de siempre.
 
@@ -357,8 +357,6 @@ Debajo, después de un espacio largo, escribió:
 *Quería más. No había más.*
 
 Lo cerró.
-
-Apagó la luz.
 
 El Piamonte afuera. Los Alpes al fondo, ya invisibles en la oscuridad del norte de Italia. El sterrato del Finestre en algún lugar al sur, vacío ahora de corredores y de helicópteros y de polvo, con solo la grava blanca y el silencio de los dos mil metros y el cielo de alta montaña que no tenía ese azul en ningún otro sitio.
 

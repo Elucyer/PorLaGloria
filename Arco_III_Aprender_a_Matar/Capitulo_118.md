@@ -22,7 +22,7 @@ Ferretti lo esperaba en el lobby.
 
 — Al noventa y cuatro.
 
-— Bien. — Una pausa. — Rusconi te espera a las seis.
+— Bien. Rusconi te espera a las seis.
 
 Santi subió la maleta. La habitación del quinto piso con la vista sobre el mercado y el mar. Puso la bicicleta de carretera junto a la pared — el gesto repetido cien veces en cien hoteles de cien ciudades europeas, la bicicleta que era la primera cosa que ubicaba en cada habitación, el objeto que organizaba el espacio.
 
@@ -78,7 +78,7 @@ Jonas Vingegaard salió detrás de Roglič — el danés de veintitrés años qu
 
 Santi lo miró desde el lado del escenario donde el FCV-WorldTour esperaba su turno.
 
-Lo miró con la atención que en Sierra Nevada de diciembre le había dedicado a Luca Arnheim en el Veleta — la atención del corredor que mira un dato que no sabe todavía cómo leer pero que registra.
+Lo miró con la atención específica del corredor que detecta algo que no sabe todavía cómo leer pero que registra.
 
 El decimoséptimo: UAE Team Emirates.
 
@@ -114,13 +114,53 @@ Santi levantó la mano.
 
 No buscó a Pogačar con la mirada. No buscó a Roglič. Miró el mar.
 
-En Laureles, a las siete de la tarde de Medellín — la una de la noche de Niza — Hernando tenía el televisor encendido con la transmisión en vivo de la presentación de equipos. El canal de deportes colombiano que retransmitía la señal de France 2 con el narrador en español que describía la presentación de Santi con la voz del locutor que en veinte años de ciclismo colombiano ha aprendido el tono exacto para los momentos que merecen el tono.
+A las siete de la tarde en Medellín — la una de la noche de Niza — Hernando tenía el televisor encendido con la transmisión en vivo de la presentación de equipos. El canal de deportes colombiano que retransmitía la señal de France 2 con el narrador en español que describía la presentación de Santi con la voz del locutor que en veinte años de ciclismo colombiano ha aprendido el tono exacto para los momentos que merecen el tono.
 
 El cuaderno sobre las rodillas.
 
 Hernando no escribió nada durante la presentación.
 
 Miró.
+
+---
+
+Después de la presentación, cuando los equipos volvieron a los hoteles y la Promenade recuperó el silencio que le correspondía, Santi estaba en la terraza del quinto piso.
+
+El Mediterráneo abajo — no el azul del mediodía sino el negro del mar de noche, con las luces del paseo reflejadas en el agua y el ruido continuo de la ciudad que en agosto no dormía antes de las once.
+
+Clarke llegó con dos botellas de agua.
+
+No dijo nada. Le pasó una. Se apoyó en la baranda.
+
+Estuvieron un rato sin hablar.
+
+— Tu decimosexta grande vuelta — dijo Santi.
+
+— Decimosexta.
+
+— ¿Qué cambia?
+
+Clarke pensó. La pregunta genuina merecía la respuesta genuina.
+
+— En el primero pensaba en ganar una etapa. En el quinto, en sobrevivir la tercera semana. En el décimo, en hacer el trabajo bien. — Miró el mar — . Ahora pienso en la carrera.
+
+— ¿En qué parte?
+
+— En la que importa. — Una pausa—. En el Tour, la tercera semana destruye a todo el mundo. Los que ganan no son los que se salvan de la destrucción — son los que llevan el mismo ritmo en el kilómetro uno que en el kilómetro tres mil quinientos. Sin cambiar nada.
+
+Santi lo miró.
+
+— ¿Y eso se puede entrenar?
+
+— No en la bicicleta — dijo Clarke.
+
+Se terminó el agua. Entró al hotel.
+
+Santi se quedó en la terraza. El Mediterráneo seguía ahí, indiferente al Tour de France y a todo lo demás.
+
+Abrió el cuaderno. Escribió:
+
+*28 agosto. Niza. El mismo ritmo en el km 1 que en el km 3.500.*
 
 ---
 
@@ -216,7 +256,7 @@ Los periodistas habían llegado con doce preguntas preparadas y Santi había res
 
 ---
 
-En Laureles, a las ocho de la noche de Medellín.
+Las ocho de la noche en el apartamento de Laureles.
 
 Hernando tenía el cuaderno con los resultados de la primera etapa anotados.
 
@@ -242,7 +282,7 @@ Carmen desde la cocina: — ¿Comiste algo?
 
 Era el mismo intercambio de siempre.
 
-Era el inicio de las tres semanas del Tour de France 2020 en el balcón del cuarto piso del apartamento de Laureles, con los samanes abajo y el Valle de Aburrá y el café de las mañanas y el cuaderno que en tres semanas iba a llenarse con los perfiles de las veintiún etapas y los splits de los tres tiburones y la letra apretada del hombre que en cuarenta años de ciclismo había aprendido que el Tour se gana en los Alpes pero se pierde en los detalles.
+Era el inicio de las tres semanas del Tour de France 2020 en el balcón del cuarto piso del apartamento de Laureles, con el verde del parque abajo y el Valle de Aburrá y el café de las mañanas y el cuaderno que en tres semanas iba a llenarse con los perfiles de las veintiún etapas y los splits de los tres tiburones y la letra apretada del hombre que en cuarenta años de ciclismo había aprendido que el Tour se gana en los Alpes pero se pierde en los detalles.
 
 Mañana la segunda etapa.
 

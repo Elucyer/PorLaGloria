@@ -8,7 +8,7 @@ El número era el 22.
 
 Lo pintaron en un trozo de cartulina blanca que una voluntaria del Club Ciclismo Rionegro le enganchó a la camiseta con dos ganchitos, uno en el pecho y otro en la espalda, con esa eficiencia de quien ha hecho lo mismo doscientas veces y ya no lo piensa. Santi miró el número. Lo tocó con la punta del dedo. En la categoría sub-17 del Torneo Departamental Antioqueño de Ciclismo de Ruta, enero de 2015, la carrera comenzaba a las nueve de la mañana en el parque principal de Guarne y terminaba —tres etapas después, dos días— en el mismo punto. El recorrido total era de ciento cuarenta y dos kilómetros, con tres puertos incluidos.
 
-Santi tenía quince años y era la primera vez que competía con número oficial.
+Santi tenía quince años y era la primera vez que competía con número oficial bajo la camiseta del Club Ciclismo Rionegro.
 
 Sentía el gancho pinchar levemente la tela del camiseta cada vez que respiraba hondo.
 
@@ -17,6 +17,8 @@ Sentía el gancho pinchar levemente la tela del camiseta cada vez que respiraba 
 El Club Ciclismo Rionegro tenía cinco ciclistas en la categoría sub-17. Santi era el más joven y el único que no tenía un año de experiencia en competencia organizada. Los otros cuatro —Camilo, que ya lo conocía del Boquerón, y tres más que se llamaban Sebastián, Felipe y un chico apodado el Mico porque subía los puertos con una cadencia tan alta que parecía girar en lugar de pedalear— llevaban temporadas compitiendo juntos y tenían la camaradería tranquila de los que ya saben cómo funciona esto.
 
 Santi no sabía cómo funcionaba esto.
+
+Ospina lo había visto correr por primera vez cuatro meses antes, en una prueba del circuito juvenil antioqueño donde Santi había competido prestado por un equipo pequeño de Bello que necesitaba completar nómina. Terminó segundo en la general. Ospina lo esperó al pie del podio. Desde entonces entrenaban juntos los martes y los jueves en Santa Elena, y Ospina llenaba páginas de su libreta azul con números que Santi no siempre entendía pero que el director miraba con la expresión de quien confirma algo que ya sabía.
 
 Sabía subir montañas. Eso lo sabía muy bien. Pero una carrera en grupo tiene sus propias leyes —el pelotón como organismo vivo, la táctica de saber cuándo atacar y cuándo quedarse quieto, la gestión del viento en los llanos, la guerra psicológica de moverse al frente sin gastar demasiado, las alianzas tácitas que se forman y se rompen en el transcurso de pocas horas entre personas que nunca se han cruzado una palabra. Todo eso, Santi lo ignoraba casi por completo.
 

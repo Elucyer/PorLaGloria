@@ -121,7 +121,7 @@ El kilómetro trece.
 
 Roglič incrementó.
 
-No el ataque explosivo — el incremento constante, el ritmo del tiburón del cronómetro que en la montaña sostenida no ataca con la explosión sino con la presión. La velocidad que subía dos vatios por cada diez segundos — la rampa de potencia que en los primeros sesenta segundos era imperceptible y que en el minuto dos era el ritmo que los dos necesitaban decidir si seguían o no.
+No el ataque explosivo — el incremento constante, el ritmo de Roglič en la montaña sostenida: no el ataque con la explosión sino la presión constante. La velocidad que subía dos vatios por cada diez segundos — la rampa de potencia que en los primeros sesenta segundos era imperceptible y que en el minuto dos era el ritmo que los dos necesitaban decidir si seguían o no.
 
 Siguieron.
 
@@ -155,7 +155,7 @@ Pogačar incrementó de nuevo.
 
 Esta vez no los doce vatios — los dieciocho. Sin señal. El segundo movimiento del corredor que al ver que los dos habían respondido el primero decide que el segundo tiene que costar más.
 
-Roglič respondió en 3,8 segundos. Los 3,8 del límite real — el número que en la Marie-Blanque había sido 3,2 y que en el kilómetro quince del Grand Colombier, con catorce kilómetros de acumulado en las piernas, era el 3,8 del tiburón que está en el borde del límite de lo que puede responder sin ceder terreno permanente.
+Roglič respondió en 3,8 segundos. Los 3,8 del límite real — el número que en la Marie-Blanque había sido 3,2 y que en el kilómetro quince del Grand Colombier, con catorce kilómetros de acumulado en las piernas, era el 3,8 del esloveno en el borde del límite de lo que puede responder sin ceder terreno permanente.
 
 Santi respondió en 2,1 segundos.
 
@@ -297,7 +297,7 @@ Santi lo miró.
 
 — Lo sé — dijo.
 
-Cerró el cuaderno.
+Dejó el cuaderno en la mesa.
 
 Era la verdad del Grand Colombier que los números de Rusconi confirmaban y que Santi ya sabía desde el kilómetro dieciséis y medio cuando había cerrado los seis metros con Pogačar en quince segundos y había llegado a cuatro metros de él en la cima: que el Tour 2020 tenía un corredor que en el kilómetro final del puerto largo tenía algo que los otros dos no tenían en la misma cantidad.
 

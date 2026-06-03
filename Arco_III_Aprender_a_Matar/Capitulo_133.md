@@ -128,7 +128,7 @@ Clarke tenía algo en la mano — el cuaderno pequeño que en los Grand Tours us
 
 Santi lo miró.
 
-— En el décimosexto Tour que corro — dijo Clarke — nunca vi a nadie aguantar catorce segundos con el cuerpo que tenías en La Planche.
+— En las dieciséis grandes vueltas que corrí — dijo Clarke — nunca vi a nadie aguantar catorce segundos con el cuerpo que tenías en La Planche.
 
 — Catorce segundos — dijo Santi.
 

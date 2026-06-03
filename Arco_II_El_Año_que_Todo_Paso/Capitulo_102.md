@@ -164,7 +164,7 @@ Debajo de todo lo que había anotado durante la tarde — los tiempos, las posic
 
 *7h:14:23. Primero.*
 
-Cerró el cuaderno.
+Dejó el cuaderno en la mesa.
 
 — Bien — dijo.
 

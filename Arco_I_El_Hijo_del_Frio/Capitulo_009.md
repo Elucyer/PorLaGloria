@@ -40,7 +40,7 @@ Santi se rió. Era una de las pocas personas del colegio con las que se reía si
 
 El Colegio Salesiano tenía en grado octavo ciento cuarenta estudiantes, repartidos en cuatro grupos. En el grupo de Santi —el 8B— él era conocido por dos cosas: por ser callado y por las bicicletas. Lo de callado no era un juicio sino un hecho que el grupo había aceptado desde el principio, porque en el 8B había suficientes personas con ganas de hablar como para que el silencio de uno no fuera un problema. Lo de las bicicletas era más complicado.
 
-El ciclismo, en el imaginario de un colegio de bachillerato en 2013, no tenía el estatus que tenía el fútbol.
+El ciclismo, en el imaginario de un colegio de bachillerato, no tenía el estatus que tenía el fútbol.
 
 El fútbol tenía jugadores reales, apuestas en el recreo, ídolos que todos nombraban. El ciclismo tenía a Nairo —que ese año acababa de ganar el Tour de France y era portada de todos los periódicos y su cara estaba en las vallas publicitarias de la ruta al aeropuerto— y tenía a Santi, que se levantaba a las cinco de la mañana los días de entrenamiento y llegaba al colegio con las piernas todavía marcadas de la ropa de ciclismo.
 

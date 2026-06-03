@@ -10,7 +10,7 @@ No de golpe —no fue que un día Santi subiera un puerto de cierta manera y al 
 
 Dos minutos. En el ciclismo, dos minutos en una subida de quince kilómetros no son un ajuste: son otra categoría.
 
-Santi lo anotó en la libreta que había empezado a llevar —no porque alguien se lo dijera, sino porque su padre tenía una y parecía que Ospina también, y había algo en el acto de escribir los números que los hacía más reales, más irrebatibles. Tiempo. Puerto. Condiciones del día. La libreta era barata, de esas que venden en los papelerías del barrio, con la cubierta de cartón azul oscuro que con los meses empezó a curvarse por la humedad de los bolsillos.
+Santi lo anotó en la libreta que había empezado a llevar —no porque alguien se lo dijera, sino porque su padre tenía una, y había algo en el acto de escribir los números que los hacía más reales, más irrebatibles. Tiempo. Puerto. Condiciones del día. La libreta era barata, de esas que venden en los papelerías del barrio, con la cubierta de cartón azul oscuro que con los meses empezó a curvarse por la humedad de los bolsillos.
 
 Tenía trece años y ya llevaba la cuenta de lo que hacía con la precisión de alguien que entiende que los progresos pequeños son los únicos progresos reales.
 
@@ -76,9 +76,9 @@ El martes de la segunda semana, en el recreo, un compañero llamado Julián —g
 
 —Aguantar frío.
 
-Julián se rió. Desde ese martes fueron amigos, o algo suficientemente parecido a amigos. Julián nunca montó bicicleta de verdad en su vida, pero admiraba a quienes lo hacían con esa admiración genuina y desinteresada de quienes no sienten ninguna presión de ser lo que admiran. Fue él quien le dijo a Santi que el Club Ciclismo Rionegro tenía categorías juveniles. Fue él quien le consiguió el número de teléfono de uno de los directores. Fue él quien le prestó plata para la inscripción cuando la mesada del mes no alcanzó.
+Julián se rió. Desde ese martes fueron amigos, o algo suficientemente parecido a amigos. Julián nunca montó bicicleta de verdad en su vida, pero admiraba a quienes lo hacían con esa admiración genuina y desinteresada de quienes no sienten ninguna presión de ser lo que admiran. Fue él quien le preguntaba a Santi por los tiempos y los puertos y los kilómetros, quien escuchaba con una atención que ningún otro compañero del colegio le daba, y quien contaba lo que Santi hacía a quien quisiera oír —en el recreo, en la tienda, en el bus de regreso a casa. No lo hacía para impresionar a nadie. Lo hacía porque genuinamente le parecía extraordinario y no podía entender por qué no todo el mundo lo veía.
 
-Julián Estrada. Que cuatro años después estaría al borde de una carretera en la provincia de Lieja gritando el nombre de Santi con los brazos en alto, con la cara pintada de amarillo y azul, llorando de una manera que no le avergonzaba en absoluto.
+Julián Estrada. Que algunos años después estaría al borde de una carretera en la provincia de Lieja gritando el nombre de Santi con los brazos en alto, con la cara pintada de amarillo y azul, llorando de una manera que no le avergonzaba en absoluto.
 
 Pero eso todavía no había pasado.
 

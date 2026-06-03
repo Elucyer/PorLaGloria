@@ -455,7 +455,7 @@ Debajo, después de un momento:
 
 *Romandia: 28 de abril. Giro: 11 de mayo.*
 
-Cerró el cuaderno.
+El cuaderno quedó abierto sobre la silla.
 
 Miró el Mediterráneo desde la ventana.
 

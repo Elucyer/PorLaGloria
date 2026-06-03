@@ -258,7 +258,7 @@ No porque no tuviera qué decir — porque el mensaje de Hernando no era el tipo
 
 *La montaña compensa.*
 
-Apagó la luz.
+Se dio vuelta hacia la pared.
 
 Pensó en los seis kilómetros al ocho por ciento de la subida de San Marino. En el momento donde el cuerpo había pasado del ochenta y cinco al noventa y tres y el cronómetro había seguido corriendo y la roca de San Marino había aparecido entre las curvas como la llegada inevitable de todo lo que la subida construye.
 

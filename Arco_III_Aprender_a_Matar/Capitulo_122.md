@@ -20,7 +20,7 @@ Las cuatro etapas donde la batalla de los tres ocurrió sin que los números lo 
 
 La batalla de los ojos.
 
-Roglič en el grupo de los favoritos con la cara del tiburón en reposo — la posición siempre protegida, el liderato de la GC llevado como ropa puesta. Pogačar en las cuatro etapas de transición con el patrón del reconocimiento: incrementos de dos vatios en las rampas del cuatro por ciento, no el ataque, la afinación. Santi rodó y observó. Anotó en el cuaderno cada noche lo que había visto durante el día — no los números, los gestos. La manera en que Roglič distribuía el peso en la bicicleta cuando el pelotón subía el ritmo en los repechos. La manera en que Pogačar miraba al frente en la recta — siempre al frente, la mirada del corredor que ya decidió cuándo va a ir y que antes de ese momento no necesita ningún dato adicional.
+Roglič en el grupo de los favoritos con la cara del corredor en reposo — la posición siempre protegida, el liderato de la GC llevado como ropa puesta. Pogačar en las cuatro etapas de transición con el patrón del reconocimiento: incrementos de dos vatios en las rampas del cuatro por ciento, no el ataque, la afinación. Santi rodó y observó. Anotó en el cuaderno cada noche lo que había visto durante el día — no los números, los gestos. La manera en que Roglič distribuía el peso en la bicicleta cuando el pelotón subía el ritmo en los repechos. La manera en que Pogačar miraba al frente en la recta — siempre al frente, la mirada del corredor que ya decidió cuándo va a ir y que antes de ese momento no necesita ningún dato adicional.
 
 La GC al inicio de la novena etapa:
 - Roglič: líder.
@@ -213,11 +213,11 @@ Los kilómetros cinco y seis de la Marie-Blanque.
 
 El diálogo.
 
-No el diálogo de palabras — el diálogo del pedaleo. Pogačar en el kilómetro cinco probando otro incremento: dos vatios más, cinco segundos, la pregunta que el tiburón hace cuando quiere saber si los otros dos todavía tienen respuesta. Roglič respondiéndole en 2,1 — el tiburón del cronómetro que en la montaña sostenida va más lento de responder que en el llano pero que responde. Santi respondiendo en 1,9 — el único de los tres cuya respuesta se acelera cuando la subida lleva más kilómetros, el corredor que en la montaña sostenida encuentra algo que los primeros kilómetros no mostraban.
+No el diálogo de palabras — el diálogo del pedaleo. Pogačar en el kilómetro cinco probando otro incremento: dos vatios más, cinco segundos, la pregunta que hace el corredor que quiere saber si los otros dos todavía tienen respuesta. Roglič respondiéndole en 2,1 — el esloveno que en la montaña sostenida va más lento de responder que en el llano pero que responde. Santi respondiendo en 1,9 — el único de los tres cuya respuesta se acelera cuando la subida lleva más kilómetros, el corredor que en la montaña sostenida encuentra algo que los primeros kilómetros no mostraban.
 
 Roglič lo notó.
 
-No con palabras. Con los ojos — la mirada lateral que el tiburón hace cuando el otro tiburón hace algo que no esperaba.
+No con palabras. Con los ojos — la mirada lateral del corredor que ve al de al lado hacer algo que no esperaba.
 
 El kilómetro seis: los tres juntos.
 
@@ -367,13 +367,13 @@ El número en el cuaderno de Santi esa noche:
 
 *Tres puertos. Noventa segundos.*
 
-Cerró el cuaderno.
+El cuaderno quedó abierto sobre la silla.
 
 El Tour de France 2020 empezaba mañana de verdad.
 
 ---
 
-En Laureles, a las once y media de la noche de Colombia.
+Las once y media de la noche de Colombia.
 
 Hernando cerró el cuaderno.
 

@@ -16,9 +16,9 @@ Santi a la izquierda de Ferretti — el líder siempre junto al director, la pos
 
 **Stef Broeckx** a la derecha de Santi — el belga de veintisiete años de Kortrijk que en su tercera temporada con el FCV-WorldTour era el gregario de montaña que mejor conocía a Santi en la carretera. Broeckx que en los Giros anteriores había subido el Stelvio y el Mortirolo hasta el kilómetro donde podía y que conocía exactamente el ritmo de Santi en la primera hora de la subida porque ese ritmo era el ritmo que él había intentado seguir las últimas dos temporadas. Los ojos de Broeckx en la reunión: la atención del corredor que todavía está procesando la Strade Bianche del día anterior — en la que él había sido uno de los cuatro del equipo que habían aguantado el ritmo de Santi en el Monte Sante Marie hasta el kilómetro tres antes de ceder.
 
-**Théo Duchêne** — el francés de veintinueve años de Lyon que en el equipo era el corredor que hacía dos cosas al mismo tiempo: subirse a la bicicleta en las etapas y manejar los datos tácticos desde el autobús y desde el pinganillo. Duchêne que en tres Tours de France anteriores con el equipo continental del que provenía había aprendido que el valor del gregario inteligente no era el vataje sino la capacidad de leer la carrera en tiempo real y comunicársela al líder sin que el líder tuviera que pensar en lo que Duchêne ya había pensado. Tenía el portátil abierto en la mesa con los datos de la Strade Bianche — los vatios del Monte Sante Marie, los splits de la crono de apertura, el análisis comparativo con los datos de Pogačar y Van Aert.
+**Théo Duchêne** — el francés de veintinueve años de Lyon que en el equipo cumplía el rol del capitán de ruta: el corredor que en la carretera leía el pelotón y le traducía lo que veía a Santi via pinganillo, sin que Santi tuviera que apartar la atención de sus propias piernas. Duchêne que en tres Tours de France anteriores con el equipo continental del que provenía había aprendido que el valor del gregario inteligente no era el vataje sino la capacidad de leer la carrera en tiempo real — quién estaba al límite, qué equipo preparaba el ataque, cuándo el ritmo del pelotón era trampa y cuándo era real. Tenía el portátil abierto en la mesa con los datos de la Strade Bianche — los vatios del Monte Sante Marie, los splits de la crono de apertura, el análisis comparativo con los datos de Pogačar y Van Aert.
 
-**Simon Clarke** — el australiano de treinta y tres años de Melbourne que llevaba seis temporadas en el pelotón WorldTour y tres en el FCV-WorldTour. Clarke que era el rouleur del equipo: el corredor que en las etapas de viento lateral hacía el trabajo de los echelones que los escaladores no podían hacer, que en los días de pavés aguantaba donde los escaladores cedían, que en el Tour tomaba el relevo del tren cuando Broeckx y Vidal ya habían dado todo. Clarke que en las reuniones de equipo tenía la costumbre de inclinarse hacia atrás en la silla con los brazos cruzados — la postura del veterano que ha escuchado suficientes reuniones de equipo como para saber cuáles partes son para él y cuáles son para los otros.
+**Simon Clarke** — el australiano de treinta y tres años de Melbourne. El corredor que en enero de dos mil dieciocho había enseñado a Santi los adoquines de Flandes, los descensos en asfalto mojado, la economía de movimiento que distingue al ciclista del norte del ciclista de montaña. El tercer Grand Tour que corrían juntos — después del Giro 2018 y del Giro 2019. Clarke que era el rouleur del equipo: las etapas de viento lateral, los echelones que los escaladores no podían hacer, los días de pavés donde aguantaba cuando los demás cedían, el relevo del tren en el Tour cuando Broeckx y Vidal ya habían dado todo. Clarke que en las reuniones de equipo tenía la costumbre de inclinarse hacia atrás con los brazos cruzados — la postura del veterano que ha escuchado suficientes reuniones como para saber cuáles partes son para él y cuáles son para los otros.
 
 **Jorge Vidal** — el español de veintiséis años de Vitoria-Gasteiz que en su primera temporada con el FCV-WorldTour era el fichaje de montaña del invierno. Vidal que en el Vuelta del año anterior había sido el gregario de los últimos cinco kilómetros del equipo del que provenía — el corredor que en la montaña sostenida tenía el nivel de los mejores auxiliares del pelotón y que Rusconi había identificado en los datos como el gregario que podía llevar a Santi hasta más arriba que cualquier otro del equipo. Silencioso en la reunión. La mirada en el portátil de Duchêne cuando Duchêne pasaba la pantalla.
 
@@ -345,7 +345,7 @@ El cuaderno azul oscuro con los veintiún perfiles de las etapas.
 
 El café.
 
-El parque de los samanes abajo.
+El parque abajo.
 
 El Valle de Aburrá en los días del agosto colombiano que el trópico no llama agosto — que llama simplemente los días, el tiempo que pasa con el mismo calor y la misma lluvia de las cinco de la tarde y el mismo ruido de la ciudad que existe independiente del calendario.
 
@@ -415,9 +415,7 @@ Santi abrió el cuaderno en la última entrada.
 
 *Merckx después.*
 
-Cerró el cuaderno.
-
-Apagó la luz.
+Guardó el cuaderno.
 
 El Tour empezaba mañana.
 

@@ -258,7 +258,7 @@ Debajo de eso escribió dos palabras más:
 
 Las subrayó.
 
-Cerró el cuaderno.
+Guardó el cuaderno.
 
 ---
 

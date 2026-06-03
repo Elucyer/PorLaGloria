@@ -229,7 +229,7 @@ Abrió el cuaderno.
 
 *44 segundos a Yates. 28 segundos a Bernal (INE). Quintana a 7seg. El km 19 es la carrera.*
 
-Cerró el cuaderno.
+Guardó el cuaderno.
 
 Durmió.
 

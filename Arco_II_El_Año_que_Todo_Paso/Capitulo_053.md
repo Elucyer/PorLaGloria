@@ -78,7 +78,7 @@ Nada más.
 
 ---
 
-*Señal internacional — Eurosport España, 9:41 de la mañana (hora Colombia)*
+*Eurosport España — 9:41 a.m., hora Colombia*
 
 —Buenos días y bienvenidos al último día del Giro d'Italia 2018. Hoy, el pelotón rueda hacia Roma. Ciento quince kilómetros. La Via della Conciliazione. El Foro Italico. Y esta tarde, el podio con los tres clasificados: Chris Froome, Santiago Reyes, y Miguel Ángel López.
 
@@ -264,7 +264,7 @@ El Giro de Italia 2018 había terminado.
 
 ---
 
-*Señal internacional — Eurosport España, 4:41 de la tarde (hora Colombia)*
+*Canal Internacional — 4:41 p.m.*
 
 —¡¡BENNETT GANA EN ROMA!! ¡¡El irlandés del Bora-Hansgrohe gana el sprint de la Etapa 21 del Giro d'Italia 2018!! ¡¡Y el pelotón de los favoritos cruza a continuación, con Chris Froome, Santiago Reyes y Miguel Ángel López llegando juntos al Foro Italico!!
 
@@ -298,7 +298,7 @@ Santi respondió al segundo timbre.
 
 —¿Cómo estás?
 
-—Bien. —Una pausa—. Llegué.
+—Bien. Llegué.
 
 —Lo vi.
 
@@ -376,7 +376,7 @@ Había algo en eso que Santi no supo formular en ese momento y que no formuló d
 
 ---
 
-*Señal internacional — Eurosport España, 7:04 de la tarde (hora Colombia)*
+*Transmisión Eurosport, 7:04 p.m., etapa 21*
 
 El presentador del podio habló en italiano.
 
@@ -560,7 +560,7 @@ El autobús arrancó.
 
 ---
 
-*Señal internacional — Eurosport España, 11:47 de la noche (hora Colombia)*
+*Eurosport España — 11:47 p.m., hora Colombia*
 
 En el apartamento de Laureles, el televisor seguía encendido.
 

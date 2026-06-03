@@ -76,7 +76,7 @@ El lago seguía a la izquierda.
 
 ---
 
-En Laureles, a las tres de la tarde.
+El apartamento de Laureles, las tres de la tarde.
 
 La diferencia en el televisor: *Reyes +1:08*. El narrador colombiano: *El campeón del mundo lleva noventa kilómetros solo. El grupo intenta reducir pero Santi Reyes no pierde ventaja. Esto, señores, es una demostración.*
 
@@ -284,9 +284,7 @@ El agua gris de octubre. Los Alpes suizos al fondo, apenas visibles entre las nu
 
 ---
 
-En Laureles, a las cuatro y veintidós de la tarde:
-
-Hernando abrió el cuaderno.
+A las cuatro y veintidós en Medellín, Hernando abrió el cuaderno.
 
 Escribió:
 
@@ -296,13 +294,11 @@ Escribió:
 
 *Primero.*
 
-Cerró el cuaderno.
-
 Lo puso sobre la mesita, al lado del café frío.
 
 Carmen seguía con la mano sobre su rodilla.
 
-Afuera, el parque de Laureles — los samanes con las hojas del trópico que no caen porque en Medellín no hay otoño. El ruido de la ciudad. Las nubes de la tarde que en el Valle de Aburrá anunciaban la lluvia de las cinco.
+Afuera, el parque de Laureles — la arboleda con las hojas del trópico que no caen porque en Medellín no hay otoño. El ruido de la ciudad. Las nubes de la tarde que en el Valle de Aburrá anunciaban la lluvia de las cinco.
 
 El teléfono de Hernando vibró en la mesita.
 
