@@ -12,7 +12,7 @@ La diferencia con la Strade Bianche de marzo era el calor y la ausencia del púb
 
 El virus había quitado al público de las cunetas. No de todas — habría tifosi en los puntos autorizados, en los últimos kilómetros hacia la Piazza del Campo, en los sectores donde el acceso individual con distancia de seguridad era posible. Pero la Strade Bianche de agosto de dos mil veinte iba a ser la carrera del silencio: los ciento ochenta y cuatro kilómetros de la Toscana sin el griterío habitual de las cunetas, el ruido del público que en las carreras de ciclismo es el ruido de fondo permanente y cuya ausencia en los primeros metros siempre produce en el corredor la sensación de la cosa que falta sin que el cuerpo pueda nombrarla.
 
-Ferretti llamó a Santi el veintidós de julio, tres días después de que Santi aterrizara en Barcelona.
+Ferretti llamó a Santi el veintidós de julio, cuatro días después de que Santi aterrizara en Barcelona.
 
 — La Strade Bianche — dijo Ferretti. — El primero de agosto.
 

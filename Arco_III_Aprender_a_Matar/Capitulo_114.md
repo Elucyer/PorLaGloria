@@ -138,7 +138,7 @@ Hernando tomó el café.
 
 Pensó en los primeros años — San José de la Montaña, el camino de tierra antes del asfalto, el hijo de doce años que subía la cuesta del municipio en la bicicleta de segunda mano que él le había comprado en la feria de San Jerónimo. El hijo que no hablaba pero que cuando subía hablaba con todo el cuerpo. El hijo que a los quince subía el Alto de Minas y que a los dieciséis destruía las marcas de los universitarios.
 
-Y ahora: campeón del mundo, campeón del Giro dos veces, ganador del Lombardia, veinte años, volviendo al mismo puerto en la misma oscuridad.
+Y ahora: campeón del mundo, campeón del Giro, ganador del Lombardia, veinte años, volviendo al mismo puerto en la misma oscuridad.
 
 *Remisión completa*, había dicho el doctor Gustavo.
 

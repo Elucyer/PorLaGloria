@@ -122,7 +122,7 @@ Estaba quieto del lado del micrófono — la quietud específica del corredor qu
 
 Al minuto cincuenta y uno:
 
-— Santi — dijo Valverde —. Vos tenés veinte años y ya ganaste el Giro dos veces, el Mundial y un Monumento. ¿Cuándo vas a ganar el Tour?
+— Santi — dijo Valverde —. Vos tenés veinte años y ya ganaste el Giro, el Mundial y un Monumento. ¿Cuándo vas a ganar el Tour?
 
 Era la primera vez en los cuatro episodios del podcast que el invitado le hacía una pregunta directa a Santi.
 

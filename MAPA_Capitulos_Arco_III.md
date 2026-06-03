@@ -19,7 +19,7 @@
 - **Il Lombardia 2019**: Santi gana con superioridad de principio a fin (en realidad: Bauke Mollema). 3 capítulos. Van Aert y Pogačar NO estuvieron — los rivales reales fueron Fuglsang, Valverde, Alaphilippe, Nibali.
 - **Bloque 2 expandido**: El plan original tenía 7 capítulos (108–114). El escrito tiene **10 capítulos numerados (108–117) + 2 capítulos especiales del podcast** (114_especial_1 Valverde, 114_especial_2 Pogačar+Van Aert). Santi **GANA** la Strade Bianche (originalmente quedaba 4.º).
 - **Tour 2020**: **23 capítulos (118–140).** La dinámica central es la de los tres tiburones: Roglič, Pogačar y Santi. Ningún tiburón descansa. El resultado real se mantiene: Pogačar gana, Roglič colapsa en la CRI. Santi 3.º. La crono define el arco siguiente.
-- **Giro 2020**: Santi gana con superioridad (en realidad: Tao Geoghegan Hart).
+- **Giro 2020**: Carapaz gana (en realidad: Tao Geoghegan Hart). Santi no corre el Giro 2020 — recuperación post-Tour y preparación 2021.
 - **Lieja 2021**: Santi gana (en realidad: Pogačar).
 - **Vuelta 2021**: Santi gana con exhibición en Sierra Nevada (en realidad: Roglič).
 - **Tour 2022**: Santi 2.º, pierde la CRI final por 8 segundos ante Vingegaard.
@@ -76,7 +76,7 @@
 ## BLOQUE 3 — TOUR DE FRANCE 2020 (Caps 118–140)
 **Fechas reales: 29 agosto – 20 septiembre 2020**
 **Ganador real: Tadej Pogačar — Roglič colapsa 57" en la CRI final de La Planche des Belles Filles**
-**EN LA FICCIÓN: idéntico al resultado real. Santi 3.º general.**
+**EN LA FICCIÓN: SANTI GANA EL TOUR 2020. Pogačar 2.º, Roglič 3.º. Santi gana 3 etapas: E9 (Marie-Blanque), E15 (Grand Colombier), E17 (Col de la Loze). En la CRI final, Pogačar hace una CRI histórica pero Santi aguanta por 45 segundos.**
 **Estilo narrativo: los tres tiburones — múltiples ataques por etapa, sin descanso, sin misericordia**
 
 ---
