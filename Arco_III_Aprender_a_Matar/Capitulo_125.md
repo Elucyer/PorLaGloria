@@ -237,27 +237,23 @@ El corredor de prensa en la zona de llegada de la cima a 1.501 metros — el fr�
 
 El periodista de *L'Équipe*:
 
-— Pogačar, ganaste el Grand Colombier. ¿Cambia el Tour?
+— Santi, ganaste el Grand Colombier. ¿Cambia el Tour?
 
-Pogačar: — Cambia los números. La carrera no termina en el Colombier.
+— Cambia los números — dijo Santi. — La carrera no termina en el Colombier.
 
-— ¿Roglič cedió veintitrés segundos. Lo esperabas?
+— Roglič cedió veintinueve segundos. ¿Lo esperabas?
 
-Pogačar: — No esperaba nada. Lo vi cuando pasó.
+— No esperaba un número. Esperaba que el Colombier dijera algo. Lo dijo.
 
 El periodista de France 2:
 
-— Santi, segundo en el Colombier. ¿Es suficiente para el Tour?
+— Pogačar, segundo en el Colombier, seis segundos. ¿Podés ganar el Tour?
 
-— No soy segundo en el Tour — dijo Santi. — Soy tercero, a treinta y cinco de Roglič. No es suficiente.
-
-El periodista: — ¿Qué falta?
-
-— El Loze.
+Pogačar: — Falta el Loze.
 
 El periodista de *Sporza*:
 
-— Roglič, perdiste tiempo en el Grand Colombier por primera vez. ¿Preocupado?
+— Roglič, veintinueve segundos en el Colombier. Primera vez que cedés tiempo significativo en montaña. ¿Preocupado?
 
 Roglič, con la economía de siempre: — El Tour no termina en el Colombier.
 
@@ -273,25 +269,25 @@ En el hotel del Grand Colombier esa noche.
 
 Ferretti, Rusconi, Santi.
 
-Rusconi con el portátil: — Los números del Colombier. Km 16,5: respuesta de Roglič en 4,1 segundos. El Soudet fue 3,2. La Marie-Blanque fue 3,7. El Colombier: 4,1. — La curva en la pantalla — los cuatro números conectados por la línea que Rusconi había proyectado en el análisis del día de descanso. — La degradación es consistente. Cada etapa de alta montaña le cuesta más.
+Rusconi con el portátil: — Los números del Colombier. Km 16,5: respuesta de Roglič al ataque de Santi, 4,1 segundos. El Soudet fue 3,2. La Marie-Blanque fue 3,7. El Colombier: 4,1. — La curva en la pantalla — los cuatro números conectados por la línea que Rusconi había proyectado en el análisis del día de descanso. — La degradación de Roglič es consistente. Cada etapa de alta montaña le cuesta más.
 
 — ¿El Loze? — dijo Santi.
 
-Rusconi cerró el portátil.
+— El modelo proyecta 5,8 a 6,4 para Roglič en el Loze.
 
-— El modelo — dijo — proyecta 5,8 a 6,4.
+Seis segundos de ventana en el kilómetro correcto.
 
-Seis segundos de ventana en el kilómetro correcto del Loze.
-
-Seis segundos que en el 8,5% del Loze, con la fatiga de cuatro puertos antes, podían convertirse en cuarenta metros de diferencia.
-
-Cuarenta metros que nadie en el mundo podía cerrar en el Loze después de cuatro puertos.
+Seis segundos que en el 8,5% del Loze, con la fatiga de cuatro puertos antes, podían convertirse en cuarenta metros de diferencia permanente.
 
 Nadie excepto Pogačar.
 
 Ferretti lo dijo en voz alta:
 
-— En el Colombier, Pogačar fue cuatro segundos más rápido que vos en la cima. — Pausa. — En el Loze, eso no puede pasar.
+— En el Colombier, Pogačar respondió al segundo ataque en 2,8 segundos. Roglič tardó 4,1. — Pausa. — El problema no es Roglič. El problema es que Pogačar sigue respondiendo.
+
+Rusconi:
+
+— La proyección del Loze: con Roglič, tenemos la ventana. Con Pogačar, el modelo dice *posiblemente*.
 
 Santi lo miró.
 
@@ -299,9 +295,9 @@ Santi lo miró.
 
 Dejó el cuaderno en la mesa.
 
-Era la verdad del Grand Colombier que los números de Rusconi confirmaban y que Santi ya sabía desde el kilómetro dieciséis y medio cuando había cerrado los seis metros con Pogačar en quince segundos y había llegado a cuatro metros de él en la cima: que el Tour 2020 tenía un corredor que en el kilómetro final del puerto largo tenía algo que los otros dos no tenían en la misma cantidad.
+Era la verdad del Grand Colombier que los números de Rusconi confirmaban: que el Tour 2020 tenía un corredor que en el kilómetro final de los puertos respondía con la velocidad que los otros dos no podían igualar.
 
-Abrirle a Roglič en el Loze: posible. Los números lo decían.
+Abrirle a Roglič en el Loze: probable. Los números lo decían.
 
 Abrirle a Pogačar en el Loze: diferente. Los números decían *posiblemente*, no *seguro*.
 

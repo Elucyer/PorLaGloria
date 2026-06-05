@@ -18,12 +18,15 @@
 
 - **Il Lombardia 2019**: Santi gana con superioridad de principio a fin (en realidad: Bauke Mollema). 3 capítulos. Van Aert y Pogačar NO estuvieron — los rivales reales fueron Fuglsang, Valverde, Alaphilippe, Nibali.
 - **Bloque 2 expandido**: El plan original tenía 7 capítulos (108–114). El escrito tiene **10 capítulos numerados (108–117) + 2 capítulos especiales del podcast** (114_especial_1 Valverde, 114_especial_2 Pogačar+Van Aert). Santi **GANA** la Strade Bianche (originalmente quedaba 4.º).
-- **Tour 2020**: **23 capítulos (118–140).** La dinámica central es la de los tres tiburones: Roglič, Pogačar y Santi. Ningún tiburón descansa. El resultado real se mantiene: Pogačar gana, Roglič colapsa en la CRI. Santi 3.º. La crono define el arco siguiente.
-- **Giro 2020**: Carapaz gana (en realidad: Tao Geoghegan Hart). Santi no corre el Giro 2020 — recuperación post-Tour y preparación 2021.
+- **Tour 2020**: **Caps 118–133.** CAMBIO CRÍTICO: **SANTI GANA EL TOUR 2020** (el plan original decía Pogačar). Santi gana por 14 segundos sobre Roglič, 50 sobre Pogačar. Los Campos Elíseos, 20 de septiembre 2020. Caps 118-127 del Grand Départ a la crono. Caps 128-133 de E17 Loze al podio de París.
+- **Tour de Flandes 2020**: **Cap 140.** AÑADIDO. Santi gana el 18 de octubre 2020 (Antwerp→Oudenaarde, 243,3 km). Van der Poel 2.º, Van Aert 3.º. Ataque solo en el Paterberg a 13 km de la meta.
+- **Vuelta a España 2020**: **Caps 141–144.** AÑADIDO. Santi gana E6 Formigal. Crash en E7 (hombro derecho, cadera). Termina 3.º general: Roglič 1.º, Carapaz 2.º (+1:24), Santi 3.º (+1:56). La crono del Ézaro le cuesta el podio alto. "La crono. Siempre la crono."
+- **Giro 2020**: Santi NO corre el Giro 2020. Recuperación post-Tour/Flandes/Vuelta. Giro eliminado del arco.
+- **Cierre 2020**: **Caps 134–139 y 145–146.** Return Colombia (134), Merckx podcast ep. 6 (135), convocatoria olímpica (136), asuntos comerciales (137), San José de la Montaña / Rodrigo Torres (138), regreso Europa + recon Flandes (139), cierre temporada + remisión completa Hernando (145), bicicleta nueva + Alto de Minas (146).
 - **Lieja 2021**: Santi gana (en realidad: Pogačar).
 - **Vuelta 2021**: Santi gana con exhibición en Sierra Nevada (en realidad: Roglič).
 - **Tour 2022**: Santi 2.º, pierde la CRI final por 8 segundos ante Vingegaard.
-- **Hernando**: Remisión completa confirmada en mayo 2020. Recibe bicicleta nueva de Santi en diciembre 2020. Primera salida en bicicleta post-recuperación: Alto de Minas con Santi. La bicicleta del Giro 2019 es recuerdo, no herramienta.
+- **Hernando**: Remisión completa confirmada noviembre 2020 (Pablo Tobón Uribe, Dr. Restrepo). Recibe bicicleta nueva Specialized azul marino Dura-Ace Di2 en diciembre 2020. Primera salida en bicicleta: Alto de Minas 12 dic 2020, llegan al km 16. La bicicleta del Giro 2019 es recuerdo, no herramienta.
 - **Hospital**: El hospital de Hernando es siempre el **Hospital Pablo Tobón Uribe** (Robledo, Medellín). No San Vicente. La cirugía inicial (2018) fue en la Clínica Las Américas.
 - **Laureles**: La familia vivió en Floresta desde 2012 (llegada de San José). Se mudó a Laureles ~2017 con el primer contrato serio de FCV.
 
@@ -123,42 +126,43 @@
 
 ---
 
-## BLOQUE 4 — GIRO D'ITALIA 2020 (Caps 135–147)
-**Fechas reales: 3 oct – 1 nov 2020**
-**Ganador real: Tao Geoghegan Hart — EN LA FICCIÓN: SANTI GANA**
-**Santi gana con 28 segundos sobre Hindley en la CRI final de Milán**
-**Estilo narrativo: múltiples POV — Santi, Hernando, el pelotón**
-
-| Cap | Título | Etapa(s) | Estado | Notas |
-|-----|--------|----------|--------|-------|
-| 135 | Palermo | E1 | ⬜ | El Giro en Sicilia. El círculo que se cierra. Luca Arnheim como 2.º de montaña por primera vez en un Grand Tour. Ganna gana la CRI (real). João Almeida ya entre los mejores. |
-| 136 | Sicilia | E2–E6 | ⬜ | El Giro del COVID: carreteras vacías, tifosi en los balcones. Almeida toma la rosa. Santi lo estudia — reconoce el mismo idioma de la montaña. |
-| 137 | El Etna | E3 (Enna–Etna) | ⬜ | **Santi ataca en el volcán.** Primera muestra de superioridad. Almeida resiste. Hindley aparece. Hernando en Laureles dibujando el perfil del Etna. |
-| 138 | Segunda semana | E7–E14 | ⬜ | Almeida de rosa. Kelderman sube en la GC. Santi en 3.º. Paciencia. |
-| 139 | Piancavallo | E15 (Rivolto–Piancavallo) | ⬜ | **Santi toma la maglia rosa.** Primer liderato. Hernando: el perfil en el cuaderno. Carmen: el café de las etapas largas. |
-| 140 | Con la rosa | E15–E17 | ⬜ | Tercera vez con la rosa, segunda como líder. El pelotón mira diferente. |
-| 141 | Madonna di Campiglio | E17 | ⬜ | Kelderman y Hindley atacan juntos. Santi los sigue. Almeida cede definitivamente. Tres hombres. |
-| 142 | Laghi di Cancano | E18 (Pinzolo–Laghi di Cancano) | ⬜ | La más dura. Kelderman cede. Santi y Hindley solos a 2.396 m. En el km final, Santi tiene lo que Hindley no tiene. |
-| 143 | La ventaja | E18–E20 | ⬜ | Santi sobre Hindley: 51 segundos. La CRI de Milán a cuatro días. Ferretti calcula. |
-| 144 | CRI final Cernusco–Milán | E21 | ⬜ | Ganna gana (real). Hindley recupera en la crono pero no suficiente. **Santi gana el Giro por 28 segundos.** |
-| 145 | El podio de Milán | Nov 2020 | ⬜ | La segunda vez en Milán. **Esta vez el teléfono contesta en el primer timbre.** Hernando: "bien." La misma palabra. Un significado diferente. |
-| 146 | El análisis | Nov 2020 | ⬜ | Ferretti: el Giro ganado con método. La prensa italiana: "il bambino di Medellín fa il bis." |
-| 147 | Los números del año | Nov 2020 | ⬜ | 2020: 3.º Tour + 1.º Giro. El año de la transición a la élite absoluta. Y la crono sigue ahí. |
-
----
-
-## BLOQUE 5 — CIERRE 2020 / RECUPERACIÓN HERNANDO / INVIERNO (Caps 148–155)
+## BLOQUE 4 — CIERRE 2020 / POST-TOUR / FLANDES / VUELTA / HERNANDO (Caps 134–146)
+**Período: septiembre–diciembre 2020**
+**GIRO 2020 ELIMINADO: Santi no corre. El bloque cubre el regreso a Colombia, clásicas de otoño y la Vuelta a España.**
 
 | Cap | Título | Período | Estado | Notas |
 |-----|--------|---------|--------|-------|
-| 148 | Medellín en noviembre | Nov 2020 | ⬜ | El regreso. La bicicleta del Giro 2020 va al local de Ospina en Floresta. La del Giro 2019 ya es de Hernando — es un recuerdo, no una herramienta. |
-| 149 | Duarte y las marcas | Nov 2020 | ⬜ | Balance comercial post-segundo Giro. FCV-WorldTour anuncia el calendario 2021. |
-| 150 | La recuperación completa | Nov 2020 | ⬜ | **MOMENTO CLAVE**: El oncólogo dice "remisión completa." Por primera vez. No "controlada". No "parcial". Completa. Santi en la silla de la esquina de la consulta. El médico dice: en seis meses, actividad física moderada. |
-| 151 | La bicicleta nueva | Dic 2020 | ⬜ | **MOMENTO CLAVE**: Santi regala a Hernando una bicicleta de ruta de alta gama — no de carrera profesional. No la del Giro (esa es un recuerdo precioso). Hernando la examina con las manos del hombre que en cuarenta años de bicicleta sabe lo que vale lo que toca. |
-| 152 | El Alto de Minas de vuelta | Dic 2020 | ⬜ | **MOMENTO CLAVE**: La primera salida de Hernando en bicicleta post-recuperación. Santi lo acompaña. El mismo puerto del capítulo 1. El padre que le enseñó, ahora sobre la bicicleta que el hijo le regaló. No hay discurso. Solo los dos subiendo. |
-| 153 | Vingegaard en Sierra Nevada | Dic 2020 | ⬜ | Campo base diciembre 2020. En la subida al Veleta, un corredor danés del Jumbo sube al mismo ritmo exacto durante 8 km. Al noveno, Santi incrementa. El danés incrementa. Santi lo mira. Vingegaard no lo mira. |
-| 154 | El plan 2021 | Dic 2020 | ⬜ | Ferretti: Lieja + Giro (Bernal va a ganar, lo usan para aprender) + Tour (primer intento serio) + Vuelta (objetivo A). Y la crono. Siempre. |
-| 155 | Floresta, enero 2021 | Ene 2021 | ⬜ | Ospina y los tres corredores que ha llevado al profesionalismo. Juan Carlos López firma con un equipo continental. Santi en el local de la calle 58. |
+| 134 | Regreso a Colombia | Sep 2020 | ✅ | Vuelo París→Medellín. Aeropuerto Córdova. Laureles. El abrazo de Carmen. Hernando en el balcón. Primeros días de descanso. Sábado 27 sep: vuelve al Alto de Minas solo (cuerpo al 65%). Tres jóvenes ciclistas en el puerto. Hernando: "Volvió al Minas. El cuerpo necesita el puerto antes de necesitar el dato." |
+| 135 | Ep. 6 — Eddy Merckx | 1 oct 2020 | ✅ | **CAPÍTULO STANDALONE PODCAST.** Videoconferencia desde Bruselas. 96 minutos. "El que te marca no puede ganar." El Liège 1971. La crono como "la carrera más honesta." Cierre: "que no sea nunca más catorce segundos." Hernando escucha desde el balcón esa noche. |
+| 136 | La convocatoria olímpica | 7 oct 2020 | ✅ | Centro Administrativo La Alpujarra. Director técnico Germán Ríos + Patricia Morales. Tokio 2021: ruta 24 jul, 234 km, Monte Fuji (28 km/5.6%, últimos 10 km/7.5%). Santi rechaza CRI: "En ruta. Solo en ruta." Acepta con Higuita y Rubio como domestiques. |
+| 137 | Asuntos comerciales | 5–6 oct 2020 | ✅ | Claro Colombia: SÍ (elimina cláusula política 12). Bavaria: NO ("Soy deportista"). Garmin: SÍ (contenido orgánico). Nico Porcel colombiano: SÍ a reunión de colaboración en ropa de ciclismo lifestyle. Hernando: "Lo que el corredor elige poner en el maillot dice algo sobre el corredor." |
+| 138 | San José de la Montaña | Oct 2020 | ✅ | Bus desde Terminal del Norte (2h40m). Don Elías en el parque. Visita a Rodrigo Torres: operado 2017, capacidad pulmonar 92-93%, rodó 20 km planos en julio. Rodrigo muestra foto 2015 en el Minas. Santi salda la deuda narrativa de la llamada desde Bélgica (Arco I cap 6). Hernando esa noche: "Llegó." |
+| 139 | Regreso a Europa | 15–17 oct 2020 | ✅ | Vuelo 15 oct noche, llega Bruselas 16. Ferretti lo recoge. Rusconi: cuerpo al 87%, Flandes necesita 90%. Sáb 17: reconocimiento en carro y bici. Paterberg en bici: 360m, 20.3% max, 2 min 12 seg. "El Paterberg es el lugar." Llamada nocturna con Hernando: debate solo o con Van Aert. |
+| 140 | Tour de Flandes | 18 oct 2020 | ✅ | **MÍNIMO 4000 palabras.** Antwerp→Oudenaarde, 243.3 km, 17 puertos. Van Aert cae km 53, continúa. Alaphilippe ataca Koppenberg (km 198), grupo de 4. Alaphilippe cae en descenso Taaienberg (moto). Paterberg 2 (km 230): Santi ataca en primeros 100m. Gap 7-8m en cima. 13 km solo. **GANA por 17" sobre Van der Poel y Van Aert.** Van Aert: "nunca vi un escalador puro ir solo en el Paterberg y aguantar trece km de llano." |
+| 141 | Vuelta E1–E5 | 20–25 oct 2020 | ✅ | Grand Départ Irún. E1 Arrate: Roglič gana, Santi 4.º a 7" (cuerpo 87%). E2-5: transición, cuerpo 87→89%. Vingegaard introducido como domestique de Roglič en su primer GT. GC después E5: Roglič +0, Carapaz +4", Mas +7", Santi +11". |
+| 142 | Vuelta E6 — Aramón Formigal | 25 oct 2020 | ✅ | Biescas→Aramón Formigal, 146.4 km. Puertos: Petralba, Cotefablo, Formigal (26.7 km/3.39%, últimos 3.8 km/6.8%). Vingegaard tira hasta km 22, se retira. Ataque Santi en km 1.2 del tramo final. **GANA E6: +3" Roglič, +6" Carapaz.** GC: Roglič +5" sobre Santi. Cuerpo al 90%. |
+| 143 | Vuelta E7 — La caída | 27 oct 2020 | ✅ | Vitoria→Villanueva de Valdegovía, 159.7 km, lluvia. Narrador + HERNANDO Y CARMEN en Laureles viendo la caída en TV. Crash km 94.3 descenso Artziniega. Hombro derecho (contusión deltoides), codo (raspón), cadera (trocánter mayor, hematoma profundo). Continúa. Rx: sin fractura. Dolor 6/10 llano, 3-4/10 montaña. GC sin cambios. Hernando cierra el cuaderno. Carmen: "¿está bien?" Hernando: "Sigue." |
+| 144 | Vuelta E8 — El Moncalvillo | 29 oct 2020 | ✅ | Logroño→Moncalvillo 164.6 km. 48h post-caída: hombro 4/10 en tracción. Grupo de 5 en km 9 (rampa 12%): Roglič, Carapaz, Mas, Santi, Vingegaard. Km 10 segunda rampa 12%: hombro llega a 6/10, brazo cede 2 décimas → pierde 4m → 6m. PIERDE RUEDA. Llega 1:46 después. GC: **Roglič +0. Carapaz +22". Mas +47". Carthy +1:10. Santi 5.º +1:51.** Narrador. Hernando solo ante la pantalla. Carmen al lado. |
+| 145 | Vuelta E11-E12 — Farrapona y Angliru | 1–3 nov 2020 | ✅ | E11 Farrapona: hombro 4/10, Gaudu gana, Santi 6.º a 9" — aguanta rampas 14%. GC sin cambios. E12 Angliru 12.5 km/10.1%, rampas 23.5%: hombro sube a 7/10 en km 8 cuando Roglič ataca → pierde rueda. Llega 35" después. Carthy gana (real). GC: Roglič +0. Carapaz +18". Mas +42". Carthy +1:04. Santi 5.º +2:08. Narrador en ambas. Carmen se sienta al lado de Hernando. |
+| 146 | Vuelta E13 — CRI del Ézaro | 5 nov 2020 | ✅ | Muros→Ézaro, 33.7 km CRI. Splits por kilómetro. Llano: pierde 31" en 28 km. Subida Ézaro 5.5 km/6.2%: recupera 15". Roglič gana, Santi -1:02. GC: Roglič +0. Carapaz +31". Mas +58". Carthy +1:38. Santi 5.º +3:10. Narrador. Hernando escribe "La crono. Siempre la crono." y cierra el bolígrafo. Conversación nocturna: "La Covatilla la corrés igual. No por la GC. Sino porque sos vos." |
+| 147 | Vuelta E17 + Cibeles — por orgullo | 6–8 nov 2020 | ✅ | E17 Covatilla: Santi ataca km 13, gana etapa (+3" Carapaz, +4" Carthy). Narrador. E21 Cibeles: 5.º general. Carapaz a Santi: "si no caés la GC era diferente." Santi: "todavía había el Angliru y la crono." Ferretti: "sin caída, proyectabas 2.º." Hernando cierra cuaderno p.74: "terminó quinto porque la crono existe y porque llovía en el Artziniega." |
+| 145 | Cierre de temporada | Nov 2020 | ✅ | Vuelo Madrid→Medellín, llega 10 nov. Sueño de 11 horas. Caminatas con Hernando en parque Laureles. 17 nov: Pablo Tobón Uribe. Dr. Restrepo: **"Remisión completa."** Sin tumor activo. Actividad moderada aprobada. Bicicleta: sí. Los tres afuera del hospital. Carmen: "Bicicleta." Hernando: "Bicicleta." Ferretti llama: invierno 1 dic, túnel de viento 3-4 dic. |
+| 146 | La bicicleta nueva y el Alto de Minas | Dic 2020 | ✅ | Specialized azul marino Dura-Ace Di2, 7.5 kg. Llega 9 dic al apartamento de Laureles. Hernando la examina con las manos del corredor veterano. Sáb 12 dic: primera salida al Alto de Minas. Llegan al km 16. Hernando decide parar. El hijo detrás del padre en el descenso. Cuaderno de Hernando: "el sábado que viene: km 17. No hay apuro." |
+
+---
+
+## BLOQUE 5 — INVIERNO 2020–2021 (Caps 147–155)
+**Período: noviembre–diciembre 2020, enero 2021**
+
+| Cap | Título | Período | Estado | Notas |
+|-----|--------|---------|--------|-------|
+| 147 | La Covatilla y Madrid (Etapas 17–21) | 6–8 nov 2020 | ✅ | Santi gana E17 Covatilla (ataque km 13, +3" Carapaz). Cibeles 8 nov: 5.º general (+3:07). Roglič campeón. Carapaz 2.º. Mas 3.º. Carthy 4.º. Conversación Carapaz/Santi: "la crono." Ferretti: "sin caída, proyectabas 2.º." GC narrador. Hernando página 74 del cuaderno. |
+| 148 | Cierre de temporada | Nov 2020 | ✅ | Vuelo Madrid→Medellín 10 nov. Descanso real. Caminatas con Hernando en parque Laureles. 17 nov: Pablo Tobón Uribe — Dr. Restrepo: **"Remisión completa."** Bicicleta aprobada. Carmen y Hernando afuera del hospital. Ferretti: invierno 1 dic, túnel de viento 3-4 dic. |
+| 149 | La bicicleta nueva y el Alto de Minas | Dic 2020 | ✅ | Specialized azul marino Dura-Ace Di2, 7,5 kg. Llega 9 dic. Hernando la examina. Sáb 12 dic: primera salida al Minas. Km 16. Hernando decide parar. Hijo detrás del padre en el descenso. Cuaderno: "km 17 el sábado que viene. No hay apuro." |
+| 150 | Túnel de viento | 3–4 dic 2020 | ⬜ | Rusconi y el modelo de posición. Los datos de la crono del Ézaro procesados. "1:02 en 33 km. Nunca más." El invierno de trabajo empieza aquí. |
+| 151 | Vingegaard en Sierra Nevada | Dic 2020 | ⬜ | Campo base diciembre 2020. En la subida al Veleta, un corredor danés del Jumbo sube al mismo ritmo exacto durante 8 km. Al noveno, Santi incrementa. El danés incrementa. Santi lo mira. Vingegaard no lo mira. |
+| 152 | El plan 2021 | Dic 2020 | ⬜ | Ferretti: Lieja + Giro (Bernal va a ganar, lo usan para aprender) + Tour (objetivo A) + Vuelta (objetivo B). Y la crono. Siempre. |
+| 153 | Floresta, enero 2021 | Ene 2021 | ⬜ | Ospina y los tres corredores que ha llevado al profesionalismo. Juan Carlos López firma con un equipo continental. Santi en el local de la calle 58. |
 
 ---
 

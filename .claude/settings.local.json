@@ -8,7 +8,13 @@
       "Bash(xxd \"c:\\\\Users\\\\Usuario\\\\Documents\\\\Proyectos\\\\PorLaGloria\\\\README.md\")",
       "Bash(python3 -c ' *)",
       "PowerShell(Rename-Item \"c:\\\\Users\\\\Usuario\\\\Documents\\\\Proyectos\\\\PorLaGloria\\\\Arco_II_El_A�o_que_Todo_Paso\\\\Capitulo_096_NUEVO.md\" \"Capitulo_096.md\")",
-      "WebSearch"
+      "WebSearch",
+      "WebFetch(domain:plataformarecorridosciclistas.org)",
+      "WebFetch(domain:es.wikipedia.org)",
+      "WebFetch(domain:www.cyclingweekly.com)",
+      "WebFetch(domain:www.cyclingnews.com)",
+      "WebFetch(domain:www.cyclingstage.com)",
+      "WebFetch(domain:www.39x28altimetrias.com)"
     ]
   }
 }

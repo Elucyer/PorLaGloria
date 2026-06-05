@@ -257,15 +257,19 @@ Santi lideró el descenso.
 
 No el descenso temerario de Pogačar — el descenso del corredor que en el reconocimiento de la semana anterior había memorizado cada curva, cada punto de frenado, cada trayectoria. La carretera del Gave de Laruns que bajaba desde los 1.035 metros de la cima de la Marie-Blanque hasta los 540 de Laruns en doce kilómetros de curvas cerradas y pavimento húmedo en los tramos de sombra.
 
-Pogačar descendía a doce metros detrás — el esloveno que en los descensos tomaba el exterior con la audacia del corredor que acepta el riesgo extra y que en la Marie-Blanque reducía los doce metros de cima a ocho, a seis, a cuatro.
+Pogačar descendía a doce metros detrás — el esloveno que en los descensos tomaba el exterior con la audacia del corredor que acepta el riesgo extra.
 
-Roglič a veinte metros — el técnico, la trayectoria perfecta, sin el riesgo del exterior y sin la urgencia de cerrarlo todo de golpe.
+Roglič a veinte metros — el técnico, la trayectoria perfecta, el corredor que antes de ser ciclista era saltador de esquí y que en los descensos técnicos encontraba las líneas que otros no veían.
 
 Rusconi por el pinganillo: — Hirschi a cuarenta segundos. A este ritmo lo alcanzás en el kilómetro ciento cuarenta y nueve.
 
 Santi no respondió.
 
-Los cuatro metros que Pogačar había recuperado en el primer tercio del descenso se estabilizaron. El corredor que desciende calculado y el corredor que desciende audaz llegaban al equilibrio del descenso donde el exterior es más rápido pero el calculado no cede el ritmo para no cederle el espacio.
+Pogačar cerró los doce metros a ocho, a seis — el exterior más rápido en las curvas abiertas. Pero en las curvas cerradas, donde la línea interior ganaba lo que el exterior perdía, Roglič recuperó lo suyo: de veinte metros a dieciséis.
+
+Dos escaladores distintos. Dos descensos distintos.
+
+Santi el del medio — no el más audaz, no el más técnico, sino el del ritmo que nadie en el puerto le había podido sostener.
 
 En el kilómetro ciento cuarenta y nueve de los ciento cincuenta y tres: Hirschi.
 
@@ -273,19 +277,23 @@ El suizo del Team Sunweb que en noventa kilómetros de soledad había dado todo 
 
 Santi solo en el kilómetro ciento cincuenta.
 
-Pogačar a seis metros.
+Pogačar a ocho metros. Roglič a catorce.
 
-Los últimos tres kilómetros de descenso antes de la entrada a Laruns — la carretera que en el fondo del valle se aplanaba y que en los últimos mil metros era ya el llano del río donde el sprint de llegada iba a ocurrir.
+Los últimos tres kilómetros hasta Laruns — la carretera que en el fondo del valle se aplanaba junto al Gave de Laruns, el río a la derecha, el pueblo visible ya en el llano.
 
-Pogačar cerró en el llano — el esloveno que en el llano tenía lo que Santi no tenía. En los últimos quinientos metros, Pogačar estaba a dos metros.
+En el llano, Pogačar no cerró más. Roglič sí — el esloveno con el motor del especialista en crono que en los dos kilómetros planos recortó a Pogačar: de catorce metros a doce, a diez.
 
-Santi lanzó el sprint en el kilómetro ciento cincuenta y dos con quinientos.
+Santi mantuvo.
 
-No esperó a los doscientos metros — lanzó cuando la carretera todavía tenía el leve descenso del kilómetro final, el descenso que en el sprint del corredor con el cuerpo del escalador vale los segundos que el escalador no tiene en el sprint plano.
+No aceleró — mantuvo el ritmo del corredor que sabe que los metros de ventaja que tiene son suficientes si no se equivoca.
 
-Santi cruzó la línea con cuatro segundos sobre Pogačar.
+Santi cruzó la línea.
 
-Roglič tercero, a dieciocho segundos del primero.
+Solo.
+
+Roglič segundo, a veinte segundos.
+
+Pogačar tercero, a treinta y uno.
 
 ---
 
@@ -293,11 +301,11 @@ Roglič tercero, a dieciocho segundos del primero.
 
 *El narrador:*
 
-*"¡Santi Reyes gana en Laruns! ¡Santiago Reyes Cardona gana la novena etapa del Tour de France 2020! El primer colombiano que gana una etapa pirenaica del Tour desde... señores, ¡Santi Reyes ataca en la cima de la Marie-Blanque y llega solo a Laruns! Pogačar segundo. Roglič tercero, a dieciocho segundos. Y señores — la GC. Santi Reyes, que llegó al Tour a catorce segundos de Roglič, sale de Laruns con el maillot amarillo virtual. Con ocho segundos de ventaja sobre Roglič. Santi Reyes lidera el Tour de France 2020."*
+*"¡Santi Reyes gana en Laruns! ¡Santiago Reyes Cardona gana la novena etapa del Tour de France 2020! El primer colombiano que gana una etapa pirenaica del Tour desde... señores, ¡Santi Reyes ataca en la cima de la Marie-Blanque y llega solo a Laruns! Roglič segundo, a veinte segundos. Pogačar tercero, a treinta y uno. Y señores — la GC. Santi Reyes, que llegó al Tour a doce segundos de Roglič, sale de Laruns con el maillot amarillo virtual. Con ocho segundos de ventaja sobre Roglič. Santi Reyes lidera el Tour de France 2020."*
 
 *Hernando escribió en el cuaderno — el bolígrafo:*
 
-*E9. Marie-Blanque. Santi primero. Roglič +18". Pogačar +22". Amarillo.*
+*E9. Marie-Blanque. Santi primero. Roglič +20". Pogačar +31". Amarillo.*
 
 *Una sola palabra más, debajo:*
 

@@ -222,7 +222,7 @@ Doce eran de compañeros de equipo y del staff del Élan Cycliste, que seguían 
 
 Uno era de la cuenta oficial del Giro de Italia, que tenía un algoritmo para detectar y seguir a los corredores participantes.
 
-Y uno era de una cuenta con ochocientos veintisiete seguidores, nombre de usuario *valeria.rios.foto*, que por alguna razón que ningún algoritmo hubiera podido explicar había visto la foto de un paisaje de Sicilia publicada a las diez de la noche por un corredor de dieciocho años sin foto de perfil y había decidido, antes de seguirla, darle like.
+Y uno era de una cuenta con ochocientos veintisiete seguidores, nombre de usuario *mariana.lopez.foto*, que por alguna razón que ningún algoritmo hubiera podido explicar había visto la foto de un paisaje de Sicilia publicada a las diez de la noche por un corredor de dieciocho años sin foto de perfil y había decidido, antes de seguirla, darle like.
 
 Santi no lo vio hasta el día siguiente.
 
