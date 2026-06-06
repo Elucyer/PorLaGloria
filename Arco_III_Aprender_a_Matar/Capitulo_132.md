@@ -146,25 +146,31 @@ Su propio 7,1 vatios por kilogramo en La Planche — un décimo menos que Pogač
 
 El kilómetro cuatro de La Planche.
 
-Rusconi: — Pogačar en el km 4: 7,3 vatios. Sigue subiendo. La diferencia en la GC virtual sobre Pogačar: ahora +38 segundos. Roglič en la GC virtual: +54 segundos.
+Rusconi por el pinganillo, con la voz cambiada: — Santi. Pogačar cruzó la línea. Tiempo final: 55 minutos y 32 segundos. — Pausa. — A tu ritmo actual, la diferencia en la etapa será de 26 segundos. Tu ventaja sobre Pogačar en el Tour: de 1:16 a 50 segundos.
 
-Treinta y ocho segundos sobre Pogačar.
+Cincuenta segundos.
 
-La reducción de tres segundos en dos kilómetros.
+Pogačar había terminado — había salido cinco minutos antes y había terminado mientras Santi todavía subía. Había ganado la etapa. Había hecho los treinta kilómetros de llano más rápido de lo proyectado y los seis kilómetros de La Planche a 7,3 vatios por kilogramo. Y aun así: cincuenta segundos.
 
-El modelo había proyectado que Pogačar ganaría en La Planche entre quince y veinte segundos sobre Santi. En el kilómetro cuatro, si Pogačar mantenía el 7,3 y Santi el 7,1, la diferencia al cruce sería de algo más — quizás veinticinco segundos.
-
-Veinticinco segundos.
-
-Si Pogačar ganaba La Planche por veinticinco segundos, Santi llegaba a la línea con +41-25 = +16 sobre Pogačar.
-
-Dieciséis segundos de margen.
-
-El rango inferior del escenario que Hernando había calculado en el balcón de Laureles — entre once y cuarenta y un segundos, cualquier punto del rango era ganar el Tour.
+El rango del escenario que Hernando había calculado en el balcón de Laureles — entre once y cuarenta y un segundos, cualquier punto del rango era ganar el Tour. Cincuenta estaba por encima del rango.
 
 Santi subió.
 
 No calculó. Pedaleó.
+
+---
+
+El kilómetro cinco.
+
+Rusconi: — Roglič cruzó. Tiempo final: 55 minutos y 11 segundos. — Pausa. — Cuarenta y siete segundos más rápido que tu proyección. Tu ventaja sobre Roglič en el Tour: de 1:01 a 14 segundos.
+
+Catorce segundos.
+
+El margen más pequeño del Tour de France 2020.
+
+Pero suficiente.
+
+Santi tenía los dos números antes de los últimos cuatrocientos metros. Pogačar había terminado, Roglič había terminado, y los dos números — catorce y cincuenta — eran los números del corredor que gana el Tour de France en la bicicleta de crono, perdiendo la etapa y ganando la carrera.
 
 ---
 
@@ -176,65 +182,11 @@ No el final del Tour de los escaladores — el final del Tour de los cronómetro
 
 Santi se paró en los pedales.
 
-Las últimas veinte pedaladas del Tour de France 2020 — el maillot amarillo sobre la bicicleta de crono del FCV-WorldTour en los últimos cuatrocientos metros al 24% de La Planche des Belles Filles.
+Las últimas veinte pedaladas del Tour de France 2020 — el maillot amarillo sobre la bicicleta de crono del FCV-WorldTour en los últimos cuatrocientos metros al 24% de La Planche des Belles Filles. El corredor que ya sabía el resultado y que solo tenía que cruzar.
 
 Cruzó la línea.
 
 El cronómetro: 55 minutos y 58 segundos.
-
----
-
-La espera.
-
-En el área de llegada de La Planche des Belles Filles, entre la manta térmica y el rodillo de enfriamiento y el análisis rápido de Rusconi con el tablet, la espera de los resultados de Roglič y Pogačar que todavía estaban en carrera.
-
-Roglič cruzó cuatro minutos después.
-
-El tiempo de Roglič en la crono: 55 minutos y 11 segundos.
-
-Cuarenta y siete segundos más rápido que Santi en la etapa.
-
-En la GC: Santi perdía 47 segundos en la crono. GC pre-crono: +1:01. GC post-crono: +1:01-0:47 = +14 segundos sobre Roglič.
-
-Catorce segundos.
-
-El margen más pequeño del Tour de France 2020.
-
-Rusconi por el pinganillo: — Roglič termina. Cuarenta y siete segundos de diferencia en la etapa. Tu ventaja sobre Roglič en el Tour: catorce segundos. — Pausa. — Falta Pogačar.
-
-Catorce segundos.
-
-Santi miró la pantalla que en el área de llegada mostraba la carretera del kilómetro cuatro de La Planche.
-
-Pogačar.
-
-El esloveno del UAE en el kilómetro cuatro de La Planche des Belles Filles — la bicicleta de crono blanca del UAE Team Emirates, el jersey blanco, la posición del corredor que en los primeros treinta kilómetros había sido más rápido de lo proyectado y que en La Planche subía a 7,3 vatios por kilogramo.
-
-Rusconi: — Pogačar en los últimos 400 metros. Diferencia acumulada en la GC virtual: Pogačar a +21 segundos sobre vos en este momento.
-
-Veintiún segundos.
-
-Si Pogačar mantenía ese ritmo hasta el cruce — si en los últimos cuatrocientos metros al 24% Pogačar hacía lo que el Col de la Loze había dicho que podía hacer — ganaba el Tour por un segundo.
-
-Santi miraba la pantalla.
-
-No podía hacer nada.
-
-El Tour de France 2020 estaba en los últimos cuatrocientos metros de La Planche des Belles Filles y Santi ya había cruzado y solo podía mirar.
-
-Pogačar en los últimos doscientos metros.
-
-La pantalla.
-
-El cronómetro.
-
-Pogačar cruzó la línea.
-
-El tiempo de Pogačar en la crono: 55 minutos y 32 segundos.
-
-Rusconi en el pinganillo: — Pogačar: 55:32. Diferencia con vos en la etapa: 26 segundos. Tu ventaja en el Tour sobre Pogačar: 1:16 - 0:26 = 50 segundos.
-
-Cincuenta segundos.
 
 Santi cerró los ojos.
 
