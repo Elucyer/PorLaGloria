@@ -227,7 +227,7 @@ Lo sabía.
 
 *El narrador:*
 
-*"¡Señores! ¡Roglič cede en el Col de la Loze! El líder del Tour de France 2020 está a siete metros del grupo de Santi Reyes y Pogačar. Por primera vez en esta carrera, Roglič no está en el grupo de los primeros. Santi Reyes y Pogačar solos al frente. Colombia, este es el momento que llevamos dieciséis días esperando."*
+*"¡Señores! ¡Roglič cede en el Col de la Loze! El esloveno del Jumbo está a siete metros del grupo de Santi Reyes y Pogačar. Por primera vez en esta carrera, Roglič no está en el grupo de los primeros. El líder del Tour, Santi Reyes, y Pogačar solos al frente. Colombia, este es el momento que llevamos dieciséis días esperando."*
 
 *Hernando escribió con el bolígrafo — los datos definitivos:*
 
@@ -339,7 +339,7 @@ Santi no respondió.
 
 *El narrador había bajado la voz:*
 
-*"Kilómetro diecisiete del Col de la Loze. Santi Reyes y Pogačar. Solos. El maillot arcoíris y el jersey blanco en el 11% de la montaña más alta del Tour. Señores — lo que está pasando en este kilómetro diecisiete es lo que tardamos dieciséis etapas en construir."*
+*"Kilómetro diecisiete del Col de la Loze. Santi Reyes y Pogačar. Solos. El maillot amarillo y el jersey blanco en el 11% de la montaña más alta del Tour. Señores — lo que está pasando en este kilómetro diecisiete es lo que tardamos dieciséis etapas en construir."*
 
 *Hernando no había anotado nada desde el kilómetro quince.*
 
@@ -439,7 +439,7 @@ Santi cruzó la línea de llegada de los 2.304 metros del Col de la Loze con cua
 
 ---
 
-El maillot arcoíris en la cima.
+El maillot amarillo en la cima.
 
 No la celebración de los brazos levantados — la llegada del corredor que en la última pedalada del puerto más alto del Tour cruza la línea con el cuerpo que ya terminó de dar lo que tenía y que en el cruce de la línea no tiene nada más para el gesto. Santi cruzó con las manos en el manillar. No las levantó. Las dejó donde estaban.
 
@@ -464,7 +464,7 @@ La GC al final de la decimoséptima etapa:
 
 *El narrador:*
 
-*"¡Santi Reyes gana en el Col de la Loze! ¡El Col de la Loze! 2.304 metros. La etapa más alta del Tour de France 2020 la gana Santiago Reyes Cardona — su tercer etapa en este Tour. El maillot arcoíris liderando el Tour de France. Pogačar segundo. Roglič tercero, a veinticuatro segundos. La GC: Santi lidera con un minuto y un segundo sobre Roglič, un minuto dieciséis sobre Pogačar. Señores — si Santi aguanta en La Planche, el Tour de France 2020 es de Colombia."*
+*"¡Santi Reyes gana en el Col de la Loze! ¡El Col de la Loze! 2.304 metros. La etapa más alta del Tour de France 2020 la gana Santiago Reyes Cardona — su tercer etapa en este Tour. El maillot amarillo liderando el Tour de France. Pogačar segundo. Roglič tercero, a veinticuatro segundos. La GC: Santi lidera con un minuto y un segundo sobre Roglič, un minuto dieciséis sobre Pogačar. Señores — si Santi aguanta en La Planche, el Tour de France 2020 es de Colombia."*
 
 *Hernando escribió en el cuaderno — el bolígrafo:*
 
