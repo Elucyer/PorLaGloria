@@ -176,7 +176,7 @@ No el final del Tour de los escaladores — el final del Tour de los cronómetro
 
 Santi se paró en los pedales.
 
-Las últimas veinte pedaladas del Tour de France 2020 — el maillot arcoíris del Campeón del Mundo sobre la bicicleta de crono del FCV-WorldTour en los últimos cuatrocientos metros al 24% de La Planche des Belles Filles.
+Las últimas veinte pedaladas del Tour de France 2020 — el maillot amarillo sobre la bicicleta de crono del FCV-WorldTour en los últimos cuatrocientos metros al 24% de La Planche des Belles Filles.
 
 Cruzó la línea.
 
@@ -305,7 +305,7 @@ Pero esta vez:
 
 El padre en Laureles, remisión completa, la bicicleta nueva, el balcón con el parque abajo, el café de las tardes.
 
-El hijo en La Planche des Belles Filles con el maillot amarillo del Tour de France y el jersey arcoíris del Campeón del Mundo.
+El hijo en La Planche des Belles Filles con el maillot amarillo del Tour de France.
 
 *Bien* — que esta vez no era el *bien* del que sobrevivió ni el *bien* del que llegó. Era el *bien* de los dos.
 
