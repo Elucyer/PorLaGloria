@@ -49,13 +49,13 @@ Ferretti lo miró.
 
 — Santi puede ganar los últimos seis kilómetros. — Pausa. — La crono de 36,2 es diferente.
 
-Era la respuesta que en el cuaderno de Santi ya estaba escrita: *La crono. El llano: pierdo 45" con Roglič. La Planche: recupero todo más 20". Balance: -25" sobre Roglič.*
+Era la respuesta que en el cuaderno de Santi ya estaba escrita: *La crono. El llano: pierdo 45" con Roglič. La Planche: recupero 20". Balance: -25" sobre Roglič en la etapa.*
 
-Treinta y siete segundos de desventaja sobre Roglič en la GC más veinticinco que iba a recuperar en la crono: seguía siendo 3.º.
+Un minuto y un segundo de ventaja sobre Roglič en la GC menos veinticinco que iba a perder en la crono: seguía primero. Con treinta y seis segundos de margen.
 
-El Tour de France 2020 no era el Tour de Santi.
+El Tour de France 2020 era el Tour de Santi — pero la crono era donde el margen se estrechaba.
 
-Era el Tour donde Santi aprendía el precio exacto de la crono.
+Era el Tour donde Santi aprendía el precio exacto de no saber cronometrar.
 
 ---
 
@@ -72,9 +72,9 @@ Los tres Corredores llegaron en el pelotón.
 Roglič con la cara del corredor que ha administrado el día sin gastar lo que mañana necesita. Pogačar con la cara de siempre — sin gesto visible, sin el procesamiento externo que en otros corredores se leía en los ojos. Santi en el interior del grupo, los ojos al frente, el cuaderno esperando en la maleta del hotel de Champagnole.
 
 La GC al inicio de la etapa 20:
-- Roglič: líder.
-- Pogačar: a 57 segundos.
-- Santi: a 1 minuto y 21 segundos.
+- Santi: líder.
+- Roglič: a 1 minuto y 1 segundo.
+- Pogačar: a 1 minuto y 16 segundos.
 
 ---
 
@@ -112,7 +112,7 @@ El cuaderno abierto en la última entrada:
 
 *Km 1-30: pierdo 40-45" con Roglič. Pierdo 15-20" con Pogačar.*
 
-*Km 30-36: La Planche. 8,5% + 24% final. Recupero todo lo perdido con Roglič más 20". Contra Pogačar: depende.*
+*Km 30-36: La Planche. 8,5% + 24% final. Recupero 20" sobre Roglič. Balance en la etapa: -25". Mi ventaja en la GC: de 1:01 a 0:36. Contra Pogačar: depende.*
 
 *Lo que no sé: si Pogačar tiene lo que el Col de la Loze dijo que tiene también en los 30 km de llano. En los 30 km de llano Pogačar es mejor que yo. ¿Cuánto mejor?*
 
