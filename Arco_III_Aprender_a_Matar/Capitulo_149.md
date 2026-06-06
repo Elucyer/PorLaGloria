@@ -336,6 +336,106 @@ Las montañas de siempre.
 
 ---
 
+El vuelo era el martes.
+
+Ferretti había llamado el viernes — antes de la salida al Minas, antes de la bicicleta nueva, cuando todavía era la semana de los últimos días de Colombia. El túnel de viento estaba reservado para el miércoles tres y el jueves cuatro de enero. Rusconi había procesado los datos de la crono del Ézaro — los 33,7 kilómetros, los splits, la pérdida de 31 segundos en el llano y la recuperación de 15 en la subida — y el modelo de posición nuevo estaba listo para probarse.
+
+— El martes — había dicho Ferretti. — Vuelo Medellín-Madrid, después Madrid-Ginebra. Rusconi te espera el miércoles a las nueve.
+
+El martes era el quince.
+
+Tres días después del Minas.
+
+---
+
+El lunes catorce en la noche, Santi preparó la maleta en la habitación de Laureles.
+
+No la maleta del corredor en carrera — esa la hacía el equipo, la dejaban en el hotel la noche antes de la etapa, los peloteros ponían la ropa de carrera en el orden que el corredor pedía. Esta era la maleta del hijo que vuelve a Europa — la ropa de invierno, el kit de entrenamiento, el cuaderno, el cargador del teléfono, las zapatillas de ciclismo de invierno que Rusconi había pedido traer para las primeras sesiones del Veleta.
+
+Hernando estaba en el balcón cuando Santi salió de la habitación.
+
+El cuaderno sobre las rodillas. La noche del catorce de diciembre sobre el valle.
+
+Santi se sentó en la silla de al lado — la silla que en el balcón de Laureles era la silla de Carmen pero que a esa hora Carmen había dejado libre para irse a dormir temprano con el tacto de la mujer que entiende cuándo dos personas necesitan el espacio sin que nadie lo pida.
+
+No hablaron de inmediato.
+
+El Valle de Aburrá abajo. Las luces de siempre.
+
+— El miércoles el túnel de viento — dijo Santi.
+
+— Lo sé — dijo Hernando.
+
+— Y el Veleta en enero. El campo base hasta el veinte.
+
+Hernando asintió.
+
+El calendario que los dos conocían de memoria — no porque lo hubieran repasado juntos sino porque en los años del profesionalismo de Santi el calendario del equipo era el calendario de la familia, el que Hernando anotaba en el cuaderno con las fechas de las carreras y los campos base y los viajes.
+
+— La próxima vez que venís — dijo Hernando — el Minas ya va a estar diferente.
+
+Santi lo miró.
+
+— ¿Diferente cómo?
+
+Hernando no respondió de inmediato.
+
+Miró el valle.
+
+— El sábado llego al diecisiete — dijo Hernando. — El siguiente al dieciocho. — Pausa. — Cuando volvés en marzo para el Giro de preparación, calculo que estoy en el veintiuno o veintidós.
+
+La cima.
+
+Santi no dijo nada.
+
+Hernando tampoco.
+
+El padre que en el cuaderno llevaba los datos del hijo desde 2014 y que en diciembre de 2020 anotaba sus propios datos — la FC, los kilómetros, la pendiente — con la misma precisión del corredor que en el puerto de entrenamiento aprende a leer el cuerpo.
+
+— Bien — dijo Santi.
+
+Una sola palabra. La misma que Hernando le había dicho a él cientos de veces con el mismo peso exacto.
+
+Hernando lo miró.
+
+La sonrisa mínima de nuevo — la que en él era el gesto máximo.
+
+— Bien — dijo Hernando.
+
+Se quedaron en el balcón otro rato sin hablar.
+
+La noche de diciembre sobre Laureles.
+
+Después Santi entró a dormir.
+
+---
+
+El martes quince a las cinco de la mañana, el taxi esperaba abajo.
+
+Carmen en la puerta con el café — el ritual de siempre, el café antes del taxi, el que en los viajes de Santi a Europa se repetía desde el primer vuelo a los diecisiete años cuando todavía era el muchacho del FCV juvenil que iba al Tour de l'Avenir y no sabía bien a dónde iba.
+
+Hernando en el balcón en la oscuridad de las cinco.
+
+No bajó.
+
+Era el ritual también — el padre que en los viajes de Santi no bajaba a despedirlo en la puerta sino que se quedaba en el balcón, la mano levantada una vez cuando el taxi arrancaba, el gesto mínimo que era suficiente.
+
+Santi salió con la maleta.
+
+Miró hacia arriba antes de subir al taxi.
+
+El balcón del cuarto piso.
+
+Hernando con el café en la mano.
+
+La mano levantada.
+
+Santi subió al taxi.
+
+El taxi arrancó por la calle de Laureles.
+
+---
+
 Esa tarde, Hernando abrió el cuaderno en el balcón.
 
 La página nueva.

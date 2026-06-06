@@ -178,6 +178,88 @@ Santi siguió al cuarto.
 
 ---
 
+El viernes veinticinco, Rusconi llamó a las diez de la mañana.
+
+— La bicicleta llega hoy — dijo Rusconi. — El equipo de logística la envió desde París el miércoles. La caja está en la empresa de transporte del aeropuerto de Rionegro. Duarte puede recogerla.
+
+— Yo voy — dijo Santi.
+
+Fueron en el carro de Duarte. La empresa de transporte aéreo en la zona de carga del Córdova — el depósito con los palés y las cintas de embalaje y el empleado que buscó en el sistema el número de guía que Rusconi había mandado por mensaje.
+
+La caja era larga. El logo del FCV-WorldTour en el lateral, la etiqueta de frágil, el número de serie del equipo impreso en la esquina.
+
+La misma caja que después de cada Gran Vuelta volvía a la sede del equipo en Waregem con las bicicletas de los corredores — los cuadros de carbono con los kilómetros de la carrera encima, los componentes que los mecánicos desmontaban para revisar, el inventario post-temporada que determinaba qué volvía a rodar y qué se archivaba.
+
+Esta no volvía a rodar.
+
+Santi la había pedido a Ferretti el día después de los Campos Elíseos — no el cuadro de repuesto, no una de las bicicletas de entrenamiento del Tour. La que había rodado el diecinueve de septiembre. La que estaba en el Pré de Mâcon cuando Roglič cedió. La que cruzó la línea de La Planche con catorce segundos de ventaja.
+
+Ferretti lo había arreglado con el equipo en dos días.
+
+---
+
+Hernando estaba en el balcón cuando el ascensor abrió.
+
+Escuchó la caja entrar por el pasillo — el ruido de las ruedas sobre el piso de madera, el peso del cartón contra el marco de la puerta.
+
+Carmen no preguntó.
+
+Santi abrió la caja en el comedor con el mismo cuchillo de siempre.
+
+El papel de burbujas. El cuadro envuelto, las ruedas desmontadas al lado, los pedales en la bolsa pequeña de plástico.
+
+Hernando entró desde el balcón.
+
+Se detuvo en la puerta del comedor.
+
+Miró el cuadro.
+
+No dijo nada durante diez segundos.
+
+Después se acercó. Las manos del corredor que en cuarenta años de ciclismo había tocado docenas de bicicletas y que en esas manos llevaba el conocimiento táctil del cuadro que no se aprende en ningún libro — las manos que recorrieron el tubo superior, el tubo del sillín, la unión de la horquilla con el cuadro donde el carbono de competición tiene una rigidez diferente al carbono de entrenamiento.
+
+Los kilómetros de la carrera estaban en el cuadro. Hernando los conocía aunque no los pudiera ver.
+
+— La misma que en el Giro — dijo Hernando. No como pregunta.
+
+— El mismo procedimiento — dijo Santi.
+
+Hernando asintió.
+
+En el cuarto del pasillo — el que en el apartamento de Laureles había pasado de ser cuarto de visitas a ser el espacio donde las cosas importantes de la familia encontraban su lugar permanente — la bicicleta del Giro de Italia 2019 estaba en el estante de la pared derecha. El cuadro sin ruedas, montado en el soporte metálico que Duarte había conseguido en octubre de ese año, con la etiqueta discreta que Hernando había puesto en la parte inferior del tubo: *Giro 2019. Stelvio. Verona.*
+
+Al lado izquierdo, el estante estaba vacío.
+
+Santi lo había pedido así cuando montaron el cuarto.
+
+Hernando lo miró.
+
+— ¿Vos la ponés o la pongo yo? — dijo Hernando.
+
+— Vos — dijo Santi.
+
+Hernando recogió el cuadro.
+
+Lo llevó al cuarto.
+
+Santi no entró.
+
+Desde el pasillo escuchó el sonido del soporte metálico ajustándose, el clic del mecanismo que sujetaba el cuadro.
+
+Hernando salió del cuarto.
+
+Cerró la puerta.
+
+— Bien — dijo Hernando.
+
+Eso fue todo.
+
+Carmen puso el café.
+
+Los tres en la mesa del comedor — el café de la tarde del veinticinco de septiembre en el apartamento de Laureles, el Valle de Aburrá afuera, el sonido del bus de la 104 en la esquina del parque.
+
+---
+
 El sábado veintisiete, Santi subió la bicicleta por primera vez desde los Campos Elíseos.
 
 No la de carrera — la bicicleta de entrenamiento. El Alto de Minas desde Laureles, la salida a las seis de la mañana antes de que el calor del valle subiera, la carretera que desde el barrio de Floresta ascendía hacia el corregimiento de San Cristóbal y después tomaba los flancos del puerto.

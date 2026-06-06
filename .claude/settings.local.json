@@ -14,7 +14,10 @@
       "WebFetch(domain:www.cyclingweekly.com)",
       "WebFetch(domain:www.cyclingnews.com)",
       "WebFetch(domain:www.cyclingstage.com)",
-      "WebFetch(domain:www.39x28altimetrias.com)"
+      "WebFetch(domain:www.39x28altimetrias.com)",
+      "Bash(copy Capitulo_152.md Capitulo_153.md)",
+      "Bash(copy Capitulo_153.md Capitulo_154.md)",
+      "Bash(copy Capitulo_154.md Capitulo_155.md)"
     ]
   }
 }
