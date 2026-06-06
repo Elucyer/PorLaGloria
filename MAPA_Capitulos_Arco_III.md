@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## MAPA DE CAPÍTULOS — ARCO III
-### "Aprender a Matar" (2020–2022) — Capítulos 105–225
+### "Aprender a Matar" (2020–2022) — Capítulos 105–212
 
 ---
 
@@ -127,7 +127,7 @@
 
 | Cap | Título | Período | Estado | Notas |
 |-----|--------|---------|--------|-------|
-| 134 | Regreso a Colombia | Sep 2020 | ✅ | Vuelo París→Medellín. Aeropuerto Córdova. Laureles. El abrazo de Carmen. Hernando en el balcón. Primeros días de descanso. Sábado 27 sep: vuelve al Alto de Minas solo (cuerpo al 65%). Tres jóvenes ciclistas en el puerto. Hernando: "Volvió al Minas. El cuerpo necesita el puerto antes de necesitar el dato." |
+| 134 | Regreso a Colombia | Sep 2020 | ✅ | Vuelo París→Medellín. Aeropuerto Córdova. Laureles. El abrazo de Carmen. Hernando en el balcón. **25 sep: bicicleta del Tour llega del equipo (Rusconi coordina desde París). Santi la entrega a Hernando. Va al cuarto junto a la del Giro 2019.** Sábado 27 sep: vuelve al Alto de Minas solo (cuerpo al 65%). Tres jóvenes ciclistas en el puerto. Hernando: "Volvió al Minas. El cuerpo necesita el puerto antes de necesitar el dato." |
 | 135 | Ep. 6 — Eddy Merckx | 1 oct 2020 | ✅ | **CAPÍTULO STANDALONE PODCAST.** Videoconferencia desde Bruselas. 96 minutos. "El que te marca no puede ganar." El Liège 1971. La crono como "la carrera más honesta." Cierre: "que no sea nunca más catorce segundos." Hernando escucha desde el balcón esa noche. |
 | 136 | La convocatoria olímpica | 7 oct 2020 | ✅ | Centro Administrativo La Alpujarra. Director técnico Germán Ríos + Patricia Morales. Tokio 2021: ruta 24 jul, 234 km, Monte Fuji (28 km/5.6%, últimos 10 km/7.5%). Santi rechaza CRI: "En ruta. Solo en ruta." Acepta con Higuita y Rubio como domestiques. |
 | 137 | Asuntos comerciales | 5–6 oct 2020 | ✅ | Claro Colombia: SÍ (elimina cláusula política 12). Bavaria: NO ("Soy deportista"). Garmin: SÍ (contenido orgánico). Nico Porcel colombiano: SÍ a reunión de colaboración en ropa de ciclismo lifestyle. Hernando: "Lo que el corredor elige poner en el maillot dice algo sobre el corredor." |
@@ -155,138 +155,121 @@
 | 151 | El danés del Veleta | Ene 2021 | ✅ | Campo base Sierra Nevada (desde 20 ene). Trabajo posición crono en bloques de 10 min subiendo. 28 ene: corredor Jumbo-Visma cruzado bajando. 30 ene: mismo corredor al mismo ritmo 5m detrás durante 2 km. Incremento ×1: tarda 2", cierra. Incremento ×2: cede 8m, cierra en 20 pedaladas. Km 17: sigue, Santi para. Es Vingegaard (24 años). Cuaderno: "No miró." |
 | 152 | MercadoLibre-FCV | 25–27 ene 2021 | ✅ | **Renegociación + nuevo patrocinador.** MercadoLibre (Amazon latinoamericano, $64B, 200M usuarios, 18 países). Patrocinio €10M/año × 5 años. Presupuesto equipo: €24M (2.º del pelotón). Nuevo nombre: **MercadoLibre-FCV**. Campaña "Del Valle al Mundo." Santi: acuerdo personal €800K/año × 4. Nuevos recursos: ingeniero aerodinámico exMcLaren F1, túnel Sion 1 día/semana, 2 corredores nuevos, autobús nuevo. Cierre 2020: €3,3M bruto / €2,1M neto. Proyección 2021: €7,8M bruto. Hernando: "No hay otra historia así." |
 | 153 | Ep. 7 — Miguel Indurain | Feb 2021 | ✅ | **CAPÍTULO STANDALONE PODCAST.** Videollamada desde Villava, Navarra. 2h 04min. "El corredor que gana por la montaña siempre tiene un techo." Los tres inviernos en el túnel de viento. El Tour 1989: Fignon perdió por 8" por el casco. 1,4M reproducciones en 48h. Hernando escucha solo con auriculares. Cuaderno: "La crono que todavía no corrió." Km 19 del Minas el sábado siguiente. |
-| 154 | El plan 2021 | Feb 2021 | ✅ | Reunión Ginebra 16 feb. Ferretti + Rusconi + Santi. CdA actual: 0,224 (objetivo 0,218). Vingegaard CdA: 0,207, potencia 6,8 W/kg (Santi: 6,7). Plan: Lieja 25 abr, 4 etapas Giro (E16-E21 crono en calor), Tour objetivo A, Vuelta B. Noche: Hernando llegó al km 20 del Minas. |
-| 155 | Floresta, marzo 2021 | Mar 2021 | ✅ | 10 días Colombia. Domingo 7 mar: cima del Minas con Hernando (1h42m, FC 152). Rodrigo Torres subió 15 km en feb. Lunes 8: local de Ospina, Sebastián Cano (16 años, de Bello, escalador puro). Miércoles 10: última noche, ajiaco, Hernando lee cuaderno del Giro 2019. Jueves 11: taxi, mano levantada. Lieja. |
+| 154 | El plan 2021 | 16 feb 2021 | ✅ | Reunión Ginebra. Ferretti + Rusconi + Santi. CdA actual 0,224 / objetivo 0,218. Pogačar CdA 0,201 (22"/30km). Vingegaard CdA 0,207, potencia 6,8 W/kg. **Calendario definitivo 2021:** Strade Bianche (6 mar, objetivo victoria), Tirreno-Adriatico (10–16 mar, victoria GC), Amstel (18 abr, podio), Lieja (25 abr, 2.º — pierde ante Alaphilippe), Giro (8–30 may, **objetivo A, victoria**), Tour (26 jun–18 jul, objetivo A, 2.º — pierde crono a Pogačar por 12"), **Juegos Olímpicos Tokio** (24 jul, 6 días post-Tour, condicionado al estado del cuerpo), Mundial RR Lovaina (26 sep, victoria), Il Lombardia (9 oct, victoria). Ferretti: "Strade Bianche el seis de marzo. El plan empieza ahí." |
+| 155 | Floresta, febrero 2021 | 20–25 feb 2021 | ✅ | **Viaje pre-Strade Bianche, no pre-Lieja.** Llega 20 feb, sale 25 feb (9 días antes de Strade). Domingo 21: cima del Minas con Hernando (1h42m, FC 152). Rodrigo Torres subió 15 km en feb. Lunes 22: local de Ospina, calle 58, Sebastián Cano (16 años, de Bello, escalador puro). Miércoles 24: última noche, ajiaco, Hernando lee cuaderno 1 ene 2019 ("El Giro. Que sea un buen año."). Jueves 25: taxi, mano levantada. **Italia. Siena. Strade Bianche.** |
 
 ---
 
-## BLOQUE 6 — PRIMAVERA 2021 / LIEJA (Caps 156–165)
+## BLOQUE 6 — PRIMAVERA 2021: STRADE / TIRRENO / ARDENAS (Caps 156–165)
+**Strade Bianche (6 mar): SANTI GANA — Tirreno-Adriatico (10–16 mar): SANTI GANA GC — Amstel (18 abr): Santi 3.º — Lieja (25 abr): Santi 2.º (Alaphilippe gana)**
 
 | Cap | Título | Período | Estado | Notas |
 |-----|--------|---------|--------|-------|
-| 156 | Europa, febrero 2021 | Feb 2021 | ⬜ | Tercera vez llegando al continente como profesional. Ya no es el colombiano cuyo apellido pronuncian mal. |
-| 157 | Strade Bianche 2021 | 6 mar 2021 | ⬜ | Van der Poel gana (real). Santi 6.º. Primera carrera del año. |
-| 158 | Tirreno-Adriatico 2021 | 10–16 mar | ⬜ | Pogačar domina (real). Santi 4.º GC. El reencuentro en carrera con Pogačar — el esloveno que lo recordará del Col de la Loze. |
-| 159 | Las Ardenas | Abr 2021 | ⬜ | Reconocimiento de Lieja. La Redoute, La Roche aux Faucons, Saint-Nicolas. El último km a pie con Ferretti. |
-| 160 | La semana de Lieja | Abr 2021 | ⬜ | Preparación táctica. Ferretti: "en La Roche aux Faucons, si estás, salís." |
-| 161 | Lieja — salida | 25 abr 2021 | ⬜ | 259 km. La llovizna belga. Los primeros 100 km. Santi y Van Aert — los dos recuerdan Yorkshire sin decirlo. Pogačar en el grupo de favoritos. |
-| 162 | La Roche aux Faucons | 25 abr 2021 | ⬜ | **Santi sale solo, 40 km para Lieja.** El ataque que nadie esperaba en una clásica. Pogačar reacciona tarde — 8 segundos de retraso que en 40 km no se cierran. |
-| 163 | Los últimos 20 km | 25 abr 2021 | ⬜ | Pogačar a 22s. Van Aert a 18s. Santi solo en las Ardenas bajo lluvia. Al 92 — no hace falta más. |
-| 164 | El final en Lieja | 25 abr 2021 | ⬜ | **Santi gana.** Primer monumento. Ferretti: "sí." Un solo sonido. |
-| 165 | La noche en Lieja | 25 abr 2021 | ⬜ | Hernando por radio. La llamada. Julián tuitea desde Bogotá. Pogačar en la zona mixta: "el colombiano fue demasiado temprano y aun así ganó." |
+| 156 | Europa, marzo 2021 | Mar 2021 | ⬜ | Llega a Girona desde Medellín. La Toscana como primer destino. El corredor que ya no es el colombiano cuyo apellido pronuncian mal — es el campeón del Tour que viene a Siena. |
+| 157 | Strade Bianche 2021 | 6 mar 2021 | ⬜ | **SANTI GANA** (en realidad: Mathieu van der Poel). 184 km, Siena. El Monteciaponi (km 130) y Santa Bárbara (km 166) como puntos de ataque. Pogačar y Van Aert como rivales principales. Llegada solo a la Piazza del Campo. |
+| 158 | Tirreno-Adriatico 2021 | 10–16 mar | ⬜ | **SANTI GANA GC** (en realidad: Pogačar). 7 etapas. E4 Prati di Tivo (12 km al 7,2%) como etapa decisiva. CRI final San Benedetto del Tronto (10 km) — terreno neutro con el CdA actual. Primera medición real de forma post-invierno. |
+| 159 | Amstel Gold Race 2021 | 18 abr 2021 | ⬜ | **Santi 3.º** (en realidad: Van der Poel gana). 261 km, Limburgo, múltiples hellingen. Objetivo: rodaje y carga corporal pre-Lieja. El Cauberg como final — Santi en el podio, Van der Poel gana. |
+| 160 | La semana de Lieja | Abr 2021 | ⬜ | Reconocimiento La Redoute, La Roche aux Faucons, Saint-Nicolas. Ferretti: "en la Roche aux Faucons, si estás, salís. Pero esta vez Alaphilippe también va a salir." |
+| 161 | Lieja — salida | 25 abr 2021 | ⬜ | 259 km. La llovizna belga. Santi y Van Aert en los primeros 100 km. Pogačar y Alaphilippe en el grupo de favoritos. |
+| 162 | La Roche aux Faucons | 25 abr 2021 | ⬜ | Alaphilippe ataca primero. Santi responde con 2 segundos. Los dos solos en los últimos 40 km. |
+| 163 | Los últimos 20 km | 25 abr 2021 | ⬜ | Alaphilippe sostiene. Santi sigue pero no cierra. El francés corre con una energía que el Lieja saca solo en corredores que en Lieja nacen ganadores. |
+| 164 | El final en Lieja | 25 abr 2021 | ⬜ | **Alaphilippe GANA. Santi 2.º a 11".** Ferretti: "segundo en Lieja es un podio. Lo que aprendiste hoy vale más que ganar." **⚠ DEUDA NARRATIVA:** Julián Estrada al borde de la carretera en las Ardenas, cara pintada de amarillo y azul, llorando sin avergonzarse — flash-forward prometido en Arco I cap 6. |
+| 165 | La noche en Lieja | 25 abr 2021 | ⬜ | Hernando por radio. La llamada. Cuaderno: "Lieja: 2.º. Alaphilippe tiene ese puerto. El Giro en 13 días." |
 
 ---
 
 ## BLOQUE 7 — GIRO D'ITALIA 2021 (Caps 166–172)
-**Fechas reales: 8–30 may 2021 — Ganador real: Egan Bernal — NO MODIFICABLE**
-**Santi: 3.º general**
+**Fechas reales: 8–30 may 2021 — Ganador real: Egan Bernal — EN LA FICCIÓN: SANTI GANA**
+**E1 CRI Turín 8,6 km / E14 Zoncolan / E16 Passo Giau / E17 Pordoi+Bondone / E21 CRI Milán 30,3 km**
+**Rivales principales: Bernal (Ineos), Simon Yates (BikeExchange)**
 
 | Cap | Título | Etapa(s) | Estado | Notas |
 |-----|--------|----------|--------|-------|
-| 166 | Turín | Llegada | ⬜ | Desde otra posición. Bernal lidera el Ineos. Los dos colombianos en el mismo Giro. |
-| 167 | Primera semana | E1–E7 | ⬜ | Ganna en los cronos. Bernal tranquilo. Santi observa — como en 2017 Bernal lo observó a él en el Tour de l'Avenir. |
-| 168 | El Zoncolan | E14 | ⬜ | Bernal ataca. Santi sigue 3 km y cede. Entiende: Bernal no ataca cuando puede, sino cuando el momento es perfecto. |
-| 169 | La conversación en el bus | E2 semana | ⬜ | Santi y Bernal coinciden. Bernal: "en el Tour la crono puede matarte aunque hayas ganado la montaña." Santi lo anota. |
-| 170 | El podio de Milán | E21 | ⬜ | Bernal de rosa. Santi 3.º. Los dos colombianos en Milán. El Giro 2021 como escuela para el Tour. |
-| 171 | Lo que enseñó el Giro | Jun 2021 | ⬜ | El corredor que acepta que hoy no es su día y en esa aceptación aprende más que en las victorias. |
-| 172 | La transición | Jun 2021 | ⬜ | Cuatro semanas hasta el Tour. La forma tiene que llegar exacta. |
+| 166 | Turín — el Giro empieza | E1 CRI 8,6 km | ⬜ | El doblete empieza aquí. CRI de apertura — Ganna gana (real), Santi 4" sobre el objetivo. Los dos colombianos en el mismo Giro: Bernal (Ineos) como el gran rival. Ferretti en el coche: "ocho días, diez días, doce días — luego el Zoncolan decide." |
+| 167 | Primera semana | E1–E7 | ⬜ | Yates como corredor de Giro. Bernal tranquilo — el Ineos protege al líder sin mostrarlo. Santi y Bernal se observan sin haber coincidido directamente todavía. En la E5 (primera llegada en alto) Santi llega 3.º a 9" de Bernal. El dato dice que están parejos. |
+| 168 | El Zoncolan | E14 | ⬜ | 10 km al 11,9%. Bernal ataca en el km 4. **Santi responde y aguanta.** Yates cede en el km 7. Bernal intenta de nuevo en el km 9 — Santi cierra. Los dos llegan juntos. El pelotón a 1:34. GC: Santi y Bernal separados por segundos. |
+| 169 | Los Dolomitas | E16–E17 | ⬜ | E16 Passo Giau (16 km al 9,3%): **Santi ataca en el km 12. Bernal responde pero cede 8m en los últimos 4 km.** Santi gana la etapa. Ventaja en GC: 18". E17 Pordoi+Bondone: Santi sostiene la ventaja. El Giro está en sus manos. |
+| 170 | Los últimos días | E18–E20 | ⬜ | Bernal intenta en dos etapas de montaña menores. Santi no entra en pánico — administra la ventaja de 18" con el criterio del corredor que ya ganó el Tour. Yates gana una etapa de escapada. |
+| 171 | CRI Milán — E21 | E21 CRI 30,3 km | ⬜ | La crono final. CdA en 0,224 — 8" de déficit sobre el mejor cronometrador. Santi llega a Milán con 18" de ventaja. Sale antes de Bernal. **Bernal recupera 6" en la crono. Santi GANA el Giro por 12".** Maglia rosa en Milán. Los dos colombianos en el podio. Hernando en Laureles con el café de las seis. |
+| 172 | La transición al Tour | Jun 2021 | ⬜ | Doblete conseguido a medias: el Giro es suyo. Tres semanas hasta el Tour. El cuerpo responde — no hay crisis. Ferretti: "el Giro se corrió con cabeza. Los Juegos también son posibles." Cuaderno de Santi: *"Milán. El Tour en 26 días."* |
 
 ---
 
 ## BLOQUE 8 — TOUR DE FRANCE 2021 (Caps 173–183)
 **Fechas reales: 26 jun – 18 jul 2021**
-**Ganador real: Pogačar. Vingegaard 2.º (emerge). Santi: 4.º general**
-**PRIMERA CARRERA DE LOS TRES JUNTOS: Santi-Pogačar-Vingegaard**
+**Ganador real: Pogačar. Vingegaard 2.º. EN LA FICCIÓN: Pogačar gana. Santi 2.º. Vengegaard 3.º.**
+**Santi llega al Tour con el Giro ganado — el doblete en juego. La crono decide.**
+**E5 CRI Changé-Laval 27,2 km / E11 Ventoux doble / E17 Col du Portet / E20 CRI Libourne-St-Emilion 30,8 km**
 
 | Cap | Título | Etapa(s) | Estado | Notas |
 |-----|--------|----------|--------|-------|
-| 173 | Grand Départ de Brest | E1 | ⬜ | Bretaña. FCV-WorldTour con ocho corredores. Primera fila de salida. El Tour que va a confirmar quiénes son los tres. |
-| 174 | Primera semana | E1–E9 | ⬜ | Caídas. Santi navega. **Vingegaard aparece como revelación** — el danés del Jumbo que en el pelotón de la primera semana hace cosas que los corredores de 25 años no deberían hacer. |
-| 175 | Los primeros Alpes — el triángulo | E11–E12 | ⬜ | La primera etapa con Santi, Pogačar y Vingegaard en el mismo grupo final. Los tres se ven. No dicen nada. El pelotón siente el cambio de temperatura cuando los tres están juntos. |
-| 176 | El doble Ventoux | E11 | ⬜ | Pogačar ataca. Santi sigue 2 km y cede. Vingegaard aguanta más. **Los tres ordenándose**: Pogačar primero, Vingegaard segundo, Santi aprendiendo. |
-| 177 | Col du Portet | E17 | ⬜ | **Santi ataca primero** — en el Portet, 16 km al 8,7%. Abre 20 segundos. Pogačar cierra. Vingegaard cierra detrás de Pogačar. Los tres juntos en la cima. La primera carnicería real de los tres en el Tour. |
-| 178 | La respuesta de Pogačar | E17–E18 | ⬜ | Pogačar controla la carrera con la elegancia del campeón que sabe que ganó. Santi 4.º en la GC después de la crono. Vingegaard 2.º — la revelación del Tour 2021. |
-| 179 | La crono de Libourne | E20 (30 km CRI) | ⬜ | Santi pierde 1:28 con Pogačar. El número que Rusconi va a estudiar. Vingegaard pierde 40 segundos — mucho mejor que Santi en el llano. El tercer vértice del triángulo tiene una ventaja sobre los otros dos: la crono. |
-| 180 | Los Campos Elíseos | E21 | ⬜ | Pogačar gana. Vingegaard 2.º. Santi 4.º. Ferretti: "la crono te costó el podio. El año que viene, la crono." |
-| 181 | El cuaderno | Noche en París | ⬜ | Santi anota. Lo que aprendió de Vingegaard: el danés es mejor en la crono que Santi y casi igual en la montaña. La ecuación del Tour tiene una variable nueva. |
-| 182 | El análisis | Post-Tour | ⬜ | Rusconi con los datos. Tres corredores, tres perfiles: Pogačar (montaña explosiva + crono aceptable), Vingegaard (montaña sostenida + crono excepcional), Santi (montaña excepcional + crono débil). El triángulo tiene un vértice débil. |
-| 183 | La lista | Post-Tour 2021 | ⬜ | Santi cierra el cuaderno. Una sola línea: *crono*. La misma que escribió en 2020. La misma que escribirá en 2022. |
+| 173 | Grand Départ de Brest — el doblete | E1 | ⬜ | Bretaña. Santi llega con la maglia rosa del Giro todavía reciente. El pelotón sabe que viene de ganar el Giro. Primera vez en la historia moderna que un corredor llega al Tour habiendo ganado el Giro ese mismo año. |
+| 174 | E5 CRI Changé-Laval | E5 (27,2 km CRI) | ⬜ | **Santi pierde 22" con Pogačar en llano.** La predicción de Rusconi exacta. Vingegaard pierde 14" — mejor que Santi. GC provisional tras la crono: Santi en déficit, pero la montaña no ha llegado. |
+| 175 | Primera semana / Vingegaard | E1–E10 | ⬜ | Caídas. Santi navega con el cuerpo del Giro. **Vingegaard aparece en primer plano** — el danés del Jumbo que trabaja para Roglič pero que en las rampas intermedias hace cosas que Roglič no le pide. |
+| 176 | El Ventoux doble | E11 | ⬜ | Dos ascensos al Ventoux en el mismo día. **Santi ataca en el segundo Ventoux (por Malaucène) en el km 14.** Pogačar responde. Vingegaard responde. Los tres llegan juntos. Santi recupera 18" sobre Pogačar en montaña. La crono sigue siendo el problema. |
+| 177 | Col du Portet | E17 (16 km al 8,7%) | ⬜ | **Santi ataca en el km 8.** Abre 12". Pogačar cierra en 6 pedaladas. Vingegaard cierra detrás. Los tres juntos en la cima. Santi construye los 12" que necesita sobre Pogačar acumulando en todos los finales de montaña. GC: Santi +3" sobre Pogačar al entrar en la última semana. |
+| 178 | Luz-Ardiden | E18 (13 km al 7,4%) | ⬜ | **Santi gana la etapa. Ventaja sobre Pogačar: +12".** Exactamente lo que el plan de Rusconi proyectaba. Santi llega a la E20 con los 12 segundos que necesita para que la crono sea manejable. |
+| 179 | La crono de Libourne | E20 (30,8 km CRI ondulado) | ⬜ | **Santi sale 2 minutos antes de Pogačar.** Los splits cierran km a km. CdA 0,218 en terreno ondulado: 12" de déficit proyectado. Km 25: Pogačar ha recuperado 9". Km 30: 11". Cruce de meta: **Pogačar supera a Santi por 14".** GC: Pogačar gana el Tour 2021 por 2". |
+| 180 | Los Campos Elíseos | E21 | ⬜ | Pogačar 1.º. **Santi 2.º.** Vingegaard 3.º. Los tres en el podio del Tour 2021. Primera vez el triángulo completo visible. Ferretti a Santi: "dos segundos. Fue la crono. Siempre la crono." |
+| 181 | El cuaderno — París | Noche en París | ⬜ | Santi anota. Giro + 2.º Tour = el doblete casi completo. **Vingegaard 3.º en el Tour con 24 años — el triángulo tiene tres vértices iguales en montaña, desiguales en crono.** Cuaderno: *"Pogačar: 0,201. Vingegaard: 0,207. Yo: 0,218. El invierno."* |
+| 182 | Los Juegos Olímpicos | 24 jul 2021 | ⬜ | **6 días después del Tour.** Tokio, 234 km, Monte Fuji. El cuerpo del corredor que ganó el Giro y llegó 2.º en el Tour. Condición de Ferretti cumplida: el Tour se corrió con cabeza. **Resultado olímpico: por definir** (posible victoria o podio — terreno que favorece al escalador puro). Higuita y Rubio como gregarios colombianos. Van Aert y Pogačar como rivales. |
+| 183 | La lista | Post-Tokio | ⬜ | Santi en el vuelo de vuelta. Verano terminado. Cuaderno: *"Giro: sí. Tour: 2". Tokio: [resultado]. Crono: siempre la crono."* La arquitectura del 2022 ya está trazada. |
 
 ---
 
-## BLOQUE 9 — VUELTA A ESPAÑA 2021 (Caps 184–196)
-**Fechas reales: 14 ago – 5 sep 2021 — Ganador real: Roglič — EN LA FICCIÓN: SANTI GANA**
-**Exhibición en Sierra Nevada: +2:14 sobre Roglič en la etapa del Veleta**
-
-| Cap | Título | Etapa(s) | Estado | Notas |
-|-----|--------|----------|--------|-------|
-| 184 | Preparación | Ago 2021 | ⬜ | Dos semanas entre Tour y Vuelta. Ferretti: "en la Vuelta, sos el líder. Sin discusión." |
-| 185 | Grand Départ de Burgos | E1 | ⬜ | CRI inicial. Santi comienza. Roglič — el tricampeón — también está. Vingegaard no corre la Vuelta este año. |
-| 186 | Primera semana | E1–E7 | ⬜ | Norte de España. El País Vasco y la lluvia. Roglič marca el ritmo. El duelo que define la Vuelta: solo dos nombres. |
-| 187 | Primera montaña | E6 aprox. | ⬜ | Santi 2.º, Roglič 1.º. El esloveno que en el Tour 2020 perdió por colapsar en la crono hoy es el favorito de la Vuelta. |
-| 188 | Andalucía | E2 semana | ⬜ | El calor del sur. Santi gestiona mejor. Los puertos de Antioquia tienen algo del calor seco del sur de España. |
-| 189 | Sierra Nevada — la subida | E ficticia | ⬜ | La etapa al Pico Veleta. 44 km de subida desde Granada. 3.396 m — el punto más alto del ciclismo europeo. La temperatura baja 20 grados. Hernando en Laureles desde las 6 de la mañana. |
-| 190 | Sierra Nevada — la exhibición | E ficticia | ⬜ | **Santi ataca en el km 30. 14 km para la cima.** Roglič cede km 35. Mas y Yates km 38. Santi solo los últimos 6 km a 4°C. El pelotón a +2:14. |
-| 191 | El maillot rojo | E ficticia | ⬜ | Santi toma el liderato. 2:14 sobre Roglič. Hernando dibuja el perfil del Veleta de memoria. Carmen: el café de las tardes largas. |
-| 192 | Tercera semana | E3 semana | ⬜ | Roglič intenta recuperar. Santi pierde algo pero no suficiente. La ventaja sostenida sobre 90 segundos. |
-| 193 | La penúltima montaña | E3 semana | ⬜ | Roglič ataca. Santi responde. El duelo de los últimos 5 km donde ninguno cede. |
-| 194 | El desfile | E21 | ⬜ | La última etapa hacia Madrid. El protocolo no escrito. Santi entra a Madrid con el rojo puesto. |
-| 195 | El Paseo de la Castellana | Madrid | ⬜ | Por primera vez. Hernando contesta en el primer timbre. Colombia celebra. Santi no sabe todavía que volverá aquí en 2032 llorando. |
-| 196 | Madrid, la noche | Madrid | ⬜ | Duarte con los números. Ospina desde Medellín. El cuaderno: *crono*. |
-
----
-
-## BLOQUE 10 — IL LOMBARDIA 2021 / CIERRE TEMPORADA (Caps 197–202)
+## BLOQUE 9 — OTOÑO 2021: MUNDIAL + IL LOMBARDIA (Caps 184–189)
+**Mundial RR Lovaina (26 sep): SANTI GANA — Il Lombardia (9 oct): SANTI GANA**
+**Ganador real Mundial: Alaphilippe — Ganador real Lombardia: Pogačar**
+**Santi llega al otoño sin la Vuelta — cuerpo fresco, máxima ventaja sobre el pelotón**
 
 | Cap | Título | Período | Estado | Notas |
 |-----|--------|---------|--------|-------|
-| 197 | Il Lombardia 2021 | 9 oct 2021 | ⬜ | Santi compite. Pogačar también. La carrera de las hojas muertas. El reencuentro otoñal de dos de los tres. |
-| 198 | El Ghisallo, el Civiglio | 9 oct 2021 | ⬜ | El terreno técnico del Lombardia. Pogačar y Santi juntos en la parte final. El esloveno en el descenso tiene algo que Santi no tiene: audacia técnica en el descenso. |
-| 199 | Pogačar gana | 9 oct 2021 | ⬜ | Pogačar gana (real). Santi 2.º a 12s — el sprint de dos. Pogačar al cruzar le dice algo en inglés. |
-| 200 | El balance | Oct 2021 | ⬜ | El año más completo: Lieja + Vuelta + 3.º Giro + 4.º Tour. |
-| 201 | Hernando en los puertos | Nov 2021 | ⬜ | Hernando subiendo los puertos antioqueños con la bicicleta nueva. Lo que no se dice: que hace ocho meses el oncólogo le dijo "remisión completa" y hoy sube el Alto de Minas. |
-| 202 | El invierno que cambia | Nov–dic 2021 | ⬜ | Ferretti: "el Tour 2022 es el único objetivo." Santi: "y la crono." Lo que viene es diferente. |
+| 184 | Mundial RR — Lovaina | 26 sep 2021 | ⬜ | **SANTI GANA.** 268,3 km. Wijnpers (1.700m al 9,8%) × 3, Smeysberg × 16. Van Aert favorito local. Alaphilippe defensor del título. Santi llega fresco (no corrió Vuelta). Ataque en el Wijnpers definitivo (km 256). Llega solo a Lovaina. |
+| 185 | La noche en Lovaina | 26 sep 2021 | ⬜ | Hernando por teléfono. Colombia. El segundo jersey arcoíris — el primero fue Yorkshire 2019. Julián Estrada en la zona mixta de Lovaina. |
+| 186 | Il Lombardia — el Sormano | 9 oct 2021 | ⬜ | 239 km, Bérgamo→Como. Muro di Sormano (17,8%), Civiglio (4 km al 9,7%), San Fermo (2 km al 8%). Pogačar también corre — 13 días post-Mundial. El reencuentro otoñal. |
+| 187 | Il Lombardia — el sprint final | 9 oct 2021 | ⬜ | En el Civiglio (km 214): Santi y Pogačar solos. San Fermo: Santi ataca. Pogačar responde. **Santi gana el sprint de dos** (+8"). Pogačar al cruzar le dice algo en inglés. [por definir] |
+| 188 | El balance | Oct 2021 | ⬜ | **Temporada 2021:** Strade Bianche + Tirreno + 2.º Amstel + 2.º Lieja + Giro + 2.º Tour + Juegos + Mundial + Lombardia. El año más completo del ciclismo moderno. Hernando con el cuaderno lleno. |
+| 189 | El invierno que cambia | Nov–dic 2021 | ⬜ | Ferretti: "el Tour 2022 es el único objetivo. Todo lo demás es preparación." Hernando sube el Alto de Minas — un año después de la remisión completa. Cuaderno de Santi: *"0,218. Necesito 0,210."* |
 
 ---
 
-## BLOQUE 11 — 2022 / PREPARACIÓN TOUR (Caps 203–209)
+## BLOQUE 10 — 2022 / PREPARACIÓN TOUR (Caps 190–196)
 
 | Cap | Título | Período | Estado | Notas |
 |-----|--------|---------|--------|-------|
-| 203 | Tenerife, enero 2022 | Ene 2022 | ⬜ | Campo de altitud. Rusconi y el túnel de viento. La posición en crono como proyecto de ingeniería. |
-| 204 | Strade Bianche 2022 | 5 mar 2022 | ⬜ | Pogačar gana (real). Santi 4.º. Sin presión. |
-| 205 | Lieja 2022 | 24 abr 2022 | ⬜ | Evenepoel gana (real). Santi 3.º. El belga de su misma generación lo supera. Reconoce al rival que viene. |
-| 206 | Giro 2022 como preparación | May 2022 | ⬜ | El Giro 2022 como rodaje para el Tour. Carapaz va a ganar — lo saben, no presionan. Santi usa el Giro para trabajar la crono en condiciones de carrera. |
-| 207 | Critérium du Dauphiné 2022 | 5–12 jun | ⬜ | Roglič gana (real). Santi 2.º. La forma está. |
-| 208 | El reconocimiento | Jun 2022 | ⬜ | Ferretti y Santi en coche: el Galibier, el Granon, el Alpe d'Huez. Y la CRI final — 40 km en Rocamadour. Una sola preocupación. |
-| 209 | Copenhague | Jun 2022 | ⬜ | La víspera del Tour. Grand Départ en Dinamarca — tierra de Vingegaard. El mar del Norte. Santi en el hotel. Los tres en el mismo Tour otra vez. |
+| 190 | Tenerife, enero 2022 | Ene 2022 | ⬜ | Campo de altitud. Rusconi y el túnel de viento. La posición en crono como proyecto de ingeniería. |
+| 191 | Strade Bianche 2022 | 5 mar 2022 | ⬜ | Pogačar gana (real). Santi 4.º. Sin presión. |
+| 192 | Lieja 2022 | 24 abr 2022 | ⬜ | Evenepoel gana (real). Santi 3.º. El belga de su misma generación lo supera. Reconoce al rival que viene. |
+| 193 | Giro 2022 como preparación | May 2022 | ⬜ | El Giro 2022 como rodaje para el Tour. Carapaz va a ganar — lo saben, no presionan. Santi usa el Giro para trabajar la crono en condiciones de carrera. |
+| 194 | Critérium du Dauphiné 2022 | 5–12 jun | ⬜ | Roglič gana (real). Santi 2.º. La forma está. |
+| 195 | El reconocimiento | Jun 2022 | ⬜ | Ferretti y Santi en coche: el Galibier, el Granon, el Alpe d'Huez. Y la CRI final — 40 km en Rocamadour. Una sola preocupación. |
+| 196 | Copenhague | Jun 2022 | ⬜ | La víspera del Tour. Grand Départ en Dinamarca — tierra de Vingegaard. El mar del Norte. Santi en el hotel. Los tres en el mismo Tour otra vez. |
 
 ---
 
-## BLOQUE 12 — TOUR DE FRANCE 2022 (Caps 210–225)
+## BLOQUE 11 — TOUR DE FRANCE 2022 (Caps 197–212)
 **Fechas reales: 1–24 jul 2022**
 **Ganador real: Jonas Vingegaard — EN LA FICCIÓN: Santi lleva el amarillo y lo pierde en la CRI final por 8 segundos**
 **LA CARNICERÍA COMPLETA: Santi + Pogačar + Vingegaard en el mismo Tour**
-**Estilo narrativo: máxima intensidad — los tres atacándose en cada ascenso**
 
 | Cap | Título | Etapa(s) | Estado | Notas |
 |-----|--------|----------|--------|-------|
-| 210 | Grand Départ de Copenhague | E1 (CRI 13,2 km) | ⬜ | Van Aert gana (real). Los tres en la misma línea de salida. El pelotón sabe lo que viene. |
-| 211 | Primera semana | E1–E9 | ⬜ | Caídas. Pelotón nervioso. Vingegaard en su casa — el viento danés, el asfalto del norte. Santi y Pogačar observando al danés en su elemento. |
-| 212 | El amarillo | E10–E11 | ⬜ | Los Alpes llegan. **Santi toma el maillot amarillo por primera vez en el Tour de France.** El pelotón cambia de temperatura. |
-| 213 | Con el amarillo | E11 | ⬜ | El peso diferente del amarillo. Ferretti: "administrá." Santi: no. |
-| 214 | Col du Granon I | E11 (Briançon–Col du Granon) | ⬜ | En el Galibier — la primera subida de la etapa — **los tres atacan en tres momentos diferentes en 10 km.** Pogačar primero. Santi responde. Vingegaard responde. El pelotón los pierde a los tres a 80 km de la meta. |
-| 215 | Col du Granon II — la guerra | E11 | ⬜ | Los tres solos en el Granon. **Vingegaard ataca en el km 8 de 11.** Santi sigue. Pogačar cede — inesperado, el esloveno cede. Santi y Vingegaard solos los últimos 3 km. |
-| 216 | Col du Granon III — el final | E11 | ⬜ | Ninguno cede. Vingegaard gana la etapa por 2 segundos. Santi pierde el amarillo por 4 segundos. El danés lo saluda. Pogačar llega a 1:17. |
-| 217 | Alpe d'Huez | E12 | ⬜ | **Santi recupera el amarillo** — exhibición en las 21 curvas. **Se para en los pedales en la curva 14.** Pogačar lo sigue. Vingegaard cierra a 12 segundos. Santi llega a la cima con 45 segundos sobre Vingegaard. |
-| 218 | Tercera semana I | E13–E17 | ⬜ | Santi de amarillo. Cada etapa de montaña es un ajuste de cuentas: Pogačar ataca, Vingegaard ataca, Santi responde. Los tres destruyen el pelotón en cada subida. Nadie más puede seguirlos. |
-| 219 | Hautacam | E18 | ⬜ | **Vingegaard ataca en el Hautacam.** Santi sigue. Pogačar cede definitivamente en la GC. Los dos solos — el empate de los que se han encontrado un igual. Hernando en Laureles: el cuaderno lleno de splits. |
-| 220 | La última montaña | E19 | ⬜ | La etapa antes de la crono. Santi llega con 45 segundos sobre Vingegaard. Ferretti: "podés perder 30. Más que eso, el Tour se va." Santi: "lo sé." |
-| 221 | La mañana de la crono | E20 mañana | ⬜ | El desayuno. La bicicleta de crono. La posición del túnel de viento. Sale 2 minutos antes de Vingegaard. Hernando en Laureles a las 2 de la tarde. |
-| 222 | Los 40 km de Rocamadour | E20 | ⬜ | Primeros 20 km en el tiempo. Km 25: -8s. Km 30: -18s. Km 35: -29s. Km 38: -37s. El pinganillo cuenta. Ferretti no dice nada — los números ya lo dicen todo. |
-| 223 | El final de la crono | E20 | ⬜ | Santi cruza. La espera. Vingegaard cruza. **Vingegaard gana el Tour de France 2022 por 8 segundos.** Pogačar 3.º. |
-| 224 | Los Campos Elíseos | E21 | ⬜ | El desfile. Vingegaard de amarillo. Santi en el podio de 2.º. Pogačar en el podio de 3.º. Los tres en el mismo podio. Colombia en luto: 8 segundos. |
-| 225 | El avión | Post-Tour | ⬜ | Santi en el vuelo a Medellín. Hernando: "la crono te la devuelven." El cuaderno. Una línea: *8 segundos. Nunca más.* |
+| 197 | Grand Départ de Copenhague | E1 (CRI 13,2 km) | ⬜ | Van Aert gana (real). Los tres en la misma línea de salida. El pelotón sabe lo que viene. |
+| 198 | Primera semana | E1–E9 | ⬜ | Caídas. Pelotón nervioso. Vingegaard en su casa — el viento danés, el asfalto del norte. Santi y Pogačar observando al danés en su elemento. |
+| 199 | El amarillo | E10–E11 | ⬜ | Los Alpes llegan. **Santi toma el maillot amarillo.** El pelotón cambia de temperatura. |
+| 200 | Con el amarillo | E11 | ⬜ | El peso diferente del amarillo. Ferretti: "administrá." Santi: no. |
+| 201 | Col du Granon I | E11 (Briançon–Col du Granon) | ⬜ | Los tres atacan en tres momentos diferentes en 10 km. El pelotón los pierde a los tres a 80 km de la meta. |
+| 202 | Col du Granon II — la guerra | E11 | ⬜ | **Vingegaard ataca en el km 8 de 11.** Santi sigue. Pogačar cede. Santi y Vingegaard solos. |
+| 203 | Col du Granon III — el final | E11 | ⬜ | Ninguno cede. Vingegaard gana por 2". Santi pierde el amarillo por 4". Pogačar llega a 1:17. |
+| 204 | Alpe d'Huez | E12 | ⬜ | **Santi recupera el amarillo.** Se para en los pedales en la curva 14. 45" sobre Vingegaard en la cima. |
+| 205 | Tercera semana | E13–E17 | ⬜ | Santi de amarillo. Los tres destruyen el pelotón en cada subida. Nadie más puede seguirlos. |
+| 206 | Hautacam | E18 | ⬜ | **Vingegaard ataca.** Santi sigue. Pogačar cede en la GC. Los dos solos — el empate de los iguales. |
+| 207 | La última montaña | E19 | ⬜ | Santi llega con 45" sobre Vingegaard. Ferretti: "podés perder 30. Más que eso, el Tour se va." |
+| 208 | La mañana de la crono | E20 mañana | ⬜ | La bicicleta de crono. La posición del túnel de viento. Sale 2 minutos antes de Vingegaard. Hernando en Laureles a las 2 de la tarde. |
+| 209 | Los 40 km de Rocamadour | E20 | ⬜ | Km 25: -8s. Km 30: -18s. Km 35: -29s. Km 38: -37s. El pinganillo. Ferretti no dice nada. |
+| 210 | El final de la crono | E20 | ⬜ | Santi cruza. La espera. **Vingegaard gana el Tour 2022 por 8 segundos.** Pogačar 3.º. |
+| 211 | Los Campos Elíseos | E21 | ⬜ | Vingegaard de amarillo. Santi 2.º. Pogačar 3.º. Los tres en el mismo podio. Colombia en luto: 8 segundos. |
+| 212 | El avión | Post-Tour | ⬜ | Santi en el vuelo a Medellín. Hernando: "la crono te la devuelven." Cuaderno: *8 segundos. Nunca más.* |
 
 ---
 
@@ -294,13 +277,17 @@
 
 | Año | Carrera | Tipo |
 |-----|---------|------|
-| 2019 | Il Lombardia | Monumento (de principio a fin) |
+| 2019 | Il Lombardia | Monumento |
 | 2020 | Tour de France | Grand Tour (1.ª vez) |
-| 2020 | Etapas Tour (Marie-Blanque, Grand Colombier, Col de la Loze) | Etapas Grand Tour (×3) |
+| 2020 | Etapas Tour ×3 (Marie-Blanque, Grand Colombier, Col de la Loze) | Etapas Grand Tour |
 | 2020 | Tour de Flandes | Monumento |
-| 2020 | Vuelta E17 Covatilla | Etapa Grand Tour |
-| 2021 | Lieja-Bastoña-Lieja | Monumento |
-| 2021 | Vuelta a España | Grand Tour |
+| 2020 | Etapa Vuelta E17 Covatilla | Etapa Grand Tour |
+| 2021 | Strade Bianche | Clásica WorldTour |
+| 2021 | Tirreno-Adriatico GC | Carrera por etapas |
+| 2021 | Giro de Italia | Grand Tour (2.ª vez) — **doblete con Tour** |
+| 2021 | Mundial RR Lovaina | Campeonato del Mundo |
+| 2021 | Il Lombardia | Monumento (2.ª vez) |
+| 2021 | Vuelta a España | Grand Tour — **⚠ revisar si sigue en el arco** |
 
 ---
 
@@ -309,15 +296,20 @@
 | Año | Logro |
 |-----|-------|
 | 2019 | Giro de Italia (1.ª vez) — Arco II |
-| 2019 | Campeonato del Mundo (Yorkshire) — Arco II |
-| 2019 | Il Lombardia |
+| 2019 | Campeonato del Mundo Yorkshire — Arco II |
+| 2019 | Il Lombardia (1.ª vez) |
 | 2020 | Tour de France (1.ª vez) |
-| 2020 | 3 etapas Tour de France (Marie-Blanque, Grand Colombier, Col de la Loze) |
+| 2020 | 3 etapas Tour de France |
 | 2020 | Tour de Flandes |
-| 2020 | Etapa Vuelta a España (E17 Covatilla) |
-| 2021 | Lieja-Bastoña-Lieja |
-| 2021 | Vuelta a España |
-| 2022 | 2.º Tour de France (pierde por 8 segundos en la CRI final) |
+| 2020 | Etapa Vuelta E17 Covatilla |
+| 2021 | Strade Bianche |
+| 2021 | Tirreno-Adriatico GC |
+| 2021 | Giro de Italia (2.ª vez) — doblete Giro+Tour en mismo año |
+| 2021 | 2.º Tour de France (pierde por 2" en crono final vs. Pogačar) |
+| 2021 | Juegos Olímpicos Tokio (resultado por definir) |
+| 2021 | Mundial RR Lovaina |
+| 2021 | Il Lombardia (2.ª vez) |
+| 2022 | 2.º Tour de France (pierde por 8" en CRI final vs. Vingegaard — cap 210) |
 
 ---
 
@@ -326,7 +318,7 @@
 | Carrera | Ganador | Santi | Pogačar | Vingegaard | Carnicería |
 |---------|---------|-------|---------|------------|------------|
 | Tour 2020 | **Santi** | **1.º** | **2.º (+45")** | Ausente | E9 Marie-Blanque + E15 Grand Colombier + E17 Col de la Loze. CRI La Planche: Pogačar histórico pero insuficiente. **Santi gana el Tour.** |
-| Tour 2021 | Pogačar | 4.º | 1.º | 2.º | Col du Portet: primera vez los tres juntos |
+| Tour 2021 | Pogačar | **2.º (+2")** | **1.º** | **3.º** | Ventoux doble + Portet + Luz-Ardiden. Crono Libourne decide por 14". **Santi llega al Tour con el Giro ganado.** |
 | Tour 2022 | Vingegaard | 2.º | 3.º | 1.º | Granon + Alpe d'Huez + Hautacam: destrucción total |
 
 ---
@@ -337,10 +329,11 @@
 |---------|--------|---------------|-----|
 | Mar 2020 | Quimio en pandemia | | 110 |
 | Nov 2020 | **Remisión completa** | Dr. Restrepo, Pablo Tobón Uribe | 148 |
-| Dic 2020 | **Recibe bicicleta nueva de Santi** | Specialized azul marino Dura-Ace Di2 — no usa la del Giro, es recuerdo | 149 |
+| Sep 2020 | **Recibe bicicleta del Tour 2020** | Va al estante junto a la del Giro 2019. Las dos como trofeos. | 134 |
+| Dic 2020 | **Recibe bicicleta nueva de Santi** | Specialized azul marino Dura-Ace Di2 — para pedalear (no recuerdo) | 149 |
 | Dic 2020 | **Primera salida en bicicleta** post-recuperación | El Alto de Minas con Santi. Llegan al km 16. | 149 |
 | Nov 2021 | Subiendo puertos antioqueños | La bicicleta nueva, los puertos de siempre | 201 |
-| Jul 2022 | "La crono te la devuelven." | Cuatro palabras | 225 |
+| Jul 2022 | "La crono te la devuelven." | Cuatro palabras | 212 |
 
 ---
 
@@ -348,6 +341,7 @@
 
 - [ ] Verificar CRI final del Tour 2022: la etapa 20 fue Lacapelle-Marival → Rocamadour, 40,7 km ✓
 - [ ] Decidir qué dice Pogačar a Santi en el Lombardia 2021 al cruzar la línea (cap 199)
+- [x] **Vuelta 2021 eliminada del arco.** El calendario definitivo de 2021 es: Strade + Tirreno + Amstel + Lieja + Giro + Tour + Juegos + Mundial + Lombardia. Sin Vuelta.
 - [ ] Decidir el resultado exacto de Santi en el Giro 2022 (cap 206) — ¿abandona o termina top 5?
 - [ ] Confirmar que Vingegaard NO corrió el Tour 2020 en realidad (su debut Grand Tour fue Vuelta 2020 como domestique de Roglič)
 - [ ] Revisar si en la narración del Tour 2020 (caps 118-133) se menciona a Vingegaard como figura secundaria visible o si se introduce solo en 2021
