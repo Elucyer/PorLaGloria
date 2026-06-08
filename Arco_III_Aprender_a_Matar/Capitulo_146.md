@@ -60,7 +60,7 @@ Los cronistas salían en orden inverso de clasificación general.
 
 Los primeros en salir eran los más bajos de la GC — los últimos de la clasificación que en la crono de la Vuelta abrían la etapa mientras los favoritos esperaban.
 
-Santi salió tercero desde el final, antes que Carthy y Carapaz.
+Santi salió quinto desde el final — antes que Carthy, Mas, Carapaz y Roglič, los cuatro corredores que lo precedían en la clasificación general.
 
 Roglič salía el último.
 
@@ -112,7 +112,7 @@ En Laureles.
 
 El narrador:
 
-— *Santi Reyes en el circuito de la crono. El colombiano en posición aerodinámica. Primer split al kilómetro cinco: 6:48. Roglič ha salido. Su referencia en el Tour era 6:38 en condiciones similares. Santi pierde siete segundos en los primeros cinco kilómetros. En línea: cuarenta segundos de pérdida en treinta kilómetros planos. Es la historia de siempre. El escalador en el llano contra el especialista de la crono.*
+— *Santi Reyes en el circuito de la crono. El colombiano en posición aerodinámica. Primer split al kilómetro cinco: 6:48. Roglič todavía no ha salido — sale último, como líder de la general — pero su referencia en el Tour, en condiciones similares, era 6:38. Santi pierde siete segundos en los primeros cinco kilómetros. En línea: cuarenta segundos de pérdida en treinta kilómetros planos. Es la historia de siempre. El escalador en el llano contra el especialista de la crono.*
 
 Hernando escribió: *Km 5. Santi 6:48. Ref Roglič 6:41. -7".*
 

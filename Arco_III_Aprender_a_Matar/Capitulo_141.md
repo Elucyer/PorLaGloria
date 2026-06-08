@@ -56,9 +56,9 @@ Sin el público que en el País Vasco el ciclismo normalmente atraía — el pro
 
 Los equipos de los favoritos.
 
-Jumbo-Visma con Primož Roglič al frente — el esloveno de treinta años que venía de haber ganado la Vuelta 2019 y de haber perdido el Tour 2020 en la crono de La Planche. El tricampeón de la Vuelta que en Irún llegaba como favorito absoluto, con Jonas Vingegaard como gregario de montaña — el danés de veintitrés años que en el Tour 2020 no había corrido pero que en la Vuelta 2020 era el debut en un Grand Tour de quien el año siguiente iba a ser el subcampeón del Tour de France.
+Jumbo-Visma con Primož Roglič al frente — el esloveno de treinta años que venía de haber ganado la Vuelta 2019 y de haber perdido el Tour 2020 en la crono de La Planche. El tricampeón de la Vuelta que en Irún llegaba como favorito absoluto, con Jonas Vingegaard como gregario de montaña — el danés de veintitrés años que había hecho su debut en un Grand Tour un mes antes, en el Tour de France, y que en la Vuelta 2020 corría su segundo Grand Tour del año, el mismo corredor que el año siguiente iba a ser el subcampeón del Tour de France.
 
-Ineos Grenadiers con Richard Carapaz — el ecuatoriano de veintisiete años que había ganado el Giro de Italia 2019, el mismo año que Santi. El corredor que en el pelotón era el rival de la misma generación, el que había llegado al profesionalismo por el mismo camino de la montaña sudamericana aunque por diferente ruta geográfica y diferente estilo de carrera.
+Ineos Grenadiers con Richard Carapaz — el ecuatoriano de veintisiete años que venía de ganar el Giro de Italia hacía menos de un mes — el campeón vigente, el corredor que llegaba a la Vuelta con la confianza del que acaba de demostrar que está en el mejor momento de su carrera. El corredor que en el pelotón era el rival de la misma generación, el que había llegado al profesionalismo por el mismo camino de la montaña sudamericana aunque por diferente ruta geográfica y diferente estilo de carrera.
 
 Movistar con Enric Mas — el español de veinticinco años del que el ciclismo español esperaba la continuidad de Valverde y Contador, el escalador de la nueva generación que en las montañas del norte de España tenía el apoyo del público local que en las otras carreras no existía de la misma manera.
 
@@ -84,7 +84,7 @@ Al pie del Arrate, la fuga tenía cuarenta y cinco segundos.
 
 Jumbo-Visma al frente del pelotón — el tren del equipo de Roglič que en las etapas con final en alto montaba el trabajo de los gregarios en los últimos veinte kilómetros para llegar a la base del puerto con el pelotón reducido y el líder en posición.
 
-Vingegaard fue el último gregario antes de la base — el danés del Jumbo que en su primer Grand Tour hacía lo que los gregarios de primer nivel hacen en el puerto final: el trabajo de los últimos seis kilómetros antes de la base, el ritmo que reduce el pelotón a los treinta corredores que pueden seguir al paso de los equipos de los favoritos, y después la salida hacia el lado cuando el líder ya no necesita la rueda.
+Vingegaard fue el último gregario antes de la base — el danés del Jumbo que, en su segundo Grand Tour del año, hacía lo que los gregarios de primer nivel hacen en el puerto final: el trabajo de los últimos seis kilómetros antes de la base, el ritmo que reduce el pelotón a los treinta corredores que pueden seguir al paso de los equipos de los favoritos, y después la salida hacia el lado cuando el líder ya no necesita la rueda.
 
 El pelotón llegó a la base del Arrate con veintiún corredores.
 

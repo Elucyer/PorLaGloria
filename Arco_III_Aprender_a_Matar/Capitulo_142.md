@@ -62,7 +62,7 @@ El segundo puerto, el Cotefablo, llegó en el kilómetro 70.
 
 En el Cotefablo, Vingegaard hizo su trabajo.
 
-El danés del Jumbo al frente del grupo de favoritos — el gregario de montaña de Roglič en su primer Grand Tour, el corredor de veintitrés años que en el Cotefablo subió al ritmo que en el Tour 2021 iba a poner él mismo como líder: 4,8 vatios por kilogramo al 6,4%, el ritmo que en el grupo de veintitrés corredores que quedaban en la cima del Petralba fue reduciendo a dieciséis en el kilómetro 5 del Cotefablo, a once en el kilómetro 9, y a nueve en la cima.
+El danés del Jumbo al frente del grupo de favoritos — el gregario de montaña de Roglič que corría su segundo Grand Tour del año, el corredor de veintitrés años que en el Cotefablo subió al ritmo que en el Tour 2021 iba a poner él mismo como líder: 4,8 vatios por kilogramo al 6,4%, el ritmo que en el grupo de veintitrés corredores que quedaban en la cima del Petralba fue reduciendo a dieciséis en el kilómetro 5 del Cotefablo, a once en el kilómetro 9, y a nueve en la cima.
 
 Nueve corredores al pie del Formigal.
 
@@ -84,7 +84,7 @@ El cuerpo al noventa respondía al ritmo del Formigal sin forzar — la sensaci�
 
 En el kilómetro diez del Formigal, Vingegaard aceleró.
 
-El danés que había hecho el trabajo del Cotefablo y que en el Formigal seguía en el grupo de nueve tenía todavía vatios para poner ritmo — el gregario joven que en su primer Grand Tour mostraba lo que el Tour 2021 iba a confirmar.
+El danés que había hecho el trabajo del Cotefablo y que en el Formigal seguía en el grupo de nueve tenía todavía vatios para poner ritmo — el gregario joven que, en su segundo Grand Tour del año, mostraba lo que el Tour 2021 iba a confirmar.
 
 Valverde cedió en el kilómetro doce.
 
@@ -134,7 +134,7 @@ El cuerpo al noventa en el último tramo del Formigal — la diferencia que en e
 
 Al kilómetro dos del tramo final, Carapaz atacó.
 
-El ecuatoriano — el corredor que venía de ganar el Giro 2019, el mismo año que Santi, con el estilo diferente: Carapaz el que ataca en el momento de la carrera donde el rival está al límite y donde el kilómetro extra de pendiente hace lo que ningún ataque puede hacer por sí solo.
+El ecuatoriano — el corredor que venía de ganar el Giro de Italia hacía menos de un mes, el campeón vigente, con el estilo diferente: Carapaz el que ataca en el momento de la carrera donde el rival está al límite y donde el kilómetro extra de pendiente hace lo que ningún ataque puede hacer por sí solo.
 
 Mas no respondió.
 

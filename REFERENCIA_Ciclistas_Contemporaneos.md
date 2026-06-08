@@ -214,6 +214,81 @@ La cronología de Santi es:
 
 ---
 
+## XI. WOUT VAN AERT
+**Nacido:** 15/09/1994 — Bélgica
+**Equipos:** Vérandas Willems-Crelan (ciclocrós) → Jumbo-Visma / Visma-Lease a Bike (2019–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2019 | Jumbo-Visma | Debut WorldTour en ruta (viene del ciclocrós, triple campeón del mundo). Tour de France (2 etapas + crono). Strade Bianche 2.º. Milán-San Remo 2.º. |
+| 2020 | Jumbo-Visma | **Milán-San Remo 1.º** (su primer Monumento). **Strade Bianche 1.º**. Tour de France (3 etapas, incl. crono y la última en los Campos Elíseos). Gante-Wevelgem 1.º. |
+| 2021 | Jumbo-Visma | **Amstel Gold Race 1.º**. **Gante-Wevelgem 1.º**. Tour de France (3 etapas + maillot verde). Campeonato de Bélgica (ruta + CRI). |
+| 2022 | Jumbo-Visma | **Omloop Het Nieuwsblad 1.º**. **E3 Saxo Classic 1.º**. Tour de France (2 etapas + maillot verde, rol de gregario de Vingegaard en montaña). |
+| 2023 | Jumbo-Visma | **Dwars door Vlaanderen 1.º**. Tirreno-Adriatico (etapas). Temporada marcada por el calendario de clásicas — sin Monumento. |
+| 2024 | Visma-Lease a Bike | Caída grave en el Itzulia País Vasco (abril): clavícula, esternón y costillas rotas. Pierde el Tour de France y los Juegos Olímpicos de París. Regreso parcial a final de temporada (Tour de Bretaña). |
+| 2025 | Visma-Lease a Bike | Regreso a la forma de clásicas — Strade Bianche (podio), Tour de Flandes (top 10), Tour de France (etapas, gregario de Vingegaard). |
+| 2026–2033 | Visma-Lease a Bike | `[FICCIÓN]` Veterano de las clásicas; puede aparecer como referencia del pelotón flamenco en los arcos tardíos — el corredor todoterreno que Santi respeta pero nunca enfrenta como rival directo de GC. |
+
+**Nota narrativa:** Van Aert es la referencia del "corredor completo" — gana Monumentos, cronos y etapas de montaña de Grand Tour sin ser un especialista de GC. En el Flandes 2020 (cap. 139–140 del Arco III) es el rival directo de Santi en el tramo final junto a Van der Poel — el cálculo de Hernando ("¿quién puede sostenerte en ese llano?") gira en torno a él.
+
+---
+
+## XII. MATHIEU VAN DER POEL
+**Nacido:** 19/01/1995 — Países Bajos
+**Equipos:** Corendon-Circus (ciclocrós/MTB) → Alpecin-Fenix / Alpecin-Deceuninck (2020–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2019 | Corendon-Circus | **Amstel Gold Race 1.º** (remontada legendaria en la última curva sobre Fuglsang). Campeón del mundo de ciclocrós. |
+| 2020 | Alpecin-Fenix | **Tour de Flandes 1.º** (su primer Monumento). Strade Bianche 2.º. Debut en el WorldTour de ruta a tiempo completo. |
+| 2021 | Alpecin-Fenix | Tour de France — viste el maillot amarillo tras ganar la etapa 2 (Mûr-de-Bretagne) y la etapa 8; abandona antes de los Alpes para preparar los Juegos. **Bronce en MTB cross-country, Juegos Olímpicos de Tokio**. |
+| 2022 | Alpecin-Deceuninck | **Tour de Flandes 1.º** (2.º Monumento). Amstel Gold Race 1.º. |
+| 2023 | Alpecin-Deceuninck | **Milán-San Remo 1.º**. **París-Roubaix 1.º** (su primera "Reina de las Clásicas"). **Campeonato del Mundo en ruta 1.º** (Glasgow). |
+| 2024 | Alpecin-Deceuninck | **París-Roubaix 1.º** (2.º consecutivo). Tour de Flandes 2.º. Plata en ruta, Juegos Olímpicos de París. |
+| 2025 | Alpecin-Deceuninck | **Milán-San Remo 1.º** (2.º). Continúa como referencia absoluta del Norte — Flandes, Roubaix, Amstel. |
+| 2026–2033 | Alpecin-Deceuninck | `[FICCIÓN]` El otro polo del ciclismo — el especialista de clásicas que nunca compite con Santi por GC, pero cuyo nombre aparece cada primavera en las conversaciones de Hernando sobre "lo que el cuerpo de Santi no es." |
+
+**Nota narrativa:** Van der Poel es, junto a Van Aert, la referencia del Flandes 2020 (cap. 139–140) — el corredor que en el cálculo de Hernando "en el sprint es más rápido que Van Aert", lo que define la decisión de Santi de intentar ir solo en el Paterberg. Los dos —Van Aert y Van der Poel— representan el ciclismo flamenco que Santi aprende a leer pero nunca pertenece del todo.
+
+---
+
+## XIII. FILIPPO GANNA
+**Nacido:** 25/07/1996 — Italia
+**Equipos:** UAE Team Emirates / Ineos Grenadiers (2020–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2020 | Ineos Grenadiers | **Campeón del Mundo CRI 1.º** (Imola). Giro de Italia (2 cronos + maglia rosa varias etapas). |
+| 2021 | Ineos Grenadiers | **Campeón del Mundo CRI 1.º** (2.º consecutivo, Flandes). Giro de Italia (etapa CRI + maglia rosa). Plata, CRI Juegos Olímpicos de Tokio. |
+| 2022 | Ineos Grenadiers | Giro de Italia (2 cronos). Récord de la hora (octubre 2022, 56,792 km). |
+| 2023 | Ineos Grenadiers | Giro de Italia (etapa CRI + maglia rosa). Tour de Francia — debut, etapas llanas como referente del tren del esprint. |
+| 2024 | Ineos Grenadiers | **Oro, CRI Juegos Olímpicos de París**. Giro de Italia (cronos). |
+| 2025 | Ineos Grenadiers | Continúa como el especialista de crono dominante del pelotón — referencia obligada en cualquier CRI de Grand Tour. |
+| 2026–2033 | Ineos Grenadiers | `[FICCIÓN]` El nombre que Rusconi y Ferretti usan como vara de medir cuando hablan del déficit de Santi contra el crono — "el modelo Ganna" como sinónimo de lo que Santi nunca va a ser. |
+
+**Nota narrativa:** Ganna es la encarnación del problema que persigue a Santi durante toda la carrera — "la crono, siempre la crono" (cap. 146). No es su rival directo de GC, pero su nombre funciona como el techo contra el que Hernando mide cuánto tiempo Santi puede permitirse perder en terreno llano antes de que la montaña ya no alcance para compensar.
+
+---
+
+## XIV. JULIAN ALAPHILIPPE
+**Nacido:** 11/06/1992 — Francia
+**Equipos:** Deceuninck-Quick-Step / Soudal-Quick-Step / Tudor Pro Cycling (2014–)
+
+| Año | Equipo | Victorias y resultados destacados |
+|-----|--------|----------------------------------|
+| 2018 | Quick-Step Floors | **Lieja-Bastoña-Lieja 1.º** (su primer Monumento). Tour de France (2 etapas + maillot a lunares). |
+| 2019 | Deceuninck–QS | **Flecha Valona 1.º** (3.ª consecutiva). **Milán-San Remo 1.º**. Tour de France — viste el maillot amarillo 14 etapas, termina 5.º. |
+| 2020 | Deceuninck–QS | **Campeón del Mundo en ruta 1.º** (Imola). Flecha Valona 1.º (4.ª). |
+| 2021 | Deceuninck–QS | **Campeón del Mundo en ruta 1.º** (2.º consecutivo, Lovaina — *sede que en la novela acoge también el Mundial 2021 de Santi, cap. 184–186*). **Lieja-Bastoña-Lieja 1.º** (2.º Monumento) — *en la ficción, gana por delante de Santi 2.º (cap. 154/164, Bloque 6 del Arco III)*. |
+| 2022 | Quick-Step | San Remo 2.º. Flecha Valona 2.º. Temporada irregular tras dos campeonatos del mundo consecutivos. |
+| 2023 | Soudal–QS | Caída grave en el Tour de France (E4, recibe una botella) — fractura de clavícula y costillas. Temporada truncada. |
+| 2024 | Soudal–QS | Vuelta a España (1 etapa). Continúa como referente de las clásicas de un día. |
+| 2025 | Tudor Pro Cycling | Cambio de equipo — busca relanzar su carrera como capitán de un proyecto WorldTour suizo. |
+
+**Nota narrativa:** Alaphilippe es el corredor que le quita a Santi su primer intento serio de Monumento — Lieja 2021 (cap. 154/164). El "Bélgica habla francés ese día" de Ferretti resume su estilo: el atacante puro que gana por instinto en el momento exacto donde el cálculo de otros dice que es demasiado pronto. Dos veces campeón del mundo, nunca ganador de Grand Tour — el espejo de lo que Santi podría haber sido si hubiera nacido en otro tipo de cuerpo.
+
+---
+
 ## TABLA RESUMEN — GRANDES VUELTAS (Ganadores reales vs. ficción)
 
 | Año | Giro de Italia | Tour de France | Vuelta a España |
