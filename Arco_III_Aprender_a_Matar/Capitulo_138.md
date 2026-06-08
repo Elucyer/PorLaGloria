@@ -4,179 +4,175 @@
 
 ---
 
-El bus de San José de la Montaña sale de la Terminal del Norte de Medellín a las siete de la mañana.
+Santi salió de Laureles a las seis y media de la mañana, en su Jeep Wrangler negro, con los portabicicletas vacíos en el techo y el cuaderno y los auriculares en el asiento del copiloto.
 
-Santi tomó el de las siete.
+No le pidió el carro a Duarte. No le pidió que lo llevara. Este viaje lo quería hacer solo — el mismo trayecto que de niño hacía con Hernando los domingos, pero ahora con las manos en el timón de un carro que era suyo, comprado con el dinero de un Tour que había ganado un muchacho de San José de la Montaña.
 
-No el carro de Duarte, no el taxi, no el vuelo a Rionegro que desde Medellín habría sido un absurdo para un trayecto de ochenta kilómetros. El bus de siempre — el que desde niño había tomado con Hernando los domingos que volvían al pueblo, el que desde la Terminal del Norte subía por la Autopista Norte hasta el municipio de Don Matías y después tomaba la carretera que serpenteaba hacia San José de la Montaña a través de las fincas cafeteras y los eucaliptos de la cordillera central.
+La Autopista Norte primero, después la carretera hacia Don Matías, después la vía estrecha que serpenteaba hacia el municipio a través de las fincas cafeteras y los eucaliptos de la cordillera central.
 
-Dos horas y cuarenta minutos.
+Dos horas largas.
 
-Santi llevaba una mochila pequeña. Ropa de dos días, el cuaderno, los auriculares. Nada más.
-
-La mascarilla en la cara — el protocolo que en octubre de 2020 en los buses intermunicipales de Antioquia todavía era obligatorio y que el conductor revisaba en la puerta antes de dejar subir a cada pasajero.
-
-El bus con doce pasajeros a las siete de la mañana de un miércoles.
-
-Una señora mayor con tres bolsas de mercado. Un hombre de negocios con el portátil sobre las rodillas. Dos estudiantes con las mochilas de la universidad. Y los demás — los pasajeros de los buses intermunicipales de Antioquia que en la vida cotidiana del departamento son los que hacen el trayecto de siempre entre los pueblos y la ciudad.
-
-Nadie lo reconoció.
-
-La mascarilla ayudaba. Y el bus de las siete de la mañana a San José de la Montaña no era el lugar donde el pelotón que había visto el Tour de France buscaba al corredor que lo había ganado.
-
-Santi puso los auriculares, miró por la ventana y dejó que el trayecto hiciera su trabajo.
-
----
-
-La carretera de San José de la Montaña sube desde los 1.500 metros de la Autopista Norte hasta los 2.100 metros del casco urbano del municipio.
-
-El ascenso desde Don Matías — la carretera estrecha, el asfalto que en octubre con las lluvias tenía la humedad pegada a la superficie, los cafetales a los lados, las fincas con los letreros de madera y los perros en los portones.
+La mascarilla en la guantera, lista para ponérsela apenas bajara del carro — el protocolo que en octubre de 2020 todavía regía en los pueblos de Antioquia, aunque la gente lo llevara con más holgura que en la ciudad.
 
 Santi conocía cada curva.
 
-Las había subido en bicicleta desde los ocho años, las había bajado en el bus escolar durante los años del colegio antes de que Hernando lo llevara a Medellín, las había visto desde el carro de Duarte las veces que había regresado al pueblo en los años del ciclismo profesional.
+Las había subido en bicicleta desde los ocho años, las había bajado en el bus escolar durante los años del colegio antes de que Hernando lo llevara a Medellín, las había recorrido en el carro de su padre los domingos de regreso a casa.
 
-Pero en el bus había algo diferente.
+La ceiba en la curva del kilómetro cuarenta y seis seguía ahí — el árbol que Hernando le había dicho que tenía más de cien años y que Santi de niño no había podido imaginar hasta que aprendió a sumar.
 
-El bus te ponía al nivel del paisaje, no por encima. La velocidad correcta para ver lo que estaba al borde de la carretera sin que pasara demasiado rápido — el cafetal con los granos en distintos estados de maduración, el rojo y el verde mezclados, la ceiba en la curva del kilómetro cuarenta y seis que Santi recordaba desde niño porque Hernando le había dicho que tenía más de cien años y él nunca había podido imaginar un árbol de cien años hasta que aprendió a sumar.
-
-La ceiba seguía ahí.
+Bajó la velocidad al pasar. La miró un segundo. Siguió.
 
 ---
 
-El bus llegó a San José de la Montaña a las nueve y cuarenta y cinco de la mañana.
+Llegó a San José de la Montaña a las nueve y diez de la mañana.
 
-El parque principal del municipio — la iglesia de piedra con el campanario, la alcaldía en la esquina norte, los almacenes de víveres con los costales de frijol y arroz en la entrada, la cancha de fútbol al costado del parque donde los martes por la tarde los muchachos del colegio jugaban después de clase.
+El parque principal del municipio — la iglesia de piedra con el campanario, la alcaldía en la esquina norte, los almacenes de víveres con los costales de frijol y arroz en la entrada, la cancha de fútbol al costado del parque donde los muchachos del colegio jugaban después de clase.
 
-Santi bajó del bus con la mochila.
+Estacionó el Jeep frente al almacén de don Elías.
 
-El frío de los 2.100 metros — el frío seco de la cordillera central que en Medellín en octubre no existía y que en San José de la Montaña en octubre era el frío de siempre, el del amanecer y el de la tarde cuando las nubes bajaban desde el Cerro La Vieja.
+El frío de los 2.100 metros — el frío seco de la cordillera central que en Medellín en octubre no existía y que en San José de la Montaña era el de siempre, el del amanecer y el de la tarde cuando las nubes bajaban desde el Cerro La Vieja.
 
-Tres personas en el parque lo miraron.
+Se puso la mascarilla. Bajó.
 
-Una lo reconoció de inmediato — don Elías, el del almacén de víveres de la esquina sur, que en cuarenta años de vender en el parque de San José de la Montaña había visto pasar a tres generaciones de las familias del municipio y que conocía a Santi desde que Santi tenía cuatro años y venía al almacén con Hernando a comprar el chocolate en tableta de los domingos.
+Don Elías lo vio desde la puerta del almacén — el hombre que en cuarenta años de vender en el parque de San José de la Montaña había visto pasar tres generaciones de las familias del municipio, y que conocía a Santi desde que Santi tenía cuatro años y venía con Hernando a comprar el chocolate en tableta de los domingos.
 
-— ¡Santi! — dijo don Elías desde la puerta del almacén. — ¡El campeón del Tour!
+— ¡Santi! — dijo don Elías. — ¡El campeón del Tour!
 
-— Don Elías — dijo Santi.
+— Don Elías.
 
-— ¡Ay, mijo! — Don Elías cruzó el parque con los brazos abiertos, la mascarilla bajada hasta el cuello a pesar del protocolo, con la emoción del hombre que en el pueblo ha visto crecer a alguien desde niño y que cuando ese alguien gana el Tour de France lo procesa como si fuera algo de la familia. — ¡Todo el pueblo estuvo pegado al televisor! Hasta el padre Augusto canceló la misa del domingo siguiente para que pudiéramos ver el podio.
+— ¡Ay, mijo! — Cruzó el parque con los brazos abiertos, la mascarilla bajada hasta el cuello a pesar del protocolo, con la emoción del hombre que ha visto crecer a alguien desde niño y que cuando ese alguien gana el Tour de France lo procesa como si fuera de la familia. — ¡Todo el pueblo estuvo pegado al televisor! Hasta el padre Augusto canceló la misa del domingo siguiente para que pudiéramos ver el podio.
 
 Santi le dio la mano. Don Elías la tomó con las dos.
 
 — Gracias, don Elías.
 
-— ¿Va a ver a Rodrigo?
+— ¿Va para donde Rodrigo?
 
 — Sí.
 
-— Está en la casa. Está bien — el hombre que salió de esa operación no es el mismo de antes, pero está bien.
+— Está en la ferretería de don Octavio, su tío. Casi que la maneja él solo ya. — Don Elías bajó un poco la voz, con el cariño del que ha visto crecer a alguien y todavía se sorprende de en qué se convirtió. — Ya lo verá usted mismo. Quedó hecho un toro de tanto cargar bulto.
 
 ---
 
-La casa de Rodrigo Torres estaba en la calle que subía desde el parque hacia el barrio El Pinal — la misma calle de siempre, la que de niño Santi había subido corriendo porque quedaba a cuatro casas de la casa de su abuela y porque entre los ocho y los doce años la distancia entre esas dos casas era el equivalente de un sprint de final de etapa.
+La ferretería de don Octavio quedaba en la esquina del parque, en el mismo local de siempre — el mostrador de madera oscura, los estantes con las herramientas y los tornillos clasificados en cajones con etiquetas escritas a mano, el olor a aceite y a cuero de las correas que colgaban detrás del mostrador.
 
-Tocó la puerta.
+Santi se paró en la puerta.
 
-Rodrigo Torres abrió.
+Rodrigo estaba de espaldas, subido en una escalera pequeña, acomodando cajas en el estante más alto.
 
-Cincuenta y cuatro años. El exprofesor de educación física del colegio de San José de la Montaña que en mayo de 2017 había sido operado de cáncer de pulmón en la Clínica Las Américas de Medellín — el tumor operable que los médicos habían encontrado a tiempo, la operación que había salido bien, la recuperación que había tardado más de lo que los médicos habían proyectado.
+— Buenas — dijo Santi.
 
-Tres años y medio.
+Rodrigo se volteó.
 
-El hombre que tenía enfrente no era el mismo de la última vez que Santi lo había visto — el profesor de educación física que en las tardes en la cancha de San José de la Montaña había tenido la voz que llegaba hasta la última fila de las gradas, el que en los entrenamientos de los jueves corría cuatro vueltas a la cancha sin perder el aliento mientras hablaba.
+Veintiún años. Más fornido de lo que Santi recordaba — los brazos y la espalda de alguien que llevaba dos años cargando bultos de cemento y rollos de alambre y láminas de zinc, no el cuerpo flaco del adolescente que Santi había dejado en 2016. Barba de varios días. La cara igual. Los ojos iguales. La sonrisa lenta de siempre, la que tardaba un segundo en llegar pero cuando llegaba se quedaba.
 
-Este Rodrigo era más delgado. La voz seguía siendo reconocible pero sin el volumen de antes. Los ojos iguales.
+— No jodás — dijo Rodrigo.
 
-— Santi — dijo Rodrigo.
+Bajó de la escalera de dos saltos, cruzó el local y lo abrazó —sin protocolo, sin codo, sin la distancia del COVID— con la fuerza de alguien que llevaba más de un año sin verlo en persona y que no estaba dispuesto a que un virus le quitara también eso.
 
-— Don Rodrigo.
+— Hermano — dijo Santi.
 
-Se dieron la mano con el codo — el protocolo de los tiempos del COVID que en San José de la Montaña también había llegado, aunque en el pueblo la gente lo cumplía con más flexibilidad que en la ciudad.
+Se quedaron así un momento, en medio de la ferretería, entre los estantes de tornillos y las correas colgadas, dos hombres de veintiún años que se conocían desde que tenían siete y que habían aprendido, cada uno por su lado, lo que cuesta seguir adelante cuando el cuerpo decide no cooperar.
 
-— Pasá — dijo Rodrigo.
+— Te vi por la tele — dijo Rodrigo, separándose. — Toda la familia. Mi papá lloró. No se lo digás que te lo conté.
+
+— No le digo nada.
+
+— Y vos ni una llamada el día que ganaste.
+
+— Te escribí.
+
+— Un audio de cuarenta segundos a las dos de la mañana, hora de acá.
+
+— Estaba en los Campos Elíseos.
+
+— Ya sé dónde estabas. — Rodrigo sonrió. — Igual contás.
 
 ---
 
-La sala de la casa de Rodrigo Torres tenía los mismos muebles de siempre — el sofá de cuero marrón, la mesa de centro con el vidrio, el televisor en la pared con el cable de antena que en San José de la Montaña seguía siendo el sistema más común porque el internet de fibra no había llegado todavía a todas las casas del municipio.
+Le pidió media hora a su tío —el dueño del local, el hermano de su mamá, que había abierto la ferretería hacía cuatro años y que desde el fondo del mostrador levantó la mano sin dejar de atender a un cliente, en un gesto que quería decir *andá, yo sigo acá* y también, sin necesidad de más palabras, *qué orgullo, muchacho*. Lo que había empezado como un trabajo de unos meses, mientras Rodrigo decidía qué hacer con la vida, se había convertido en esto: Rodrigo llevaba el inventario, atendía a los clientes de las veredas que llegaban desde las cinco de la mañana, conocía el negocio mejor que el propio dueño.
 
-Y en la pared del fondo: tres fotografías.
+Cruzaron el parque hasta la casa de los Torres —la misma de siempre, la que quedaba a cuatro casas de la casa de la abuela de Santi, la que de niño Santi subía corriendo porque entre los ocho y los doce años esa distancia era el equivalente de un sprint de final de etapa.
 
-La primera era del equipo de fútbol del colegio, 2009. La segunda era de Rodrigo en la cancha con un grupo de estudiantes de primaria, 2014. La tercera era de Rodrigo y Santi en la salida del Alto de Minas, 2015 — los dos con la bicicleta, Santi con dieciséis años, Rodrigo con el maillot del club de ciclismo de San José, los dos mirando al fotógrafo con la expresión del que lleva cuatro horas de subidas y todavía tiene el cuerpo encendido.
+La sala tenía los mismos muebles de siempre. El sofá de cuero marrón, la mesa de centro con el vidrio, el televisor con el cable de antena que en San José de la Montaña seguía siendo el sistema más común porque la fibra óptica todavía no había llegado a todas las casas del municipio.
 
-La fotografía del 2015.
+En la pared, fotografías.
 
-El año antes de que Santi firmara con FCV y se fuera a Medellín. El último año en que Rodrigo lo había entrenado.
+Las dos bicicletas apoyadas contra el muro de la casa de la abuela, verano de 2010. Los dos en el kiosco de doña Petra con la gaseosa Postobón, una foto que algún adulto les había tomado sin que ellos se dieran cuenta. Y una más grande, en el centro: los dos en la salida del Alto de Minas, 2015 — Santi con dieciséis años, Rodrigo con el maillot del club de ciclismo de San José, los dos con la bicicleta y la expresión del que lleva cuatro horas de subida y todavía tiene el cuerpo encendido.
 
-— La encontré hace dos años — dijo Rodrigo, viendo que Santi miraba la foto. — Estaba en el celular de mi hija. La mandé a ampliar.
+— Esa me la tomó tu papá — dijo Rodrigo. — La tengo ampliada hace años.
 
-— Yo no la tenía — dijo Santi.
+— Yo no tenía copia.
 
-— Ahora tenés una copia. — Rodrigo fue a la habitación y volvió con un sobre. Se lo extendió. — La guardé para dártela cuando vinieras.
+Rodrigo fue a la habitación y volvió con un sobre.
 
-Santi abrió el sobre.
+— Ahora sí —dijo, y se lo extendió—. La hice imprimir hace dos meses. Sabía que en algún momento ibas a venir.
 
-La misma foto, impresa en papel fotográfico. Los dos en la salida del Minas, 2015, los dos con la bicicleta.
-
-Santi la miró.
-
-El muchacho de dieciséis años en la foto no tenía todavía el cuerpo del corredor profesional — era delgado de otra manera, con esa delgadez de los adolescentes que el músculo todavía no ha terminado de definir. Pero en la postura sobre la bicicleta ya estaba algo que el ciclismo le había enseñado a Rodrigo a reconocer: la manera en que el corredor que va a ser bueno sostiene la bicicleta cuando está quieto — como si la bicicleta fuera una extensión del cuerpo, no un objeto apoyado.
+Santi abrió el sobre. La misma foto, en papel fotográfico. Los dos al pie del Minas, con las bicicletas, antes de que el ciclismo profesional se llevara a uno de los dos a Europa y dejara al otro en el pueblo donde había nacido.
 
 — Gracias — dijo Santi.
 
-Se sentaron.
-
-Carmen — la señora de Rodrigo, no la madre de Santi, que también se llamaba Carmen — trajo el tinto en las tazas pequeñas de siempre.
+La mamá de Rodrigo trajo el tinto en las tazas pequeñas de siempre, le dijo a Santi que estaba más flaco que en la foto del periódico, y volvió a la cocina.
 
 ---
 
 Hablaron dos horas.
 
-No de ciclismo — de lo que había pasado. De la operación, de la recuperación, de los meses en Medellín en la Clínica Las Américas y después los meses en la casa de San José aprendiendo a respirar de nuevo con un pulmón que tenía la cicatriz de la operación.
+No de ciclismo —no al principio—. De lo que había pasado en esos años en que solo se habían visto a través de una pantalla.
 
-— Los primeros seis meses — dijo Rodrigo — el aire no llegaba donde tenía que llegar. Hacía el esfuerzo de siempre y el cuerpo no respondía de la misma manera. — Pausa. — Entendí en esos seis meses lo que mis estudiantes sentían cuando les pedía esfuerzo y el cuerpo no daba lo que la cabeza pedía.
+— ¿Tu papá? — dijo Santi—. ¿Cómo sigue de lo que tuvo?
 
-— ¿Y ahora? — dijo Santi.
+— Bien. Operado y recuperado, como te dije esa vez por mensaje. — Rodrigo tomó el tinto—. Volvió a la cooperativa hace rato. Ya nadie se acuerda de que estuvo grave. Menos él. Dice que esos meses se los regaló a otra persona y que esa persona ya se murió de viejo.
 
-— Ahora llega. No al cien por ciento — los médicos dicen que el pulmón operado no vuelve exactamente al cien. Pero al noventa y dos, al noventa y tres. — Rodrigo tomó el tinto. — Ya corrí.
+— Suena a algo que diría mi papá.
 
-— ¿Ya corrió?
+— Los manes de esa generación hablan todos igual. — Rodrigo sonrió—. Como si el dolor fuera otra cosecha más: llega, se aguanta, pasa.
 
-— En bicicleta. En julio de este año, el primer día que abrieron las ciclovías después del confinamiento. — Rodrigo lo miró. — Veinte kilómetros. En plano. — Pausa. — Me gasté cuarenta y cinco minutos que antes me habría gastado en veinticinco. Pero llegué.
+— ¿Y vos? ¿Seguís con tu tío?
 
-Santi asintió.
+— Seguimos. — Se encogió de hombros—. Lo que empezó como un trabajo de unos meses, mientras decidía qué hacer con la vida, ya lleva cuatro años. Llevo el inventario, atiendo a la gente de las veredas que llega desde las cinco, sé dónde está cada tornillo de ese local mejor que mi tío. — Pausa—. No es la gloria. Pero es mío, en la práctica, aunque el nombre en la fachada sea el de él.
 
-— Llegar — dijo Santi — es el único número que importa cuando estás empezando de nuevo.
+— Es más de lo que tiene la mayoría.
 
-Rodrigo lo miró.
+— Eso digo yo.
 
-Era la frase del corredor que había ganado el Tour de France diciéndole algo al exprofesor de educación física que había aprendido a pedalear de nuevo después de la operación de cáncer. La misma frase que en sentidos diferentes los dos habían necesitado en distintos momentos.
+Santi lo miró.
 
-— Vos — dijo Rodrigo — le debías una llamada desde Bélgica.
+Ese era el Rodrigo que conocía desde los siete años: el que no se iba a ninguna parte y, sin moverse, encontraba la manera de ir hacia adelante.
+
+— ¿Seguís rodando? — dijo Santi.
+
+— Los domingos. Con un grupito que se armó hace dos años — el hijo de don Elías, dos manes de Don Matías, un profesor del colegio. — Pausa—. Nada serio. Café al final, en el kiosco de doña Petra, que ahora tiene mesas afuera.
+
+— ¿Subís el Minas?
+
+— De vez en cuando. Despacio. — Rodrigo lo miró de reojo—. No todos tuvimos la suerte de que el cuerpo respondiera como el tuyo respondió.
+
+No lo dijo con envidia. Lo dijo con la honestidad simple de quien lleva veinte años viendo a su mejor amigo convertirse en algo que él jamás iba a ser, y que hace mucho tiempo dejó de medirse contra eso.
+
+— Vos — dijo Rodrigo — me debías una llamada desde Bélgica.
 
 Santi bajó la vista.
 
-Era verdad.
-
-En el Campeonato del Mundo de Yorkshire de 2019, antes de que el ciclismo se pusiera el maillot arcoíris, había habido una llamada pendiente desde Bélgica — la que Rodrigo esperaba y que Santi no había hecho porque en los días del Tour de l'Avenir y los meses de Bélgica el calendario del corredor profesional joven no deja espacio para las deudas del pueblo.
+Era verdad. En el Mundial de Yorkshire de 2019, antes del maillot arcoíris, había quedado pendiente una llamada — la que Rodrigo esperaba y que Santi nunca hizo, porque entre el Tour de l'Avenir y los meses de Bélgica el calendario del corredor profesional joven no dejaba espacio para las deudas del pueblo.
 
 — Lo sé — dijo Santi.
 
-— No te estoy reclamando — dijo Rodrigo. — Te lo digo para que lo sepás.
+— No te estoy reclamando — dijo Rodrigo—. Te lo digo para que lo sepás. Para que quede dicho.
 
-— Ya lo sé.
+— Ya quedó dicho.
 
 Silencio.
 
-El mismo silencio de San José de la Montaña que en el balcón de Laureles no existía — el silencio de los 2.100 metros donde el único ruido era el viento en los eucaliptos de la calle y los perros del barrio y el bus de las doce que pasaba por el parque.
+El silencio de San José de la Montaña que en el balcón de Laureles no existía — el de los 2.100 metros, donde lo único que se oía era el viento en los eucaliptos de la calle, los perros del barrio, el bus de las doce pasando frente al parque.
 
 — ¿Cómo está Hernando? — dijo Rodrigo.
 
 Santi tardó.
 
-— Bien — dijo Santi. — Mejor.
+— Bien — dijo—. Mejor.
 
-— Oí lo del Giro de 2019. — Rodrigo miró la ventana. — En el pueblo se habló mucho. Don Elías estuvo prendido al radio toda la noche que Hernando estuvo en el Stelvio.
+— Oí lo del Giro de 2019. — Rodrigo miró hacia la ventana—. Acá se habló mucho. Don Elías estuvo prendido de la radio toda la noche que Hernando estuvo en el Stelvio.
 
 — El Stelvio fue duro — dijo Santi.
 
@@ -186,47 +182,47 @@ Santi tardó.
 
 Rodrigo asintió.
 
-— Ese año — dijo Rodrigo — vos ganaste el Giro y el Mundial. Con eso encima, con lo del Stelvio encima. — Pausa. — Cuando lo cuenten en los libros de ciclismo de Colombia no van a entender la mitad de lo que costó.
+— Ese año ganaste el Giro y el Mundial — dijo—. Con todo eso encima. — Pausa. — Cuando lo cuenten en los libros de ciclismo de Colombia no van a entender ni la mitad de lo que costó.
 
 Santi no respondió.
 
-Era la frase que nadie más le había dicho exactamente así — ni Ferretti, ni Duarte, ni los periodistas de El Tiempo y El Espectador que habían cubierto la temporada. El exprofesor de San José de la Montaña que conocía a Santi desde los ocho años diciéndole lo que solo alguien que conoce el comienzo puede decir sobre el recorrido.
+Era la frase que nadie más le había dicho exactamente así — ni Ferretti, ni Duarte, ni los periodistas de El Tiempo y El Espectador que habían cubierto la temporada entera. El amigo de toda la vida, el que lo conocía desde los siete años, diciéndole lo único que solo alguien que conoce el comienzo puede decir sobre el camino recorrido.
 
 ---
 
-Después del almuerzo que Carmen de Rodrigo puso en la mesa — el sancocho de gallina con la yuca y el plátano, el arroz con el hogao al lado, la arepa de chócolo — Rodrigo le mostró el Alto de Minas desde el corredor de la casa.
+Después del almuerzo —el sancocho de gallina con yuca y plátano, el arroz con hogao, la arepa de chócolo— salieron al corredor de la casa.
 
-El puerto que desde San José de la Montaña se veía en la ladera opuesta — la carretera que subía entre los cafetales, la cinta gris del asfalto serpenteando hasta donde la vegetación lo dejaba ver.
+Desde ahí se veía el Alto de Minas, en la ladera opuesta: la carretera subiendo entre los cafetales, la cinta gris del asfalto perdiéndose donde la vegetación ya no dejaba ver más.
 
 — ¿Lo subiste? — dijo Rodrigo.
 
-— La semana pasada — dijo Santi.
+— La semana pasada.
 
 — ¿Cómo estaba?
 
 — Igual que siempre.
 
-Rodrigo asintió.
+Rodrigo sonrió, mirando el puerto.
 
-— El Minas no cambia — dijo Rodrigo. — En eso le tengo envidia. — Pausa. — Ojalá los cuerpos tampoco cambiaran.
+— Ese alto no cambia — dijo—. Eso me da envidia. — Pausa—. Ojalá los cuerpos tampoco cambiaran.
 
 Santi lo miró de lado.
 
-El exprofesor de cincuenta y cuatro años con el pulmón operado mirando el alto que en los últimos veinte años había subido cientos de veces. La misma ladera, el mismo asfalto, el mismo perfil en la distancia.
+Su amigo de toda la vida, con la espalda curtida de cargar bultos desde los diecisiete años, mirando el mismo puerto que de niños habían subido juntos cientos de veces, en las mismas bicicletas baratas, sin saber que uno de los dos iba a terminar ganando el Tour de Francia y el otro se iba a quedar a vivir, simplemente, la vida que le tocó.
 
-— Va a seguir subiendo — dijo Santi.
+— Va a seguir ahí — dijo Santi.
 
 No era pregunta.
 
-— Sí — dijo Rodrigo. — Aunque sea al noventa y tres.
+— Sí — dijo Rodrigo—. Y yo también. Aunque sea al noventa y tres.
 
 ---
 
-Santi tomó el bus de regreso a las cuatro de la tarde.
+Santi salió hacia Medellín a las cuatro de la tarde.
 
-Antes de salir, Rodrigo lo acompañó hasta la parada.
+Rodrigo lo acompañó hasta el Jeep, estacionado todavía frente al almacén de don Elías.
 
-El parque de San José de la Montaña a las cuatro de la tarde de octubre — el frío que en esa hora ya había bajado dos grados desde la mañana, las nubes que desde el Cerro La Vieja se habían acercado y que en media hora iban a traer la lluvia.
+El parque de San José de la Montaña a esa hora — el frío que ya había bajado dos grados desde la mañana, las nubes que desde el Cerro La Vieja se habían acercado y que en media hora iban a traer la lluvia de siempre.
 
 — Gracias por venir — dijo Rodrigo.
 
@@ -236,27 +232,25 @@ El parque de San José de la Montaña a las cuatro de la tarde de octubre — el
 
 — Y la llamada de Bélgica — confirmó Santi.
 
-Rodrigo sonrió. La primera sonrisa de la visita — la sonrisa del hombre que cobra una deuda sin resentimiento, que la cobra solo para que quede cerrada y no por otra cosa.
+Rodrigo sonrió — la primera sonrisa abierta de toda la visita, la del que cobra una deuda sin resentimiento, solo para que quede saldada.
 
-— Ganá el Flandes — dijo Rodrigo.
+— Ganá el Flandes — dijo.
 
 Santi lo miró.
 
-— ¿Sabe cuándo es?
+— ¿Sabés cuándo es?
 
-— El dieciocho. Lo vi en El Espectador. — Pausa. — Siempre me gustaron las clásicas. El Lombardia, el Flandes. Un día, sin red de protección. — Rodrigo lo miró directo. — Ese es el ciclismo honesto.
+— El dieciocho. Lo vi en El Espectador. — Pausa—. Siempre me gustaron las clásicas. El Lombardía, el Flandes. Un día, sin red de protección. — Lo miró directo—. Eso sí es ciclismo honesto.
 
-El bus llegó al parque.
+Santi subió al Jeep. Bajó el vidrio.
 
-Santi tomó la mochila.
+— Cuidate — dijo.
 
-— Cuídese — dijo.
+— Vos también, hermano.
 
-— Vos también — dijo Rodrigo.
+Arrancó hacia Medellín a las cuatro y diez.
 
-El bus salió hacia Medellín a las cuatro y cuatro minutos.
-
-Santi fue en la misma ventana del de la mañana — el asiento derecho, el que desde la carretera de bajada mostraba el valle y los cafetales y la ceiba del kilómetro cuarenta y seis.
+Tomó la misma carretera de la mañana, en sentido contrario — la ceiba del kilómetro cuarenta y seis, los cafetales, las curvas que conocía de memoria desde que tenía ocho años.
 
 La ceiba de siempre.
 
@@ -268,11 +262,11 @@ La ceiba de siempre.
 
 *— ¿Cómo está Rodrigo? — dijo Hernando.*
 
-*— Bien — dijo Santi. — Subió en bicicleta en julio.*
+*— Bien — dijo Santi—. Subió en bicicleta en julio.*
 
 *Hernando lo procesó.*
 
-*El hombre operado de cáncer de pulmón subiendo en bicicleta en julio de 2020.*
+*El muchacho que durante años no había tenido tiempo ni cuerpo para subirse a una bicicleta —entre el local, los bultos de cemento y las cinco de la mañana— volviendo a hacerlo, así fuera veinte kilómetros en plano, así fuera los domingos.*
 
 *— ¿Cuánto? — dijo Hernando.*
 
@@ -286,7 +280,7 @@ La ceiba de siempre.
 
 *El cuaderno sobre las rodillas. No lo abrió.*
 
-*— El Rodrigo del 2015 habría tardado veinticinco — dijo Hernando.*
+*— El Rodrigo de 2015 habría tardado veinticinco — dijo Hernando.*
 
 *— Veinte minutos más — dijo Santi.*
 
@@ -303,5 +297,3 @@ La ceiba de siempre.
 *— Bien — dijo.*
 
 *Y no dijo más.*
-
----
