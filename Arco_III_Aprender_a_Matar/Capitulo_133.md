@@ -62,7 +62,7 @@ Después Pogačar — el tercero. El corredor de veintiún años que al subir al
 
 Y Santi.
 
-Santiago Reyes Cardona de San José de la Montaña, Antioquia. Veintitrés años. El maillot amarillo del Tour de France 2020 sobre el traje del podio.
+Santiago Reyes Cardona de San José de la Montaña, Antioquia. Veinte años. El maillot amarillo del Tour de France 2020 sobre el traje del podio.
 
 El primer español en ganar el Tour... no. El primer colombiano en ganar el Tour en 2020 — en 2019 había sido Bernal. En 2020 fue Santi. Los dos en años consecutivos. El ciclismo colombiano que en dos años había producido los dos ganadores del Tour de France más jóvenes de la era moderna.
 

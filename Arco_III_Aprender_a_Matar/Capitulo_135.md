@@ -57,7 +57,7 @@ Julián dejó pasar el silencio.
 
 Era el silencio que en los cinco episodios anteriores había aprendido a no cortar — el silencio del que acaba de decir algo que el otro necesita tiempo para procesar.
 
-Santi tenía el cuaderno cerrado sobre la mesa. No escribía durante las grabaciones — lo había aprendido en el primer episodio, con Bernal, cuando el ruido del bolígrafo sobre el papel captaba el micrófono. Pero la frase de Merckx ya estaba anotada en el cuerpo del corredor de veintitrés años que en dieciséis días iba a ponerse el dorsal del Tour de Flandes.
+Santi tenía el cuaderno cerrado sobre la mesa. No escribía durante las grabaciones — lo había aprendido en el primer episodio, con Bernal, cuando el ruido del bolígrafo sobre el papel captaba el micrófono. Pero la frase de Merckx ya estaba anotada en el cuerpo del corredor de veinte años que en dieciséis días iba a ponerse el dorsal del Tour de Flandes.
 
 *El kilómetro cien el correcto.*
 
@@ -147,7 +147,7 @@ El que te marca no puede ganar.
 
 Santi tardó.
 
-Era la pregunta que en veintitrés años de ciclismo nadie le había hecho exactamente así.
+Era la pregunta que en veinte años de ciclismo nadie le había hecho exactamente así.
 
 — Las dos cosas — dijo Santi.
 
@@ -161,7 +161,7 @@ Merckx asintió.
 
 ---
 
-**JULIÁN:** ¿Qué le dirías a Santi sobre los años que vienen? Tiene veintitrés años. Acaba de ganar el Tour. Tiene por delante lo que vos tuviste por delante en 1969.
+**JULIÁN:** ¿Qué le dirías a Santi sobre los años que vienen? Tiene veinte años. Acaba de ganar el Tour. Tiene por delante lo que vos tuviste por delante en 1969.
 
 **MERCKX:** *(lo miró directo)* Que el Tour que ganaste ya no existe. Ya es pasado. El Tour que importa es el que no ganaste todavía. *(pausa)* En 1969 gané el Tour. En 1970 fui al Tour a ganar el Tour — no a defender el Tour. Son cosas diferentes. El que defiende administra. El que gana ataca. *(pausa)* Y la crono. Siempre la crono.
 
@@ -213,7 +213,7 @@ Cerró el cuaderno.
 
 *Merckx en 1969 tenía veinticuatro años y cinco Tours por ganar.*
 
-*Santi en 2020 tiene veintitrés años.*
+*Santi en 2020 tiene veinte años.*
 
 *Cuántos Tours faltan.*
 

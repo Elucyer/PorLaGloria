@@ -146,7 +146,7 @@ El café de la mañana de Laureles.
 
 El Valle de Aburrá abajo — el bus de la ruta 104 doblando por la esquina del parque, una moto de domicilios frenando en la acera de enfrente, dos señoras con las bolsas del mercado en la esquina.
 
-El corredor de veintitrés años que había ganado el Tour de France y el padre de cincuenta y uno que lo había seguido desde el balcón del cuarto piso — los dos mirando el mismo horizonte de siempre, las mismas montañas que cerraban el valle en todos los lados, el cielo de Medellín en septiembre que cuando no llovía tenía ese azul particular que en ninguna parte de los Alpes existía.
+El corredor de veinte años que había ganado el Tour de France y el padre de cincuenta y uno que lo había seguido desde el balcón del cuarto piso — los dos mirando el mismo horizonte de siempre, las mismas montañas que cerraban el valle en todos los lados, el cielo de Medellín en septiembre que cuando no llovía tenía ese azul particular que en ninguna parte de los Alpes existía.
 
 ---
 
@@ -212,13 +212,13 @@ Hernando entró desde el balcón.
 
 Se detuvo en la puerta del comedor.
 
-Miró el cuadro.
+Miró la bicicleta.
 
 No dijo nada durante diez segundos.
 
 Después se acercó. Las manos del corredor que en cuarenta años de ciclismo había tocado docenas de bicicletas y que en esas manos llevaba el conocimiento táctil del cuadro que no se aprende en ningún libro — las manos que recorrieron el tubo superior, el tubo del sillín, la unión de la horquilla con el cuadro donde el carbono de competición tiene una rigidez diferente al carbono de entrenamiento.
 
-Los kilómetros de la carrera estaban en el cuadro. Hernando los conocía aunque no los pudiera ver.
+Los kilómetros de la carrera estaban en la bicicleta. Hernando los conocía aunque no los pudiera ver.
 
 — La misma que en el Giro — dijo Hernando. No como pregunta.
 
@@ -238,13 +238,13 @@ Hernando lo miró.
 
 — Vos — dijo Santi.
 
-Hernando recogió el cuadro.
+Hernando recogió la bicicleta.
 
 Lo llevó al cuarto.
 
 Santi no entró.
 
-Desde el pasillo escuchó el sonido del soporte metálico ajustándose, el clic del mecanismo que sujetaba el cuadro.
+Desde el pasillo escuchó el sonido del soporte metálico ajustándose, el clic del mecanismo que sujetaba la bicicleta.
 
 Hernando salió del cuarto.
 
