@@ -1,10 +1,10 @@
 # POR LA GLORIA
 ## Arco III — Aprender a Matar
-### Capítulo 149 — La bicicleta nueva y el Alto de Minas (diciembre de 2020)
+### Capítulo 149 — La bicicleta nueva y el Alto de Minas (noviembre–diciembre de 2020)
 
 ---
 
-La bicicleta llegó al apartamento de Laureles el miércoles nueve de diciembre.
+La bicicleta llegó al apartamento de Laureles el martes dieciocho de noviembre.
 
 No una bicicleta de carrera profesional — Santi lo había pensado desde el día en que el Dr. Restrepo había dicho *bicicleta: sí*. La bicicleta de carrera profesional era el instrumento del corredor que compite, el que en el Tour de France lleva los vatímetros y los sensores y el cuadro de carbono que pesa 6,8 kilogramos exactos porque el reglamento de la UCI no permite menos.
 
@@ -16,7 +16,7 @@ El color: azul marino.
 
 No el azul del FCV-WorldTour — el azul oscuro, casi negro, que en la luz de la mañana tenía un reflejo que cambiaba dependiendo del ángulo.
 
-Santi la había pedido en octubre, desde Bélgica, a través de Duarte.
+Santi la había pedido en octubre, desde Bélgica, a través de Duarte. Había llegado el día siguiente a la cita del Pablo Tobón.
 
 Duarte había coordinado con el distribuidor de Specialized en Medellín.
 
@@ -134,7 +134,7 @@ La levantó.
 
 La sostuvo.
 
-El hombre de cincuenta y uno años con la bicicleta azul marino del comedor de Laureles — el padre que en tres años de quimioterapia y seguimientos y remisiones parciales y remisión completa había guardado en el cuerpo lo que el cuerpo guardaba, y que en ese momento tenía en las manos el instrumento que el médico había dicho que sí.
+El hombre de cincuenta años con la bicicleta azul marino del comedor de Laureles — el padre que en tres años de quimioterapia y seguimientos y remisiones parciales y remisión completa había guardado en el cuerpo lo que el cuerpo guardaba, y que en ese momento tenía en las manos el instrumento que el médico había dicho que sí.
 
 — ¿Cuándo? — dijo Hernando.
 
@@ -148,7 +148,7 @@ Diciembre de 2020.
 
 ---
 
-El sábado doce de diciembre, la salida fue a las seis de la mañana.
+El sábado veintiuno de noviembre, la salida fue a las cinco de la mañana.
 
 El mismo ritual de siempre — el ritual que Santi conocía desde los ocho años y que en los años del profesionalismo había hecho cientos de veces solo y que esta mañana hacía con Hernando al lado.
 
@@ -156,7 +156,7 @@ Las bicicletas bajando por el ascensor.
 
 La puerta del edificio.
 
-La calle de Laureles a las seis de la mañana de diciembre — el frío relativo de los 1.500 metros del valle, la oscuridad que en diciembre en Medellín a las seis todavía no había cedido al amanecer, el olor del eucalipto que en el barrio de Laureles venía desde el Cerro El Volador dos kilómetros al norte.
+La calle de Laureles a las cinco de la mañana de noviembre — el frío relativo de los 1.500 metros del valle, la oscuridad completa del amanecer que todavía no había empezado, el olor del eucalipto que en el barrio de Laureles venía desde el Cerro El Volador dos kilómetros al norte.
 
 Hernando tomó el manillar.
 
@@ -164,7 +164,7 @@ Montó.
 
 Los pies en los pedales.
 
-El primer pedaleo después de tres años, dos meses y catorce días desde la última vez que Hernando había montado una bicicleta — la última salida antes del diagnóstico, en octubre de 2017, cuando todavía era el hombre sano del club de ciclismo de Laureles que subía el Minas los sábados.
+El primer pedaleo después de tres años, dos meses y catorce días desde la última vez que Hernando había montado una bicicleta — la última salida antes del diagnóstico, en octubre de 2017, cuando todavía era el hombre sano del club de ciclismo de Laureles que subía el Minas los sábados — tres años y un mes después de esa última vez.
 
 La primera pedalada.
 
@@ -182,23 +182,15 @@ Hernando pedaleó.
 
 Santi al lado.
 
-Los dos en la calle de Laureles a las seis de la mañana, las bicicletas en la carretera que iba hacia el norte, hacia Floresta, hacia la carretera que subía al Alto de Minas.
+Los dos en la calle de Laureles a las seis de la mañana, las bicicletas en la carretera que iba hacia el oriente, hacia El Poblado, hacia la carretera vieja que subía rumbo a Bogotá.
 
 ---
 
-La subida al Alto de Minas desde Laureles tiene veintidós kilómetros.
+La carretera vieja Medellín-Bogotá sale de la ciudad por el oriente y sube sin apuro durante kilómetros — no la autopista del túnel, sino la carretera de antes, la que trepa por los flancos del Valle de Aburrá con las curvas lentas y el asfalto que en los tramos altos todavía tiene el color del camino que existía antes de que los ingenieros decidieran que las montañas se atraviesan mejor por dentro.
 
-No los veintidós kilómetros de un puerto alpino — los veintidós kilómetros de la carretera antioqueña que desde el barrio de Floresta en Medellín sube por el corregimiento de San Cristóbal y después por la carretera de las fincas cafeteras hacia el collado del Minas a 2.380 metros sobre el nivel del mar.
+Desde Laureles hasta el punto donde la carretera empieza a subir en serio: unos doce kilómetros. Después la pendiente se afirma y la carretera se convierte en el tipo de subida que los ciclistas de Medellín conocen como entrenamiento largo — no el puerto bravo de los Alpes sino la subida pausada y constante que en el Valle de Aburrá enseña que la montaña se respeta antes de atacarla.
 
-La pendiente media: 5,8%.
-
-Los primeros seis kilómetros: 4,5%.
-
-El tramo medio entre el kilómetro seis y el dieciséis: 6,2%.
-
-Los últimos seis kilómetros: 7,1%.
-
-El perfil que Hernando había dibujado en cuadernos desde que Santi tenía ocho años y que en su propio cuerpo había subido cientos de veces en los años del club de ciclismo de Laureles.
+El perfil que Hernando había subido cientos de veces en los años del club de ciclismo de Laureles.
 
 El perfil que ahora subía con la bicicleta azul marino y el cuerpo de la remisión completa.
 
@@ -206,11 +198,11 @@ El perfil que ahora subía con la bicicleta azul marino y el cuerpo de la remisi
 
 Los primeros cuatro kilómetros los hicieron juntos al mismo ritmo.
 
-No el ritmo de Santi — el ritmo de Hernando. El ritmo del hombre que en tres años no había subido un puerto en bicicleta y que en el primer kilómetro del Minas pedaleaba con la cadencia de quien reconoce el terreno pero que sabe que el cuerpo no está donde estaba.
+No el ritmo de Santi — el ritmo de Hernando. El ritmo del hombre que en tres años no había subido un puerto en bicicleta y que en el primer kilómetro de la carretera pedaleaba con la cadencia de quien reconoce el terreno pero que sabe que el cuerpo no está donde estaba.
 
 Santi no se adelantó.
 
-No el gesto de esperar al más lento — el gesto del hijo que en la subida del Minas a las seis de la mañana de diciembre entiende que el ritmo correcto es el ritmo del padre, y que el ritmo del padre a seis semanas de la remisión completa es el ritmo exacto que tiene que ser.
+No el gesto de esperar al más lento — el gesto del hijo que en esa subida a las seis de la mañana de noviembre entiende que el ritmo correcto es el ritmo del padre, y que el ritmo del padre a seis meses de la remisión completa es el ritmo exacto que tiene que ser.
 
 En el kilómetro cuatro, Hernando frenó.
 
@@ -218,7 +210,7 @@ En el kilómetro cuatro, Hernando frenó.
 
 Hernando no respondió de inmediato.
 
-Estaba mirando el valle desde el costado de la carretera — el Valle de Aburrá que a cuatro kilómetros de subida ya mostraba la vista que en el Minas aparecía progresivamente: las luces de Medellín todavía encendidas en la oscuridad del amanecer, el perfil de las comunas del oriente, el río Medellín al centro como una línea que dividía la ciudad en dos.
+Estaba mirando el valle desde el costado de la carretera — el Valle de Aburrá que a pocos kilómetros de subida ya mostraba la vista que en esa carretera aparecía progresivamente: las luces de Medellín todavía encendidas en la oscuridad del amanecer, el perfil de las comunas del oriente, el río Medellín al centro como una línea que dividía la ciudad en dos.
 
 La vista de siempre.
 
@@ -228,11 +220,11 @@ La que Hernando había visto cientos de veces desde esta misma carretera.
 
 Santi lo miró.
 
-— Tres años y dos meses — dijo Santi.
+— Tres años y un mes — dijo Santi.
 
-— Tres años y dos meses — confirmó Hernando.
+— Tres años y un mes — confirmó Hernando.
 
-El padre mirando el valle desde el costado de la carretera del Minas con la bicicleta nueva en la mano.
+El padre mirando el valle desde el costado de la carretera con la bicicleta nueva en la mano.
 
 No dijo más.
 
@@ -244,11 +236,11 @@ Pedaleó.
 
 Llegaron al kilómetro dieciséis al alba.
 
-El amanecer en el Alto de Minas — la luz del sol de diciembre que en la cordillera central de Antioquia llegaba desde el oriente con el color rojizo de las seis y cuarenta de la mañana, la luz que iluminaba primero las cimas de los cerros y después bajaba por los flancos hasta llegar a la carretera.
+El amanecer sobre el Valle de Aburrá — la luz del sol de noviembre que llegaba desde el oriente con el color rojizo de las cinco y media de la mañana, la luz que iluminaba primero las cimas de los cerros y después bajaba por los flancos hasta llegar a la carretera.
 
-Hernando se detuvo en el mirador del kilómetro dieciséis.
+Hernando se detuvo en un punto donde la curva abría una vista hacia el occidente.
 
-El mirador que en la carretera del Minas era el punto donde la vista se abría hacia el occidente — los municipios de Ebéjico y Heliconia en la distancia, la cordillera occidental como el telón de fondo, y más abajo el Valle de Aburrá ya completamente visible en la luz del amanecer.
+El valle completo — la cordillera occidental como el telón de fondo, y más abajo las luces de Medellín todavía visibles en la luz del amanecer, el río como un hilo oscuro entre las comunas.
 
 Los dos en el mirador.
 
@@ -260,7 +252,7 @@ Hernando tenía el aliento del esfuerzo — no el aliento del corredor que sale 
 
 El ritmo cardíaco en ciento cuarenta y ocho pulsaciones por minuto.
 
-No el ciento setenta del umbral del corredor profesional — el ciento cuarenta y ocho del hombre de cincuenta y uno años con el historial del tratamiento oncológico y el cuerpo que en la remisión completa estaba aprendiendo de nuevo lo que el esfuerzo le pedía.
+No el ciento setenta del umbral del corredor profesional — el ciento cuarenta y ocho del hombre de cincuenta años con el historial del tratamiento oncológico y el cuerpo que en la remisión completa estaba aprendiendo de nuevo lo que el esfuerzo le pedía.
 
 Santi no lo medía.
 
@@ -272,33 +264,33 @@ Solo la bicicleta y el puerto y el padre al lado.
 
 No llegaron a la cima.
 
-En el kilómetro dieciséis, Hernando miró el perfil que faltaba — los seis kilómetros restantes al 7,1%, el tramo donde el Minas se ponía difícil de verdad — y tomó la decisión que en el ciclismo el corredor que se conoce toma antes de que el cuerpo lo tome por él.
+En el kilómetro dieciséis, Hernando miró la carretera que seguía subiendo — el tramo que faltaba, donde la pendiente se ponía más exigente — y tomó la decisión que en el ciclismo el corredor que se conoce toma antes de que el cuerpo lo tome por él.
 
 — Hasta acá — dijo Hernando.
 
 Santi asintió.
 
-No discutió. No dijo *podés llegar*, no dijo *seis kilómetros más*. El hijo que había aprendido del padre que el ciclismo se corre hasta donde el cuerpo honestamente puede y que el kilómetro dieciséis del Minas el doce de diciembre de 2020 era exactamente hasta donde el cuerpo honestamente podía.
+No discutió. No dijo *podés llegar*, no dijo *seis kilómetros más*. El hijo que había aprendido del padre que el ciclismo se corre hasta donde el cuerpo honestamente puede y que el kilómetro dieciséis ese sábado veintiuno de noviembre era exactamente hasta donde el cuerpo honestamente podía.
 
 — Bajamos — dijo Santi.
 
 Los dos bajaron.
 
-El descenso del Minas a las siete de la mañana — el sol ya arriba, el calor del amanecer de diciembre que en los flancos de la cordillera central tenía la temperatura de los dieciséis grados que entre el viento del descenso se convertían en doce.
+El descenso a las seis y media de la mañana — el sol ya arriba, el calor del amanecer de noviembre que en esa carretera tenía la temperatura de los dieciséis grados que entre el viento del descenso se convertían en doce.
 
 Hernando descendió despacio.
 
-No el descenso del corredor de carrera — el descenso del hombre que en tres años no ha bajado un puerto y que en las curvas del Minas reconoce la carretera de memoria pero que el cuerpo procesa con la precaución de quien sabe que el reconocimiento de memoria y la respuesta del cuerpo son dos cosas que en tres años de ausencia pueden haberse distanciado.
+No el descenso del corredor de carrera — el descenso del hombre que en tres años no ha bajado un puerto y que en las curvas reconoce la carretera de memoria pero que el cuerpo procesa con la precaución de quien sabe que el reconocimiento de memoria y la respuesta del cuerpo son dos cosas que en tres años de ausencia pueden haberse distanciado.
 
 Santi detrás.
 
-El hijo detrás del padre en el descenso del Minas.
+El hijo detrás del padre en el descenso.
 
 La primera vez en la historia del ciclismo de los dos que la posición era esa — el hijo más lento para no adelantarse, el padre marcando el ritmo del descenso.
 
 ---
 
-De vuelta en Laureles, a las ocho y cuarto de la mañana.
+De vuelta en Laureles, a las siete y cuarto de la mañana.
 
 Las bicicletas en el ascensor.
 
@@ -326,7 +318,7 @@ No dijo nada.
 
 Tomó su café.
 
-La luz de diciembre en el apartamento de Laureles — la luz de las ocho de la mañana que entraba por el balcón con el ángulo del sol de diciembre, el ángulo que en el Valle de Aburrá a esa hora era el ángulo de siempre, el que en cuarenta años de mañanas en el apartamento del cuarto piso Hernando conocía sin pensarlo.
+La luz de noviembre en el apartamento de Laureles — la luz de las siete de la mañana que entraba por el balcón con el ángulo del sol de diciembre, el ángulo que en el Valle de Aburrá a esa hora era el ángulo de siempre, el que en cuarenta años de mañanas en el apartamento del cuarto piso Hernando conocía sin pensarlo.
 
 El Valle de Aburrá abajo.
 
@@ -338,23 +330,23 @@ Las montañas de siempre.
 
 El vuelo era el martes.
 
-Ferretti había llamado el viernes — antes de la salida al Minas, antes de la bicicleta nueva, cuando todavía era la semana de los últimos días de Colombia. El túnel de viento estaba reservado para el miércoles tres y el jueves cuatro de enero. Rusconi había procesado los datos de la crono del Ézaro — los 33,7 kilómetros, los splits, la pérdida de 31 segundos en el llano y la recuperación de 15 en la subida — y el modelo de posición nuevo estaba listo para probarse.
+Ferretti había llamado el viernes veintisiete — el día antes del vuelo, cuando todavía era la semana de los últimos días de Colombia. El túnel de viento estaba reservado para el miércoles tres y el jueves cuatro de diciembre. Rusconi había procesado los datos de la crono del Ézaro — los 33,7 kilómetros, los splits, la pérdida de 31 segundos en el llano y la recuperación de 15 en la subida — y el modelo de posición nuevo estaba listo para probarse.
 
-— El martes — había dicho Ferretti. — Vuelo Medellín-Madrid, después Madrid-Ginebra. Rusconi te espera el miércoles a las nueve.
+— El sábado — había dicho Ferretti. — Vuelo Medellín-Madrid, después Madrid-Ginebra. Rusconi te espera el miércoles a las nueve. Descansá el domingo, el lunes y el martes.
 
-El martes era el quince.
+El sábado era el veintiocho.
 
-Tres días después del Minas.
+Una semana después de la primera salida.
 
 ---
 
-El lunes catorce en la noche, Santi preparó la maleta en la habitación de Laureles.
+El viernes veintisiete de noviembre en la noche, Santi preparó la maleta en la habitación de Laureles.
 
 No la maleta del corredor en carrera — esa la hacía el equipo, la dejaban en el hotel la noche antes de la etapa, los peloteros ponían la ropa de carrera en el orden que el corredor pedía. Esta era la maleta del hijo que vuelve a Europa — la ropa de invierno, el kit de entrenamiento, el cuaderno, el cargador del teléfono, las zapatillas de ciclismo de invierno que Rusconi había pedido traer para las primeras sesiones del Veleta.
 
 Hernando estaba en el balcón cuando Santi salió de la habitación.
 
-El cuaderno sobre las rodillas. La noche del catorce de diciembre sobre el valle.
+El cuaderno sobre las rodillas. La noche del veintisiete de noviembre sobre el valle.
 
 Santi se sentó en la silla de al lado — la silla que en el balcón de Laureles era la silla de Carmen pero que a esa hora Carmen había dejado libre para irse a dormir temprano con el tacto de la mujer que entiende cuándo dos personas necesitan el espacio sin que nadie lo pida.
 
@@ -362,7 +354,7 @@ No hablaron de inmediato.
 
 El Valle de Aburrá abajo. Las luces de siempre.
 
-— El miércoles el túnel de viento — dijo Santi.
+— El miércoles el túnel de viento — dijo Santi. — Tres de diciembre.
 
 — Lo sé — dijo Hernando.
 
@@ -372,7 +364,7 @@ Hernando asintió.
 
 El calendario que los dos conocían de memoria — no porque lo hubieran repasado juntos sino porque en los años del profesionalismo de Santi el calendario del equipo era el calendario de la familia, el que Hernando anotaba en el cuaderno con las fechas de las carreras y los campos base y los viajes.
 
-— La próxima vez que venís — dijo Hernando — el Minas ya va a estar diferente.
+— La próxima vez que venís — dijo Hernando — la carretera ya va a estar diferente.
 
 Santi lo miró.
 
@@ -382,7 +374,7 @@ Hernando no respondió de inmediato.
 
 Miró el valle.
 
-— El sábado llego al diecisiete — dijo Hernando. — El siguiente al dieciocho. — Pausa. — Cuando volvés en marzo para el Giro de preparación, calculo que estoy en el veintiuno o veintidós.
+— Mañana llego al diecisiete — dijo Hernando. — Solo, pero llego. — Pausa. — Cuando volvés en marzo para el Giro de preparación, calculo que estoy en el veintiuno o veintidós.
 
 La cima.
 
@@ -390,7 +382,7 @@ Santi no dijo nada.
 
 Hernando tampoco.
 
-El padre que en el cuaderno llevaba los datos del hijo desde 2014 y que en diciembre de 2020 anotaba sus propios datos — la FC, los kilómetros, la pendiente — con la misma precisión del corredor que en el puerto de entrenamiento aprende a leer el cuerpo.
+El padre que en el cuaderno llevaba los datos del hijo desde 2014 y que en noviembre de 2020 anotaba sus propios datos — la FC, los kilómetros, la pendiente — con la misma precisión del corredor que en el puerto de entrenamiento aprende a leer el cuerpo.
 
 — Bien — dijo Santi.
 
@@ -404,13 +396,13 @@ La sonrisa mínima de nuevo — la que en él era el gesto máximo.
 
 Se quedaron en el balcón otro rato sin hablar.
 
-La noche de diciembre sobre Laureles.
+La noche de noviembre sobre Laureles.
 
 Después Santi entró a dormir.
 
 ---
 
-El martes quince a las cinco de la mañana, el taxi esperaba abajo.
+El sábado veintiocho a las cinco de la mañana, el taxi esperaba abajo.
 
 Carmen en la puerta con el café — el ritual de siempre, el café antes del taxi, el que en los viajes de Santi a Europa se repetía desde el primer vuelo a los diecisiete años cuando todavía era el muchacho del FCV juvenil que iba al Tour de l'Avenir y no sabía bien a dónde iba.
 
@@ -442,9 +434,9 @@ La página nueva.
 
 Escribió:
 
-*12 de diciembre de 2020. Alto de Minas. Con Santi.*
+*21 de noviembre de 2020. Carretera Medellín-Bogotá. Con Santi.*
 
-*Bicicleta nueva. Salida 6 AM. Llegada al km 16. Descenso. Regreso 8:15.*
+*Bicicleta nueva. Salida 5 AM. Llegada al km 16 de subida. Descenso. Regreso 7:15.*
 
 *El cuerpo: km 1-6 al 70%. Km 6-12 al 65%. Km 12-16 al 60%. FC máxima: 148.*
 
@@ -452,7 +444,7 @@ Escribió:
 
 Debajo, después de un espacio:
 
-*El Minas tiene 22 kilómetros. Hoy hice 16.*
+*Hoy hice 16 km de subida.*
 
 *El sábado que viene: 17.*
 
@@ -474,7 +466,7 @@ El olor del café antioqueño en la tarde de diciembre.
 
 El olor de siempre.
 
-El mismo de cuando Santi tenía ocho años y bajaban del Minas a las siete de la mañana y el apartamento todavía era el de Floresta y el desayuno era el pan de la panadería de la esquina y el cuaderno de Hernando tenía las primeras páginas del corredor que empezaba a entender lo que el ciclismo podía enseñar.
+El mismo de cuando Santi tenía ocho años y bajaban de la carretera a las siete de la mañana y el apartamento todavía era el de Floresta y el desayuno era el pan de la panadería de la esquina y el cuaderno de Hernando tenía las primeras páginas del corredor que empezaba a entender lo que el ciclismo podía enseñar.
 
 El mismo olor.
 
@@ -486,7 +478,7 @@ Cuarenta y dos años después.
 
 *Escribió:*
 
-*12 de diciembre de 2020.*
+*21 de noviembre de 2020.*
 
 *El papá: km 16 del Minas. Primera salida en bicicleta desde octubre de 2017.*
 
@@ -494,9 +486,9 @@ Cuarenta y dos años después.
 
 *Debajo:*
 
-*La bicicleta del Giro 2019 está en el local de Ospina en Floresta — el recuerdo que no se usa.*
+*La bicicleta del Giro 2019 está en el estante del balcón — el recuerdo que no se usa.*
 
-*La bicicleta nueva está en el balcón de Laureles — el instrumento que se usa.*
+*La bicicleta nueva está apoyada en la pared del comedor — el instrumento que se usa.*
 
 *La diferencia entre los dos es la diferencia entre lo que fue y lo que viene.*
 

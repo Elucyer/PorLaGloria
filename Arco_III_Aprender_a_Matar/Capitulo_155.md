@@ -56,7 +56,7 @@ La cima del Minas. Los veintidós kilómetros completos. El hombre que en diciem
 
 Santi hizo la aritmética del corredor que conoce el puerto de memoria: una hora cuarenta y dos para veintidós kilómetros al 5,8% de media era la velocidad del ciclista recreativo de nivel medio, el que en el club de ciclismo de Laureles habría llegado en el grupo del medio.
 
-Para el hombre de cincuenta y uno años con tres años de tratamiento oncológico en el cuerpo, era exactamente donde tenía que estar.
+Para el hombre de cincuenta años con tres años de tratamiento oncológico en el cuerpo, era exactamente donde tenía que estar.
 
 — Bien — dijo Santi.
 

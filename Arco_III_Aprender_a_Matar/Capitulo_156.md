@@ -18,17 +18,17 @@ Tenía catorce años la primera vez que pasó frente a una de esas casas de Laur
 
 No para él. Eso lo supo siempre, con la misma claridad con que sabía leer una pendiente. Para Carmen, que llevaba treinta años subiendo y bajando escaleras de edificios ajenos. Para Hernando, que después de cuarenta años de bicicleta y dos cánceres todavía vivía en un cuarto piso sin ascensor que en los meses malos de la recuperación había sido una montaña más.
 
-Llamó a Duarte el lunes veintidós, dos días después de aterrizar.
+Llamó a Duarte el sábado veintiuno, el día que bajó del Minas con Hernando.
 
 — Necesito que averigües algo — dijo Santi—. Casas. En Laureles. De las viejas, de dos pisos, con patio. Que estén en venta.
 
 Duarte no preguntó para quién.
 
-El martes, Duarte tenía cuatro direcciones. El miércoles por la mañana, antes de que Carmen y Hernando se despertaran, Santi había ido solo a ver tres. La cuarta la vio desde la calle, sin bajarse del carro, y supo —con la misma certeza rápida y silenciosa con que sabía cuándo un ataque iba a funcionar antes de lanzarlo— que era esa.
+El domingo, Duarte tenía cuatro direcciones. El lunes veintidós por la mañana, antes de que Carmen y Hernando se despertaran, Santi había ido solo a ver tres. La cuarta la vio desde la calle, sin bajarse del carro, y supo —con la misma certeza rápida y silenciosa con que sabía cuándo un ataque iba a funcionar antes de lanzarlo— que era esa.
 
-Llamó al agente desde el carro. Cerró el trato esa misma tarde, por teléfono, con Rusconi de testigo en la otra línea porque Rusconi, además de los datos de potencia, sabía leer un contrato más rápido que cualquier abogado que Santi hubiera conocido.
+Llamó al agente desde el carro. Cerró el trato esa misma tarde — precio, fecha de escritura, condiciones. Patiño recibió el precontrato esa noche y lo llamó a las diez con tres observaciones menores y ningún problema de fondo. La escritura se firmó al día siguiente en la notaría del centro, con Duarte como apoderado porque Santi no iba a aparecer en ninguna notaría de Medellín sin que la foto saliera en El Colombiano antes del mediodía.
 
-El miércoles veinticuatro, Santi le pidió a Duarte que los llevara a los tres.
+El martes veintitrés, Santi le pidió a Duarte que los llevara a los tres.
 
 No dijo a dónde.
 
@@ -120,7 +120,7 @@ Esa noche, en el apartamento que en unos meses iba a dejar de ser el apartamento
 
 Los tres en el balcón.
 
-El Valle de Aburrá abajo, las luces de los cerros, el bus de la 104 doblando la esquina del parque por última vez —o por una de las últimas veces, porque Hernando ya estaba pensando, sin decirlo todavía, en que el bus de la 104 no pasaba por la calle nueva, y en que iba a tener que aprenderse una ruta distinta para ir a donde fuera que un hombre de cincuenta y dos años todavía tuviera que ir.
+El Valle de Aburrá abajo, las luces de los cerros, el bus de la 104 doblando la esquina del parque por última vez —o por una de las últimas veces, porque Hernando ya estaba pensando, sin decirlo todavía, en que el bus de la 104 no pasaba por la calle nueva, y en que iba a tener que aprenderse una ruta distinta para ir a donde fuera que un hombre de cincuenta años todavía tuviera que ir.
 
 — ¿Cuándo nos mudamos? — dijo Carmen.
 
@@ -158,7 +158,7 @@ Hernando se quedó un momento más en el balcón. Sacó el cuaderno del bolsillo
 
 Escribió una sola.
 
-Santi no la vio escribir. La vio meses después, en otra circunstancia, en otra ciudad, cuando el cuaderno por fin pasó de las manos de Hernando a las suyas y Santi pudo leer, en la letra apretada de su padre, la línea que correspondía al miércoles veinticuatro de febrero de 2021:
+Santi no la vio escribir. La vio meses después, en otra circunstancia, en otra ciudad, cuando el cuaderno por fin pasó de las manos de Hernando a las suyas y Santi pudo leer, en la letra apretada de su padre, la línea que correspondía al martes veintitrés de febrero de 2021:
 
 *La casa tiene un níspero. No lo sembré yo. No lo sembró Carmen. Alguien que no conocemos hizo algo que ahora es nuestro. Eso es lo que el muchacho entendió antes que nosotros: que las cosas buenas casi nunca las siembra uno mismo.*
 

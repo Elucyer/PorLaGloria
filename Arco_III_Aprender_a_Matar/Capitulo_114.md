@@ -144,7 +144,7 @@ Y ahora: campeón del mundo, campeón del Giro, ganador del Lombardia, veinte a�
 
 Hernando había esperado sentir algo diferente con esa frase. No. Era el mismo hombre de siempre, con el mismo café, el mismo balcón, la misma ciudad abajo. La frase cambiaba lo que venía después — no lo que era ahora.
 
-Lo que era ahora era un hombre de sesenta y un años en un balcón de Laureles a las cinco de la mañana viendo al hijo salir a entrenar.
+Lo que era ahora era un hombre de cincuenta años en un balcón de Laureles a las cinco de la mañana viendo al hijo salir a entrenar.
 
 Eso era suficiente.
 

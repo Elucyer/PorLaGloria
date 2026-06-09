@@ -42,7 +42,7 @@ Claro Colombia — la empresa de telecomunicaciones que en Colombia tenía el me
 
 — Quitalo.
 
-— Ya lo pedí. Están de acuerdo. — Duarte cerró la carpeta. — ¿Lo firmamos?
+— Ya lo pedí. Están de acuerdo. — Duarte cerró la carpeta. — Patiño revisó el contrato la semana pasada. Dice que está limpio. ¿Lo firmamos?
 
 — Sí.
 

@@ -126,6 +126,11 @@ Tono: el más humano de todos. La épica se vuelve interior.
 
 **Mariana López** — La fotógrafa. Nacida en Bogotá, 28 años cuando conoce a Santi. Lleva cuatro años documentando territorios colombianos invisibles cuando llega a San José de la Montaña sin saber que va a cambiar su propia historia. No sabe nada de ciclismo. Eso es exactamente lo que Santi necesita.
 
+**Equipo personal de Santi (desde Arco II/III en adelante):**
+- **Duarte** — Representante y manager. Colombiano. Cierra relaciones comerciales, coordina logística, actúa como apoderado en firmas cuando Santi no puede o no quiere aparecer. La figura que conecta el mundo del ciclismo profesional con la vida civil de Santi.
+- **Diego Patiño** — Abogado. Radicado en El Poblado, Medellín. Revisa y blinda todos los contratos. Entra en el Arco II (contrato Bancolombia, 2018). La lógica: Duarte cierra relaciones, Patiño protege los términos.
+- **Andrés Salcedo** — Asesor financiero y fiscal. Colombiano radicado en Ginebra desde los 2000. Especializado en fiscalidad para deportistas con residencia suiza. Duarte lo incorpora en 2019 cuando Santi se vuelve residente fiscal en Suiza y los contratos superan lo que Patiño puede cubrir desde Colombia. No sabe de ciclismo. Solo de números. Eso a Santi le resulta descansado.
+
 ---
 
 ### VII. EL ROMANCE — VALENTINA Y SANTI

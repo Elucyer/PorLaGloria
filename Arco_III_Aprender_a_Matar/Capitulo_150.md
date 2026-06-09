@@ -12,7 +12,7 @@ El túnel tenía capacidad para velocidades de hasta cien kilómetros por hora s
 
 Para el trabajo de posición en crono, Rusconi usaba cuarenta y cinco — la velocidad de crono en terreno llano del corredor profesional, la velocidad que los datos de las últimas tres temporadas de Santi mostraban como su velocidad de crucero en los tramos planos de las contrarrelojes.
 
-El miércoles tres de enero de 2021, a las nueve de la mañana, Santi entró al sótano del edificio B.
+El miércoles tres de diciembre de 2020, a las nueve de la mañana, Santi entró al sótano del edificio B.
 
 ---
 
@@ -162,7 +162,7 @@ Veinte segundos que en la GC de un Tour se volvían treinta porque los veinte se
 
 El ciclismo como aritmética.
 
-La aritmética como el lenguaje del corredor que quiere ganar y que en el sótano del CAR de Ginebra en enero de 2021 estaba leyendo el idioma correcto.
+La aritmética como el lenguaje del corredor que quiere ganar y que en el sótano del CAR de Ginebra en diciembre de 2020 estaba leyendo el idioma correcto.
 
 — El Veleta — dijo Santi. — Ferretti dijo campo base el veinte.
 
@@ -182,7 +182,7 @@ El instrumento que en las contrarrelojes le costaba la GC — el instrumento que
 
 ---
 
-*En Laureles, el miércoles tres de enero.*
+*En Laureles, el miércoles tres de diciembre.*
 
 *Hernando en el balcón con el cuaderno.*
 
@@ -190,7 +190,7 @@ El instrumento que en las contrarrelojes le costaba la GC — el instrumento que
 
 *Escribió:*
 
-*3 de enero de 2021. Túnel de viento, Ginebra. Rusconi.*
+*3 de diciembre de 2020. Túnel de viento, Ginebra. Rusconi.*
 
 *El CdA de partida: 0,231. El objetivo al Tour: 0,218.*
 
@@ -206,22 +206,22 @@ El instrumento que en las contrarrelojes le costaba la GC — el instrumento que
 
 *Cerró el cuaderno.*
 
-*El Valle de Aburrá en la noche de enero.*
+*El Valle de Aburrá en la noche de diciembre.*
 
-*El sábado siguiente, el kilómetro diecisiete del Minas.*
+*El sábado siguiente, el kilómetro dieciocho de la carretera.*
 
 *Las dos cosas al mismo tiempo.*
 
 ---
 
-El sábado diecisiete de enero, Hernando llegó al kilómetro diecisiete.
+El sábado diecisiete de enero, Hernando llegó al kilómetro veintiuno.
 
 No envió mensaje.
 
 Esa tarde, en el balcón, abrió el cuaderno y escribió una sola línea:
 
-*17 de enero. Alto de Minas. Km 17.*
+*17 de enero. Carretera Medellín-Bogotá. Km 21.*
 
-*La semana que viene: 18.*
+*La semana que viene: 22.*
 
 ---

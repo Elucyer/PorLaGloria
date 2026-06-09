@@ -192,7 +192,7 @@ Patiño tomó el teléfono.
 
 — Ochocientos mil euros anuales — dijo Patiño. — Cuatro años. Cláusula de salida por ambas partes en el año dos, con penalización de seis meses. Y una cláusula de rendimiento: si ganás el Tour 2021 o 2022, el año siguiente sube a un millón. Más las activaciones, que se pagan por separado.
 
-Diego Patiño — el abogado de El Poblado, el consultorio jurídico de carpetas y escritorio oscuro donde Santi había firmado el contrato de Bancolombia en 2018, el hombre que desde entonces manejaba los contratos mientras Duarte manejaba el negocio. La lógica que los dos habían perfeccionado en años: Patiño blindaba los términos, Duarte cerraba las relaciones. Santi manejaba la bicicleta.
+Diego Patiño — el abogado de El Poblado, el consultorio jurídico de carpetas y escritorio oscuro donde Santi había firmado el contrato de Bancolombia en 2018, el hombre que desde entonces manejaba los contratos mientras Duarte manejaba el negocio y Salcedo los números. La lógica que los tres habían perfeccionado en años: Patiño blindaba los términos, Duarte cerraba las relaciones, Salcedo calculaba el impacto real de cada decisión. Santi manejaba la bicicleta.
 
 — ¿Cuándo hay que decidir? — dijo Santi.
 
@@ -234,7 +234,11 @@ El Veleta en la ventana del carro, la nieve en los flancos, la tarde de enero ca
 
 ---
 
-El cierre del año 2020, que Duarte presentó en la videoconferencia del lunes veinticinco junto con los términos del acuerdo personal, era el documento que Santi nunca pedía pero que Duarte preparaba cada enero con la precisión del contador que sabe que el corredor necesita entender el valor de lo que construyó.
+El cierre del año 2020 lo presentó Andrés Salcedo en la videoconferencia del lunes veinticinco, diez minutos antes de que Duarte pasara a los términos del acuerdo personal.
+
+Salcedo era el asesor financiero que Duarte había encontrado en 2019, cuando los contratos de Santi empezaron a tener implicaciones fiscales que Patiño —abogado de Medellín, excelente en lo suyo— no podía cubrir desde Colombia. Colombiano, cuarenta y cuatro años, quince en Ginebra, especializado en fiscalidad para deportistas con residencia suiza. No sabía de ciclismo. Solo de números. Eso a Santi, que en las reuniones de Duarte llevaba diez años escuchando a personas que confundían lo que hacía con lo que ganaba, le resultaba descansado.
+
+El documento que Salcedo compartía pantalla era el documento que Santi nunca pedía pero que Salcedo preparaba cada enero con la precisión del que sabe que el corredor necesita entender el valor de lo que construyó.
 
 **Ingresos totales 2020 — Santiago Reyes Cardona:**
 
@@ -258,7 +262,7 @@ La cláusula de rendimiento que Duarte había negociado en la renovación de ago
 
 *Total bruto 2020:* **3.160.000 euros.**
 
-Deducciones: impuestos suizos (Santi era residente fiscal en Suiza desde 2019), comisión de gestión de Duarte, honorarios de Patiño, costos de representación y una partida fija mensual que Santi había pedido incluir desde 2019 y que Duarte anotó sin preguntar: apoyo al local de Ospina en Floresta — el alquiler del local de la calle 58, el equipamiento, los salarios de los dos mecánicos del taller. Dos mil euros al mes. Veinticuatro mil al año.
+Deducciones: impuestos suizos (Santi era residente fiscal en Suiza desde 2019, Salcedo había negociado la tasa efectiva con la autoridad cantonal de Ginebra), comisión de gestión de Duarte, honorarios de Patiño, honorarios de Salcedo, costos de representación y una partida fija mensual que Santi había pedido incluir desde 2019 y que Salcedo anotó sin preguntar: apoyo al local de Ospina en Floresta — el alquiler del local de la calle 58, el equipamiento, los salarios de los dos mecánicos del taller. Dos mil euros al mes. Veinticuatro mil al año.
 
 *Total neto 2020:* **2.050.000 euros.**
 

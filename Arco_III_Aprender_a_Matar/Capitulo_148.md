@@ -94,13 +94,13 @@ El Valle de Aburrá abajo en la mañana de noviembre con las nubes que en esa é
 
 ---
 
-Los días previos a la cita del Pablo Tobón fueron los días de la espera que en la familia había aprendido a llevar sin nombrarse demasiado.
+Los días previos a la cita del Pablo Tobón fueron los días de la espera tranquila — no la espera angustiada de los primeros años, la de los ciclos de quimioterapia y las tomografías que podían decir cualquier cosa, sino la espera del seguimiento semestral: la cita de rutina del hombre en remisión completa que cada seis meses va al oncólogo a confirmar que los números siguen donde tienen que estar.
 
-No la espera angustiada — la espera de quien ha tenido tres años de citas trimestrales y que en cada una ha aprendido que el número del oncólogo es el número real y que la ansiedad previa es energía gastada en algo que el número va a definir de todas formas.
+Desde mayo — desde la cita con el doctor Gustavo donde la remisión completa había quedado establecida — el protocolo había cambiado: ya no trimestral, sino semestral. Esta era la primera cita semestral.
 
 Carmen cocinaba.
 
-Hernando salía a caminar por el parque en las mañanas — el hombre que desde la remisión parcial del año anterior había incorporado la caminata de cuarenta minutos como el ejercicio que el oncólogo había aprobado, la actividad física moderada que el cuerpo post-quimioterapia podía sostener sin sobrecargar el sistema.
+Hernando salía a caminar por el parque en las mañanas — el hombre que desde la remisión completa de mayo había incorporado la caminata de cuarenta minutos como el ejercicio que el oncólogo había aprobado, la actividad física moderada que el cuerpo post-quimioterapia podía sostener sin sobrecargar el sistema.
 
 Santi acompañó la caminata el jueves doce.
 
@@ -134,11 +134,11 @@ Hernando, Carmen y Santi.
 
 Los tres en las sillas de espera con las mascarillas puestas — el protocolo del Pablo Tobón que en noviembre de 2020 seguía siendo estricto: mascarilla obligatoria, gel antibacterial en la entrada, la señalización del metro y medio de distancia entre personas que en la sala de espera de oncología los tres cumplían aunque fueran familia.
 
-El Dr. Alejandro Restrepo — el oncólogo que desde 2018 había llevado el caso de Hernando — llamó a la consulta a las diez y veinte.
+El doctor Gustavo — el oncólogo que desde 2018 había llevado el caso de Hernando — llamó a la consulta a las diez y veinte.
 
 Los tres entraron.
 
-La consulta del Dr. Restrepo era la consulta de siempre — el escritorio, el portátil con la historia clínica, la silla del paciente, las dos sillas adicionales para los acompañantes. En la pared: un cuadro de las montañas del suroeste antioqueño que alguien había puesto hace años y que nadie había cambiado.
+La consulta del doctor Gustavo era la consulta de siempre — el escritorio, el portátil con la historia clínica, la silla del paciente, las dos sillas adicionales para los acompañantes. En la pared: un cuadro de las montañas del suroeste antioqueño que alguien había puesto hace años y que nadie había cambiado.
 
 Hernando se sentó en la silla del paciente.
 
@@ -146,59 +146,27 @@ Carmen a la derecha.
 
 Santi a la izquierda.
 
-El Dr. Restrepo abrió el portátil.
+El médico abrió el portátil.
 
-— Hernando — dijo el médico. — Los resultados de la tomografía del viernes y los análisis de sangre. — Pausa. — Voy a ser directo como siempre.
+— Hernando — dijo el doctor Gustavo. — Los resultados de la tomografía del viernes y los análisis de sangre del jueves. — Pausa. — Los marcadores tumorales siguen en rango normal. La tomografía no muestra actividad tumoral. La remisión se mantiene.
 
-— Como siempre — dijo Hernando.
-
-El médico miró la pantalla.
-
-Dos segundos.
-
-Tres.
-
-— Los marcadores tumorales están en rango normal — dijo el Dr. Restrepo. — La tomografía no muestra actividad tumoral. — Pausa. — Hernando. Esto es una remisión completa.
-
-El silencio de la consulta del Pablo Tobón.
-
-No el silencio de la sala de espera — el silencio de los cuatro en la consulta donde el médico acaba de decir las dos palabras que en tres años de tratamiento la familia había escuchado en versiones parciales: *reducción*, *controlada*, *estable*.
-
-Nunca *completa*.
-
-*Remisión completa.*
-
-Carmen puso la mano sobre la mano de Hernando.
-
-Hernando no se movió.
-
-Miraba la pantalla del portátil del médico como si los datos pudieran decir algo diferente a lo que el médico acababa de decir.
-
-— ¿Qué significa en términos prácticos? — dijo Hernando.
-
-El Dr. Restrepo lo miró.
-
-— Significa que no hay evidencia de enfermedad activa en este momento — dijo el médico. — No es una cura garantizada — el protocolo de seguimiento continúa, una cita cada seis meses en lugar de cada tres. — Pausa. — Pero en este momento, el tumor que diagnosticamos en 2018 no está activo. Las células tumorales no son detectables en los análisis.
+No era la noticia nueva — era la confirmación de lo que desde mayo se sabía. Pero la confirmación en oncología tiene su propio peso: la remisión que se sostiene seis meses después no es la misma que la remisión recién anunciada.
 
 Hernando asintió.
 
-Procesó.
+— ¿El siguiente control? — dijo Hernando.
 
-La velocidad del hombre que en cuarenta años de ciclismo había aprendido a procesar la información en tiempo real — el dato del corredor que en el kilómetro veinte del puerto cambia el plan porque el cuerpo dijo algo diferente.
+— En mayo — dijo el médico. — Si todo sigue igual, en mayo hacemos la tercera revisión semestral. — Pausa. — Hernando. Tengo algo que quería discutir hoy, aprovechando que está Santi.
 
-El dato de hoy: *remisión completa.*
+Los tres lo miraron.
 
-— ¿Actividad física? — dijo Hernando.
-
-El médico lo miró con la expresión del médico que ya conoce la pregunta antes de que el paciente la formule.
-
-— Actividad moderada — dijo el Dr. Restrepo. — La caminata que viene haciendo: perfecta. Si quiere incrementar, puede agregar bicicleta de baja intensidad. No esfuerzo máximo, no puertos de alta montaña. Pero bicicleta: sí.
+— La caminata que viene haciendo está bien — dijo el doctor Gustavo. — El cuerpo la tolera bien, los indicadores cardiovasculares están dentro del rango esperado para su historial. — Miró a Hernando. — Creo que puede incrementar la actividad. Bicicleta de baja intensidad. No esfuerzo máximo, no puertos de alta montaña por ahora. Pero bicicleta: sí.
 
 Hernando lo miró.
 
 — ¿Bicicleta? — dijo Hernando.
 
-— Bicicleta — confirmó el médico.
+— Bicicleta — confirmó el médico. — Con criterio. Empiece despacio. El cuerpo le va a decir dónde está el límite.
 
 ---
 
@@ -228,7 +196,7 @@ No dijo nada.
 
 Pero en el cuaderno — que no estaba en la mochila del Pablo Tobón sino en el apartamento de Laureles — ya estaba la línea que iba a escribir esa noche:
 
-*17 de noviembre de 2020. Remisión completa.*
+*17 de noviembre de 2020. Seguimiento semestral: remisión se mantiene. Bicicleta: sí.*
 
 ---
 
@@ -244,7 +212,9 @@ No los números del ciclismo — algo diferente:
 
 *17 de noviembre de 2020.*
 
-*Remisión completa. Dr. Restrepo. Pablo Tobón Uribe.*
+*Seguimiento semestral. Doctor Gustavo. Pablo Tobón Uribe.*
+
+*Remisión: se mantiene. Próxima cita: mayo 2021.*
 
 *Bicicleta: sí.*
 
@@ -256,7 +226,7 @@ Debajo, después de un espacio:
 
 *No sé todavía qué es eso diferente.*
 
-*Pero el diecisiete de noviembre de dos mil veinte es el primer día desde el diagnóstico de 2018 donde lo puedo pensar.*
+*Pero el diecisiete de noviembre de dos mil veinte es el primer día en que el médico dijo que podía subirme a una.*
 
 Cerró el cuaderno.
 
@@ -276,7 +246,7 @@ Esa noche, Santi llamó a Ferretti.
 
 No para hablar del calendario — para decir una sola cosa:
 
-— El papá: remisión completa.
+— El papá: la remisión se mantiene. El médico le autorizó la bicicleta.
 
 Ferretti tardó.
 
@@ -306,7 +276,7 @@ Abrió el cuaderno.
 
 Escribió:
 
-*17 de noviembre de 2020. Papá: remisión completa.*
+*17 de noviembre de 2020. Papá: seguimiento — remisión se mantiene. Bicicleta autorizada.*
 
 *El invierno empieza el 1 de diciembre.*
 

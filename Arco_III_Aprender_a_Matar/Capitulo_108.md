@@ -192,7 +192,7 @@ Los dos miraron a Santi.
 
 Era la economía de los Reyes en las noches grandes. Lo que necesitaba decirse se decía. Lo que no necesitaba no llenaba el silencio. Los cohetes sobre los cerros del oriente. El Valle de Aburrá con su millón y pico de luces en la noche del año nuevo. La ciudad que había aprendido, en los años noventa y en los dos mil y en los diez y en los veinte, que celebrar es también una forma de insistencia.
 
-Hernando tenía sesenta y un años en diciembre de dos mil diecinueve.
+Hernando tenía cuarenta y nueve años en diciembre de dos mil diecinueve.
 
 El pelo más corto que en los años del gregario activo — el pelo que la quimioterapia había adelgazado y que volvía lento, con la textura diferente del pelo que ha salido dos veces. Las manos sobre la barandilla del balcón: las manos del ciclista que ya no montaba en bicicleta, que en cuarenta años de carretera habían agarrado manillares en el frío de los puertos antioqueños y que ahora tenían la firmeza del hombre que en dos años de tratamiento no ha perdido el tipo de fuerza que los tratamientos no pueden quitar.
 
