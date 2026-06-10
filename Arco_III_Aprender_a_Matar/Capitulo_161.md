@@ -28,7 +28,7 @@ Rusconi cerró el análisis y abrió otro archivo.
 
 Santi la miró.
 
-Pogačar encabezaba la lista — el dorsal uno del campeón del Tour en el calendario de las Ardenas. El esloveno que en el año anterior había ganado la Flèche Wallonne el miércoles antes del Lieja y el Lieja el domingo, los dos en la misma semana, con la facilidad del corredor que en la primavera de 2020 había encontrado que las clásicas ardenas eran su territorio natural además de los Grand Tours.
+Pogačar encabezaba la lista — el dorsal uno del subcampeón del Tour en el calendario de las Ardenas. El esloveno que en el año anterior había ganado la Flèche Wallonne el miércoles antes del Lieja y había llegado segundo en el Lieja el domingo, los dos en la misma semana, con la facilidad del corredor que en la primavera de 2020 había encontrado que las clásicas ardenas eran su territorio natural además de los Grand Tours.
 
 En 2021, Pogačar venía con la misma forma que en la Strade — la Flèche Wallonne del miércoles la había ganado por siete segundos sobre Alaphilippe — y con la motivación del corredor que sabe que el Lieja del año anterior era el inicio de algo y que el Lieja de este año era la confirmación o la negación de eso.
 

@@ -68,7 +68,7 @@ La salida a las diez de la mañana desde el Quai des Ardennes de Liège.
 
 El pelotón de ciento ochenta y cuatro corredores en el malecón del Mosa — el río detrás, las nubes de las Ardenas adelante, el ruido del pelotón de clásica que en las primeras posiciones tenía todos los nombres del ciclismo europeo.
 
-Pogačar en la primera fila — el dorsal uno, el campeón del Tour, el corredor que en 2021 llegaba al Lieja con la forma de los años buenos, con la Flèche Wallonne ganada tres días antes, con el perfil del corredor que en la semana de Ardenas no tenía un punto débil visible.
+Pogačar en la primera fila — el dorsal uno, el subcampeón del Tour, el corredor que en 2021 llegaba al Lieja con la forma de los años buenos, con la Flèche Wallonne ganada tres días antes, con el perfil del corredor que en la semana de Ardenas no tenía un punto débil visible.
 
 Santi lo vio desde diez metros antes de que la carrera arrancara.
 

@@ -18,7 +18,7 @@ El presentador llamó los dorsales por orden.
 
 Dorsal uno: Tadej Pogačar.
 
-Santi lo vio desde quince metros — el esloveno del UAE Team Emirates que en el Palais de los Congres de Nice el pasado septiembre había cruzado la línea del Tour de France con dos minutos y cincuenta y nueve segundos sobre Roglič, con el maillot amarillo puesto encima del maillot de la crono del día, el gesto del campeón que no calculó que iba a ganar hasta que los números del cronómetro le dijeron que ya había ganado.
+Santi lo vio desde quince metros — el esloveno del UAE Team Emirates que en el Palais de los Congrès de Niza el pasado septiembre había cruzado la línea del Tour de France a cuarenta y cinco segundos de Santi, segundo en la general, con la cara del corredor de veintiún años que sabía que había llegado más cerca de lo que nadie había previsto y que el año siguiente iba a estar más cerca todavía.
 
 Pogačar firmó.
 

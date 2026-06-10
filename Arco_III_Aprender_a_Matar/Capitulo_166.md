@@ -282,7 +282,7 @@ Y el Tour era tres semanas.
 
 No un día.
 
-La diferencia entre el Lieja y el Tour era que en el Tour el error no se borraba con la victoria del día siguiente porque en el Tour no había día siguiente — había veintiún etapas y la clasificación general y Pogačar que en los Grand Tours era el corredor que había ganado el Tour con veinte años y que en el segundo iba a querer demostrar que la primera vez no había sido el límite sino el principio.
+La diferencia entre el Lieja y el Tour era que en el Tour el error no se borraba con la victoria del día siguiente porque en el Tour no había día siguiente — había veintiún etapas y la clasificación general y Pogačar que en los Grand Tours era el corredor que había llegado segundo en el Tour con veintiún años, a cuarenta y cinco segundos, y que en el segundo iba a querer demostrar que la primera vez no había sido el límite sino el principio.
 
 Santi apagó la luz.
 

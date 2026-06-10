@@ -44,7 +44,7 @@ Sin atacar. Sin intentar nada. El corredor de GC que en las etapas de sprint cus
 
 Pero observó.
 
-Pogačar estaba en la carrera con cuatro corredores del UAE — el gregario italiano, el asistente de montaña eslovaco, el rodador belga que en el llano ponía el tren. El equipo completo del campeón del Tour para una carrera de preparación. Lo que eso decía sobre cómo Pogačar tomaba el Tirreno-Adriatico: no como preparación, sino como objetivo.
+Pogačar estaba en la carrera con cuatro corredores del UAE — el gregario italiano, el asistente de montaña eslovaco, el rodador belga que en el llano ponía el tren. El equipo completo del subcampeón del Tour para una carrera de preparación. Lo que eso decía sobre cómo Pogačar tomaba el Tirreno-Adriatico: no como preparación, sino como objetivo.
 
 Santi lo registró.
 
@@ -384,7 +384,7 @@ GC final del Tirreno-Adriatico 2021: Pogačar 1.º, Santi 2.º a seis segundos y
 
 En el podio de San Benedetto del Tronto, los dos juntos en el primer y segundo escalón — Pogačar con el trofeo, Santi con el ramo.
 
-La fotografía que los diarios del ciclismo iban a usar: los dos, el esloveno y el colombiano, el campeón del Tour con maillot del UAE y el subcampeón con el maillot del FCV, mirando al fotógrafo desde el podio de una carrera de preparación de marzo.
+La fotografía que los diarios del ciclismo iban a usar: los dos, el esloveno y el colombiano, el subcampeón del Tour con maillot del UAE y el campeón con el maillot del FCV, mirando al fotógrafo desde el podio de una carrera de preparación de marzo.
 
 Debajo de la fotografía, los titulares iban a decir lo que los titulares decían cuando Santi y Pogačar aparecían juntos en el resultado de una carrera: que el Tour de France del verano iba a ser entre ellos dos, que el resto del pelotón era fondo, que la guerra había empezado.
 
