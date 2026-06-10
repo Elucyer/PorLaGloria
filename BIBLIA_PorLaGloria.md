@@ -141,7 +141,7 @@ Tono: el más humano de todos. La épica se vuelve interior.
 
 **Tadej Pogačar** — El rival de la década. Esloveno, UAE Team Emirates. Declaró en el podcast ep. 5 (jun 2020): *"Santi es el corredor que me hace tener más miedo de perder."* 2.º en el Tour 2020 (a 45" de Santi). 2.º en el Lieja 2021 (a 4 centésimas). 1.º en el Tour 2021 (su primer Grand Tour). En la novela, la rivalidad Santi-Pogačar es la rivalidad de la década: ninguno puede correr sin pensar en el otro.
 
-**Jonas Vingegaard** — El tercer tiburón. Danés, Jumbo-Visma. 2.º en el Critérium du Dauphiné 2021. Ganó el Tour 2022 derrotando a Santi en la CRI final por 8 segundos. Apareció en el radar de Santi en el campo base de Sierra Nevada (enero 2021) siguiéndolo en el Veleta sin despegarse. Invitado al podcast ep. 9 (jun 2021) — *"en la ventana del minuto 20 al 30 de una subida larga, ninguno sabe cuánto tiene. Ahí hay espacio para un tercero."*
+**Jonas Vingegaard** — El tercer tiburón. Danés, Jumbo-Visma. 2.º en el Critérium du Dauphiné 2021. Ganó el Tour 2022 derrotando a Santi en la CRI final por 8 segundos. Apareció en el radar de Santi en el campo base de Sierra Nevada (enero 2021) siguiéndolo en el Veleta sin despegarse. 3.º en el Tour 2021 — el podio de tres, separados por segundos, con el resto del pelotón a más de 8 minutos.
 
 **Wout van Aert** — Rival en las clásicas. Ganó el Amstel 2021. 2.º en la Strade Bianche 2021 (a 11" de Santi). Presente en el episodio 5 del podcast (Pogačar lo trajo sin avisar).
 
@@ -171,8 +171,7 @@ Creado por Julián Estrada en abril de 2020 durante el confinamiento de COVID. S
 - **Ep. 6** (oct 2020): Eddy Merckx — *"que no sea nunca más catorce segundos"*
 - **Ep. 7** (feb 2021): Miguel Indurain — 1,4M reproducciones en 48h. Indurain recuerda a Hernando Reyes como gregario del RCN 1994.
 - **Ep. 8** (4 jun 2021): Alberto Contador — grabado 4 días después del Giro 2021. El doble Giro-Tour. *"El plan dice cuándo es posible. El cuerpo dice cuándo es."*
-- **Ep. 9** (17 jun 2021): Jonas Vingegaard — *"en la ventana del minuto 20 al 30 ninguno sabe cuánto tiene. Ahí hay espacio para un tercero."*
-- **Ep. 10** (21 jun 2021): Pogačar (segunda visita, solicitada por él) — *"el rango de Santi es más estrecho que el mío. No mucho. Pero más estrecho."* 720K reproducciones en 12h.
+- **Ep. 9 y 10**: pendientes — se grabarán después del Tour 2021, con más material sobre el podio de tres (Santi, Pogačar, Vingegaard).
 
 ---
 

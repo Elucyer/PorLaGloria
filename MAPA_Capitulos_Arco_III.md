@@ -189,9 +189,9 @@
 | 167 | Turín — el Giro empieza | E1 CRI 8,6 km | ⬜ | El doblete empieza aquí. CRI de apertura — Ganna gana (real), Santi 4" sobre el objetivo. Los dos colombianos en el mismo Giro: Bernal (Ineos) como el gran rival. Ferretti en el coche: "ocho días, diez días, doce días — luego el Zoncolan decide." |
 | 168 | Primera semana | E1–E7 | ⬜ | Yates como corredor de Giro. Bernal tranquilo — el Ineos protege al líder sin mostrarlo. Santi y Bernal se observan sin haber coincidido directamente todavía. En la E5 (primera llegada en alto) Santi llega 3.º a 9" de Bernal. El dato dice que están parejos. |
 | 169 | El Zoncolan | E14 | ⬜ | 10 km al 11,9%. Bernal ataca en el km 4. **Santi responde y aguanta.** Yates cede en el km 7. Bernal intenta de nuevo en el km 9 — Santi cierra. Los dos llegan juntos. El pelotón a 1:34. GC: Santi y Bernal separados por segundos. |
-| 170 | Los Dolomitas | E16–E17 | ⬜ | E16 Passo Giau (16 km al 9,3%): **Santi ataca en el km 12. Bernal responde pero cede 8m en los últimos 4 km.** Santi gana la etapa. Ventaja en GC: 18". E17 Pordoi+Bondone: Santi sostiene la ventaja. El Giro está en sus manos. |
-| 171 | Los últimos días | E18–E20 | ⬜ | Bernal intenta en dos etapas de montaña menores. Santi no entra en pánico — administra la ventaja de 18" con el criterio del corredor que ya ganó el Tour. Yates gana una etapa de escapada. |
-| 172 | CRI Milán — E21 | E21 CRI 30,3 km | ⬜ | La crono final. CdA en 0,224 — 8" de déficit sobre el mejor cronometrador. Santi llega a Milán con 18" de ventaja. Sale antes de Bernal. **Bernal recupera 6" en la crono. Santi GANA el Giro por 12".** Maglia rosa en Milán. Los dos colombianos en el podio. Hernando en Laureles con el café de las seis. |
+| 170 | Los Dolomitas | E16–E17 | ⬜ | E16 Passo Giau (16 km al 9,3%): **Santi ataca en el km 12. Bernal responde pero cede 1:40 en los últimos 4 km.** Santi gana la etapa. Ventaja en GC: 1:55. E17 Pordoi+Bondone: **Santi ataca de nuevo en el Bondone — Bernal ya no responde.** Cede otro minuto. Ventaja en GC: 2:55. La diferencia con el resto del pelotón empieza a notarse — Yates 3.º a más de cuatro minutos. El Giro está decidido. |
+| 171 | Los últimos días | E18–E20 | ⬜ | Bernal ya no ataca — administra el podio. Santi rueda sin presión, protegiendo la ventaja de 2:55 con el criterio del corredor que ya ganó el Tour. Yates gana una etapa de escapada. |
+| 172 | CRI Milán — E21 | E21 CRI 30,3 km | ⬜ | La crono final, sin presión real sobre el resultado. CdA en 0,224 — 8" de déficit sobre el mejor cronometrador. Santi llega a Milán con 2:55 de ventaja. **Bernal recupera apenas 7" en la crono — no hay nada que jugarse.** Santi GANA el Giro por **2:48**, casi tres minutos. Maglia rosa en Milán. Los dos colombianos en el podio — pero por primera vez en el arco, la diferencia con Bernal ya no se mide en segundos. Hernando en Laureles con el café de las seis. |
 | 173 | La transición al Tour | Jun 2021 | ⬜ | Doblete conseguido a medias: el Giro es suyo. Tres semanas hasta el Tour. El cuerpo responde — no hay crisis. Ferretti: "el Giro se corrió con cabeza. Los Juegos también son posibles." Cuaderno de Santi: *"Milán. El Tour en 26 días."* |
 
 ---
@@ -211,10 +211,24 @@
 | 178 | Col du Portet | E17 (16 km al 8,7%) | ⬜ | **Santi ataca en el km 8.** Abre 12". Pogačar cierra en 6 pedaladas. Vingegaard cierra detrás. Los tres juntos en la cima. Santi construye los 12" que necesita sobre Pogačar acumulando en todos los finales de montaña. GC: Santi +3" sobre Pogačar al entrar en la última semana. |
 | 179 | Luz-Ardiden | E18 (13 km al 7,4%) | ⬜ | **Santi gana la etapa. Ventaja sobre Pogačar: +12".** Exactamente lo que el plan de Rusconi proyectaba. Santi llega a la E20 con los 12 segundos que necesita para que la crono sea manejable. |
 | 180 | La crono de Libourne | E20 (30,8 km CRI ondulado) | ⬜ | **Santi sale 2 minutos antes de Pogačar.** Los splits cierran km a km. CdA 0,218 en terreno ondulado: 12" de déficit proyectado. Km 25: Pogačar ha recuperado 9". Km 30: 11". Cruce de meta: **Pogačar supera a Santi por 14".** GC: Pogačar gana el Tour 2021 por 2". |
-| 181 | Los Campos Elíseos | E21 | ⬜ | Pogačar 1.º. **Santi 2.º.** Vingegaard 3.º. Los tres en el podio del Tour 2021. Primera vez el triángulo completo visible. Ferretti a Santi: "dos segundos. Fue la crono. Siempre la crono." |
+| 181 | Los Campos Elíseos | E21 | ⬜ | Pogačar 1.º. **Santi 2.º (+2").** Vingegaard 3.º. **El 4.º de la GC está a más de 8 minutos** — Pogačar, Santi y Vingegaard se separan del resto del pelotón en un bloque propio. Los tres en el podio del Tour 2021. Primera vez el triángulo completo visible. Prensa mundial: los tres fenómenos que van a dominar el ciclismo la próxima década. Ferretti a Santi: "dos segundos. Fue la crono. Siempre la crono." |
 | 182 | El cuaderno — París | Noche en París | ⬜ | Santi anota. Giro + 2.º Tour = el doblete casi completo. **Vingegaard 3.º en el Tour con 24 años — el triángulo tiene tres vértices iguales en montaña, desiguales en crono.** Cuaderno: *"Pogačar: 0,201. Vingegaard: 0,207. Yo: 0,218. El invierno."* |
 | 183 | Los Juegos Olímpicos | 24 jul 2021 | ⬜ | **6 días después del Tour.** Tokio, 234 km, Monte Fuji. El cuerpo del corredor que ganó el Giro y llegó 2.º en el Tour. Condición de Ferretti cumplida: el Tour se corrió con cabeza. **Resultado olímpico: por definir** (posible victoria o podio — terreno que favorece al escalador puro). Higuita y Rubio como gregarios colombianos. Van Aert y Pogačar como rivales. |
 | 184 | La lista | Post-Tokio | ⬜ | Santi en el vuelo de vuelta. Verano terminado. Cuaderno: *"Giro: sí. Tour: 2". Tokio: [resultado]. Crono: siempre la crono."* La arquitectura del 2022 ya está trazada. |
+
+**NOTA — Reparto de victorias de etapa, Tour 2021 (ajuste de planificación):**
+
+Santi 3 etapas, Pogačar 3 etapas, Vingegaard 1 etapa. En las etapas de montaña los tres se atacan repetidamente en las subidas pero nadie se desengancha — todo se decide en los últimos metros, en sprints reducidos de 2-3 corredores. Las únicas etapas donde la diferencia es clara (no foto finish) son las dos cronos, donde Pogačar es netamente superior — y donde, por ahora, **Vingegaard también es superior a Santi**.
+
+- **E5 CRI Changé-Laval** — Pogačar (crono, diferencia clara). *(1/3 Pogačar)*
+- **E9 Tignes** — Pogačar, sprint reducido por centímetros sobre Santi y Vingegaard. *(2/3 Pogačar)*
+- **E11 Ventoux doble** — Vingegaard, sprint de los tres en Malaucène. *(1/1 Vingegaard)*
+- **E15 Andorra** — Santi, sprint reducido sobre Pogačar. *(1/3 Santi)*
+- **E17 Col du Portet** — Santi, sprint reducido sobre Pogačar (construye los +3" de GC). *(2/3 Santi)*
+- **E18 Luz-Ardiden** — Santi, sprint reducido, +12" sobre Pogačar. *(3/3 Santi)*
+- **E20 CRI Libourne** — Pogačar (crono, diferencia clara, decide el Tour). *(3/3 Pogačar)*
+
+Ajustar caps 176 (E1-E10, incluir E9) y 178 (E17, ya descrito como sprint reducido — coherente) y añadir cap para E15 si se quiere desarrollar.
 
 ---
 

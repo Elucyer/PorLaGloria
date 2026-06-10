@@ -156,7 +156,7 @@ El anorak azul del equipo, las gafas de sol aunque la tarde estuviera nublada, l
 
 Pero esta vez la cara era distinta.
 
-El gesto que en Ferretti era la victoria — no la sonrisa amplia del hombre público, sino el pequeño movimiento de la comisura izquierda de la boca que en el italiano era el equivalente del grito, el único gesto que el director del FCV-WorldTour dejaba escapar en los momentos donde el cuerpo decía que había que escapar algo.
+El gesto que en Ferretti era la victoria — no la sonrisa amplia del hombre público, sino el pequeño movimiento de la comisura izquierda de la boca que en el italiano era el equivalente del grito, el único gesto que el director del MercadoLibre-FCV dejaba escapar en los momentos donde el cuerpo decía que había que escapar algo.
 
 Se abrazaron.
 
@@ -302,7 +302,7 @@ Santi lo recibió con las dos manos.
 
 Pesaba más de lo que esperaba.
 
-No lo pensó como metáfora — solo notó el peso del cristal en las manos, el frío del material, la solidez del objeto que en las fotografías del podio iba a aparecer entre las dos manos del corredor colombiano con el maillot del FCV-WorldTour en el primer escalón del Lieja-Bastogne-Lieja 2021.
+No lo pensó como metáfora — solo notó el peso del cristal en las manos, el frío del material, la solidez del objeto que en las fotografías del podio iba a aparecer entre las dos manos del corredor colombiano con el maillot del MercadoLibre-FCV en el primer escalón del Lieja-Bastogne-Lieja 2021.
 
 El speaker de la organización dijo algo en francés.
 

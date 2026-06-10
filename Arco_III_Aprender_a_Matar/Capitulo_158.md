@@ -134,7 +134,7 @@ El grupo de once se redujo a ocho en Lucignano.
 
 Quedaron: Santi, Pogačar, Van Aert, Alaphilippe, Van Baarle, Pidcock, Moscon, Schachmann.
 
-Clarke había cedido en el kilómetro siete del sector — el gregario del FCV-WorldTour que había dado lo que tenía que dar y que soltó sin dramatismo, con el gesto del profesional que sabe exactamente cuándo el trabajo está hecho.
+Clarke había cedido en el kilómetro siete del sector — el gregario del MercadoLibre-FCV que había dado lo que tenía que dar y que soltó sin dramatismo, con el gesto del profesional que sabe exactamente cuándo el trabajo está hecho.
 
 — Tuyo — dijo Clarke por radio.
 

@@ -8,7 +8,7 @@ La cena del equipo fue en un restaurante belga a tres calles del hotel.
 
 Ferretti había reservado la sala privada — el espacio para doce personas que en las victorias de etapa era suficiente y que en las victorias de clásica mayor era exactamente el espacio correcto porque una clásica mayor no era una etapa de Tour, era otra categoría.
 
-Los seis corredores del FCV-WorldTour que habían llegado a Liège — los que habían terminado la carrera, más Clarke que se había retirado en el kilómetro ciento ochenta pero que en la cena de victoria tenía el mismo lugar que los demás porque en el WorldTour la victoria es del equipo aunque el nombre en el palmarés sea de uno.
+Los seis corredores del MercadoLibre-FCV que habían llegado a Liège — los que habían terminado la carrera, más Clarke que se había retirado en el kilómetro ciento ochenta pero que en la cena de victoria tenía el mismo lugar que los demás porque en el WorldTour la victoria es del equipo aunque el nombre en el palmarés sea de uno.
 
 El mesero belga trajo las cartas.
 

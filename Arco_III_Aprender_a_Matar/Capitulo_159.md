@@ -384,7 +384,7 @@ GC final del Tirreno-Adriatico 2021: Pogačar 1.º, Santi 2.º a seis segundos y
 
 En el podio de San Benedetto del Tronto, los dos juntos en el primer y segundo escalón — Pogačar con el trofeo, Santi con el ramo.
 
-La fotografía que los diarios del ciclismo iban a usar: los dos, el esloveno y el colombiano, el subcampeón del Tour con maillot del UAE y el campeón con el maillot del FCV, mirando al fotógrafo desde el podio de una carrera de preparación de marzo.
+La fotografía que los diarios del ciclismo iban a usar: los dos, el esloveno y el colombiano, el subcampeón del Tour con maillot del UAE y el campeón con el maillot del MercadoLibre-FCV, mirando al fotógrafo desde el podio de una carrera de preparación de marzo.
 
 Debajo de la fotografía, los titulares iban a decir lo que los titulares decían cuando Santi y Pogačar aparecían juntos en el resultado de una carrera: que el Tour de France del verano iba a ser entre ellos dos, que el resto del pelotón era fondo, que la guerra había empezado.
 

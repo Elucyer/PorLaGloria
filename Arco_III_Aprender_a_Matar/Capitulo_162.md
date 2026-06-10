@@ -42,7 +42,7 @@ La sala de reuniones del hotel, a las ocho y media.
 
 Ferretti con el portátil y el recorrido en la pantalla grande — el perfil de doscientos cincuenta y nueve kilómetros que en la proyección parecía una sierra dentada: los hellingen de las Ardenas que en el papel eran subidas menores y que en la carretera real, después de ciento cincuenta kilómetros en las piernas, eran el tipo de esfuerzo acumulado que partía el pelotón sistemáticamente.
 
-Los seis corredores del FCV-WorldTour en la sala.
+Los seis corredores del MercadoLibre-FCV en la sala.
 
 Ferretti habló durante veinte minutos. El plan estaba claro desde el martes — la reunión en Girona, la táctica contra los tres rivales, el umbral constante de la Roche aux Faucons. No repitió la táctica completa. Solo los puntos:
 
@@ -192,7 +192,7 @@ Si el pelotón llegaba a la Redoute con las piernas cargadas, el ataque de Poga�
 
 El UAE no dejaba llegar fresco.
 
-El FCV-WorldTour no podía contrarrestar el tempo del UAE — el equipo de Santi no tenía el número de gregarios de montaña que tenía el UAE. Colombo y Dumont y Clarke — Clarke había abandonado en el kilómetro ciento ochenta por problemas mecánicos — no eran suficientes para responder gregario con gregario.
+El MercadoLibre-FCV no podía contrarrestar el tempo del UAE — el equipo de Santi no tenía el número de gregarios de montaña que tenía el UAE. Colombo y Dumont y Clarke — Clarke había abandonado en el kilómetro ciento ochenta por problemas mecánicos — no eran suficientes para responder gregario con gregario.
 
 La solución era no intentar responder gregario con gregario.
 
