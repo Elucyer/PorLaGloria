@@ -166,7 +166,7 @@ El Zoncolan. El ascenso friulano de diez kilómetros al 11,9% de pendiente media
 
 Rusconi abrió la diapositiva de los rivales.
 
-Egan Bernal. El corredor del Ineos que en 2019 había ganado el Tour de France a veintidós años y que en 2021 llegaba al Giro como el gran favorito — el colombiano del Ineos que en los puertos de más de quince kilómetros tenía una potencia de 6,6 vatios por kilogramo y un VO2 max que el staff del Ineos nunca publicaba pero que en el pelotón se estimaba en noventa y cinco.
+Egan Bernal. El corredor del Ineos que en 2019 había ganado el Tour de France a veintidós años y que en 2021 llegaba al Giro como el gran favorito — el colombiano del Ineos que en los puertos de más de quince kilómetros tenía una potencia de 6,6 vatios por kilogramo y un VO2 max que el staff del Ineos nunca publicaba pero que en el pelotón se estimaba en ochenta y nueve.
 
 — Bernal en el Zoncolan es el corredor más peligroso — dijo Rusconi. — En el Giau también. En el Bondone depende del estado del cuerpo en la tercera semana. — Pausa. — La diferencia con Santi en estos puertos es de décimas. En el Veleta la diferencia con corredores de ese perfil era una décima de vatio por kilogramo. En los Dolomitas esa décima puede ser cuarenta segundos o puede ser nada.
 
@@ -256,7 +256,7 @@ El segundo puesto en el Tour después de ganar el Giro no era el fracaso. Era la
 
 Pero Ferretti miró la pantalla con la expresión del hombre que todavía no cierra la puerta.
 
-— Los doce segundos — dijo Ferretti — los construís en los Pirineos. Si en el Portet y en Luz-Ardiden Santi saca doce segundos sobre Pogačar, llega a la E20 con el Tour en las manos. — Pausa. — En el Portet el año pasado Pogačar sacó veinte segundos sobre Roglič. Ese día Roglič llevaba el maillot amarillo. — Otra pausa. — El Portet no tiene memoria del que llega de líder. Tiene memoria del que ataca primero.
+— Los doce segundos — dijo Ferretti — los construís en los Pirineos. Si en el Portet y en Luz-Ardiden Santi saca doce segundos sobre Pogačar, llega a la E20 con el Tour en las manos. — Pausa. — En el Portet el año pasado Pogačar sacó veinte segundos sobre Roglič. Vos llevabas el maillot amarillo ese día, y la ventaja de cuarenta y cinco segundos te alcanzó igual. — Otra pausa. — El Portet no tiene memoria del que llega de líder. Tiene memoria del que ataca primero.
 
 ---
 
@@ -316,7 +316,7 @@ Dos meses después del Tour. El cuerpo descansado, la temporada casi cerrada, el
 
 El Mundial de Lovaina no era un recorrido de escaladores puros — era el recorrido del corredor completo, el que en el Amstel se sentía cómodo y en Lieja sobrevivía a los últimos cuarenta kilómetros. El perfil era ardennés transportado a Brabante: las subidas cortas que en el Amstel se llamaban hellingen y que en Lovaina tenían nombres flamencos pero el mismo efecto en las piernas.
 
-— Van Aert es el favorito local — dijo Rusconi. — Corre en casa. En Lovaina, con el público belga, Van Aert es un corredor diferente al que vemos en las clásicas. Alaphilippe defenderá el título. Pogačar probablemente también estará si llega bien de vuelta de la Vuelta.
+— Van Aert es el favorito local — dijo Rusconi. — Corre en casa. En Lovaina, con el público belga, Van Aert es un corredor diferente al que vemos en las clásicas. Santi llega como campeón vigente — el arcoíris de Yorkshire 2019, sin Mundial en 2020 por la pandemia. Defender el título en Bélgica, contra Van Aert en su casa, es otra historia. Pogačar probablemente también estará si llega bien de vuelta de la Vuelta.
 
 — ¿Santi? — dijo Ferretti.
 
@@ -342,7 +342,7 @@ El Civiglio — cuatro kilómetros al 9,7%, a veinticinco kilómetros de la lleg
 
 — ¿Pogačar?
 
-— Pogačar ganó el Lombardia en 2020 en solitario desde cien kilómetros. — Rusconi hizo una pausa. — En 2021, si viene de la Vuelta, llega con el cuerpo más cargado. Si no viene de la Vuelta, es el favorito. — Otra pausa. — En el Muro di Sormano se ve quién tiene las piernas de octubre.
+— Pogačar todavía no ha ganado el Lombardia. En 2020 atacó en el Sormano y llegó segundo, a metro y medio de Santi. — Rusconi hizo una pausa. — En 2021, si viene de la Vuelta, llega con el cuerpo más cargado. Si no viene de la Vuelta, es el rival más peligroso. — Otra pausa. — En el Muro di Sormano se ve quién tiene las piernas de octubre.
 
 ---
 
@@ -354,7 +354,7 @@ Los datos del Veleta del treinta de enero — los splits del danés que el técn
 
 El CdA de Vingegaard: 0,207.
 
-El VO2 max estimado: 97,6 ml/kg/min.
+El VO2 max estimado: 92,3 ml/kg/min.
 
 La potencia en el umbral en altitud: 6,8 W/kg.
 
