@@ -12,7 +12,6 @@
 
 ---
 
-## I. El Passo Giau
 
 La etapa dieciséis salía de Sacile, ciento noventa y dos kilómetros hasta Cortina d'Ampezzo, con dos puertos de primera categoría — el Passo Forcella Staulanza y, a veinticuatro kilómetros de la meta, el Passo Giau, una de las subidas más temidas de los Dolomitas: 9,9 kilómetros al 9,3% de media, con tramos sostenidos por encima del doce por ciento en la parte alta, donde la carretera serpentea sin árboles, expuesta al viento, entre paredes de roca gris que en mayo todavía conservaban manchas de nieve en las grietas más profundas.
 
@@ -42,7 +41,7 @@ Durante los últimos ochocientos metros del Giau, Bernal y Santi rodaron uno det
 
 En la cima, Santi seguía dos segundos por delante.
 
-*El narrador necesita explicar por qué dos segundos en la cima de un puerto, con veinticuatro kilómetros todavía por recorrer hasta meta — los últimos quince de bajada técnica, los últimos nueve de llano hasta Cortina — no eran, en absoluto, una ventaja decisiva. En cualquier circunstancia normal, esos dos segundos se habrían diluido en la bajada: Bernal, descansando en la rueda de Santi durante el descenso técnico del Giau —una de las bajadas más exigentes de los Dolomitas, con curvas cerradas sobre asfalto agrietado donde el margen de error es mínimo— habría recuperado el contacto sin esfuerzo, y los dos habrían llegado juntos a Cortina, probablemente en otro sprint reducido como el de Cattolica.*
+*Por qué dos segundos en la cima de un puerto, con veinticuatro kilómetros todavía por recorrer hasta meta — los últimos quince de bajada técnica, los últimos nueve de llano hasta Cortina — no eran, en absoluto, una ventaja decisiva. En cualquier circunstancia normal, esos dos segundos se habrían diluido en la bajada: Bernal, descansando en la rueda de Santi durante el descenso técnico del Giau —una de las bajadas más exigentes de los Dolomitas, con curvas cerradas sobre asfalto agrietado donde el margen de error es mínimo— habría recuperado el contacto sin esfuerzo, y los dos habrían llegado juntos a Cortina, probablemente en otro sprint reducido como el de Cattolica.*
 
 *Eso es lo que todo el pelotón, todos los directores deportivos, todos los comentaristas de la Rai esperaban.*
 
@@ -118,7 +117,6 @@ Santi pensó la respuesta, mirando el plato.
 
 ---
 
-## II. El Passo Pordoi y el Monte Bondone
 
 La etapa diecisiete, al día siguiente, era distinta en su naturaleza: ciento sesenta y ocho kilómetros entre Canazei y Sega di Ala, con el Passo Pordoi como gran puerto intermedio (2.239 metros, una de las cumbres más altas del Giro) y, en el tramo final, una subida menos conocida pero no menos exigente: el Monte Bondone, doce kilómetros de ascenso irregular, con rampas que alternaban entre el cinco y el catorce por ciento, terminando en un altiplano a mil quinientos metros sobre una meseta abierta donde el viento, casi siempre, soplaba con fuerza.
 
@@ -134,7 +132,7 @@ El Ineos, por primera vez en todo el Giro, no controló el ritmo en la base de l
 
 El ritmo en la base del Bondone lo marcó, en cambio, un gregario del MercadoLibre-FCV: Colombo.
 
-*El narrador se detiene aquí, porque lo que pasó en los primeros cuatro kilómetros del Bondone, aunque casi nunca se menciona cuando se cuenta la historia de este Giro, fue, para el equipo de Santi, tan importante como cualquier ataque. Colombo —el gregario que llevaba cuatro años siendo la sombra de Santi, el que en cada Grand Tour era, casi siempre, el último compañero que le quedaba antes de que la carrera se decidiera entre los líderes— llevaba dos semanas de Giro en las piernas, igual que todos. Pero en la base del Bondone, cuando el Ineos no apareció, Colombo se puso al frente del grupo de favoritos y marcó un ritmo que ningún otro equipo pudo seguir.*
+*Lo que pasó en los primeros cuatro kilómetros del Bondone, aunque casi nunca se menciona cuando se cuenta la historia de este Giro, fue, para el equipo de Santi, tan importante como cualquier ataque. Colombo —el gregario que llevaba cuatro años siendo la sombra de Santi, el que en cada Grand Tour era, casi siempre, el último compañero que le quedaba antes de que la carrera se decidiera entre los líderes— llevaba dos semanas de Giro en las piernas, igual que todos. Pero en la base del Bondone, cuando el Ineos no apareció, Colombo se puso al frente del grupo de favoritos y marcó un ritmo que ningún otro equipo pudo seguir.*
 
 *Detrás de Colombo, el grupo se redujo a cinco: Santi, Bernal, Yates, Caruso, y un joven escalador del equipo Astana que llevaba toda la semana intentando colarse en las posiciones de cabeza sin éxito.*
 
@@ -162,7 +160,7 @@ Durante un kilómetro entero —el kilómetro más empinado del Bondone, con tra
 
 *Pero no era una repetición.*
 
-*El narrador necesita decir lo que las cámaras, otra vez, no podían mostrar con claridad: en el Zoncolan, dos días atrás, Bernal había estado a la rueda de Santi porque tenía la potencia para estarlo. Hoy, en el Bondone, Bernal estaba a la rueda de Santi porque su cuerpo todavía respondía al impulso de no rendirse — pero la potencia, los datos que Rusconi revisaría esa noche lo confirmarían, ya no estaba ahí. Era la diferencia entre un empate de fuerzas y un empate de voluntad. Y la voluntad, en una subida de doce kilómetros, solo alcanza para sostener lo que el cuerpo ya no puede.*
+*Lo que las cámaras, otra vez, no podían mostrar con claridad: en el Zoncolan, dos días atrás, Bernal había estado a la rueda de Santi porque tenía la potencia para estarlo. Hoy, en el Bondone, Bernal estaba a la rueda de Santi porque su cuerpo todavía respondía al impulso de no rendirse — pero la potencia, los datos que Rusconi revisaría esa noche lo confirmarían, ya no estaba ahí. Era la diferencia entre un empate de fuerzas y un empate de voluntad. Y la voluntad, en una subida de doce kilómetros, solo alcanza para sostener lo que el cuerpo ya no puede.*
 
 A siete kilómetros de meta —en el segundo tramo del catorce por ciento, donde la carretera salía momentáneamente del bosque y se abría a una vista panorámica de los Dolomitas que ningún corredor, en ese momento, estaba en condiciones de apreciar— Bernal cedió.
 
@@ -274,7 +272,7 @@ Santi miró el techo de la habitación —otra vez el mismo techo blanco, otra v
 
 La llamada terminó.
 
-*El narrador cierra este capítulo con una imagen que, meses después, en las retrospectivas de fin de temporada, todos los medios italianos y colombianos usarían de la misma manera: la fotografía de Bernal y Santi en la cima del Passo Giau, dos segundos de diferencia, las caras vueltas la una hacia la otra por primera y única vez en todo el Giro —un instante, captado por un fotógrafo de la Gazzetta, en el que ninguno de los dos sonreía, ninguno de los dos hablaba, pero algo pasaba entre ellos que el fotógrafo, sin saberlo, había logrado capturar: el reconocimiento mutuo de dos corredores que sabían, en ese instante, que el resto de sus carreras iba a estar definido, en parte, por el otro.*
+*Una imagen que, meses después, en las retrospectivas de fin de temporada, todos los medios italianos y colombianos usarían de la misma manera: la fotografía de Bernal y Santi en la cima del Passo Giau, dos segundos de diferencia, las caras vueltas la una hacia la otra por primera y única vez en todo el Giro —un instante, captado por un fotógrafo de la Gazzetta, en el que ninguno de los dos sonreía, ninguno de los dos hablaba, pero algo pasaba entre ellos que el fotógrafo, sin saberlo, había logrado capturar: el reconocimiento mutuo de dos corredores que sabían, en ese instante, que el resto de sus carreras iba a estar definido, en parte, por el otro.*
 
 *Faltaban cuatro etapas para Milán.*
 

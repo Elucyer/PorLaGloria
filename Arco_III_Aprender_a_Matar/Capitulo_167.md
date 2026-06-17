@@ -138,7 +138,7 @@ El cuerpo en la posición de crono que Rusconi y el ingeniero de McLaren habían
 
 Ocho kilómetros y seiscientos metros.
 
-*El narrador, aquí, tiene que decir algo que los datos no dicen: este no era el día importante.*
+*Lo que los datos no dicen: este no era el día importante.*
 
 *Esta era la etapa que el pelotón entero — Bernal, Yates, Carapaz, los gregarios, los sprinters que en quince días iban a estar agotados y todavía no lo sabían — iba a olvidar en una semana. Una crono de ocho kilómetros en un Giro de tres semanas no decide nada. Lo que decide, en una crono de ocho kilómetros al principio de un Giro de tres semanas, es algo más pequeño y más importante: el primer dato real. El primer número que cada corredor, cada director, cada periodista de esa carpa de prensa, iba a usar para empezar a construir la historia de las próximas tres semanas.*
 

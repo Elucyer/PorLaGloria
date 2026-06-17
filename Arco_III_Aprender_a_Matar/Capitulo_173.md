@@ -12,7 +12,6 @@
 
 ---
 
-## I. Girona, primeros días
 
 Los primeros tres días después del Giro, Santi no tocó la bicicleta.
 
@@ -44,7 +43,6 @@ Rusconi se quedó callado un momento —el tipo de silencio que, en una conversa
 
 ---
 
-## II. La llamada de Ferretti
 
 Una semana después de Milán, Ferretti llamó —no para hablar de entrenamiento, sino para algo distinto.
 
@@ -80,11 +78,10 @@ Ferretti se rió —una risa breve, casi imperceptible.
 
 ---
 
-## III. El campo de altura
 
 A los diez días de Milán, Santi viajó a Tignes, en los Alpes franceses, para el campo de altura previo al Tour —el mismo procedimiento que había seguido los dos años anteriores: dos semanas a más de dos mil metros, simulando algunas de las subidas que el Tour iba a incluir en su recorrido.
 
-*El narrador anota algo que el propio Santi, en ese momento, todavía no podía ver con la perspectiva necesaria: que este campo de altura, a diferencia de los dos anteriores, no era una preparación desde cero. Era, en cambio, la continuación directa de algo que ya estaba en marcha —un cuerpo que llegaba a Tignes no para "recuperar la forma", sino para "afinar" una forma que, según todos los datos de Rusconi, ya estaba en su punto más alto de la temporada.*
+*Algo que el propio Santi, en ese momento, todavía no podía ver con la perspectiva necesaria: que este campo de altura, a diferencia de los dos anteriores, no era una preparación desde cero. Era, en cambio, la continuación directa de algo que ya estaba en marcha —un cuerpo que llegaba a Tignes no para "recuperar la forma", sino para "afinar" una forma que, según todos los datos de Rusconi, ya estaba en su punto más alto de la temporada.*
 
 En Tignes, Colombo y Clarke acompañaron a Santi —los mismos dos gregarios que habían estado con él en el Giro, ahora compartiendo también la preparación específica del Tour, una decisión de Ferretti basada en algo simple: la confianza que se había construido entre los tres durante tres semanas de carrera no se podía replicar de un día para otro con otros corredores.
 
@@ -124,7 +121,6 @@ Clarke y Santi chocaron sus vasos con el de Colombo.
 
 ---
 
-## IV. La llamada de Hernando, la noche antes de salir hacia Brest
 
 El veinticinco de junio, Santi voló de Girona a Brest, en Bretaña, donde el Tour de Francia 2021 iba a tomar la salida dos días después.
 
@@ -194,7 +190,7 @@ Cerró el cuaderno.
 
 ---
 
-*El narrador cierra este capítulo —y con él, el Bloque 7 de este Arco— con una imagen que resume, mejor que cualquier estadística, lo que había cambiado entre el Giro de 2018 y el Giro de 2021.*
+*Una imagen que resume, mejor que cualquier estadística, lo que había cambiado entre el Giro de 2018 y el Giro de 2021.*
 
 *En 2018, un Santi de dieciocho años había llegado a Roma, al final de su primer Giro como profesional, sin saber todavía si el ciclismo europeo lo iba a aceptar o lo iba a devorar.*
 

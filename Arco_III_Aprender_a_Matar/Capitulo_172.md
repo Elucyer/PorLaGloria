@@ -14,7 +14,6 @@
 
 ---
 
-## I. La mañana en Senago
 
 El día amaneció despejado sobre la Lombardía —un cielo de finales de mayo, sin el calor todavía pesado del verano italiano, con una ligera brisa que los técnicos de los equipos, desde temprano, discutían en términos de "viento de cola en los primeros quince kilómetros, viento de costado en los últimos diez".
 
@@ -32,7 +31,7 @@ Rusconi cerró el tablet, sonriendo —una sonrisa poco habitual en él, reserva
 
 — Tenés dos minutos dos segundos de ventaja —dijo Rusconi—. Aunque Bernal te saque los siete segundos que proyectamos, vas a ganar el Giro por... —hizo una pausa, como si el cálculo mereciera ser dicho en voz alta, despacio— por un minuto cincuenta y cinco segundos.
 
-*El narrador anota algo que en ese momento, en la zona técnica de Senago, nadie dijo en voz alta pero que todos —Rusconi, Ferretti, el propio Santi— sabían: el número final, fuera el que fuera, dependía de un solo factor. De cuánto, exactamente, Bernal fuera capaz de recortar en esos treinta kilómetros. Y ese número, fuera cual fuera, iba a convertirse, en las próximas veinticuatro horas, en la cifra que todos los medios de Italia y de Colombia repetirían como el resumen de este Giro.*
+*Algo que en ese momento, en la zona técnica de Senago, nadie dijo en voz alta pero que todos —Rusconi, Ferretti, el propio Santi— sabían: el número final, fuera el que fuera, dependía de un solo factor. De cuánto, exactamente, Bernal fuera capaz de recortar en esos treinta kilómetros. Y ese número, fuera cual fuera, iba a convertirse, en las próximas veinticuatro horas, en la cifra que todos los medios de Italia y de Colombia repetirían como el resumen de este Giro.*
 
 Ferretti se acercó, con el casco de Santi en las manos —el ritual previo a cada crono, el director entregando personalmente el casco al corredor, un gesto que llevaba tres años repitiéndose sin variación.
 
@@ -52,9 +51,8 @@ A las 14:47, Santi tomó la salida.
 
 ---
 
-## II. Los treinta kilómetros
 
-*El narrador no va a describir, kilómetro a kilómetro, una crono que no tenía ninguna tensión competitiva real. Pero hay algo que merece ser dicho: lo que hizo Santi en esos treinta kilómetros entre Senago y Milán no fue, en ningún momento, "rodar tranquilo". Fue, en cambio, exactamente lo contrario —y la razón de eso tiene que ver con algo que Ferretti había mencionado, sin insistir demasiado, en la charla técnica de la mañana.*
+*Lo que hizo Santi en esos treinta kilómetros entre Senago y Milán no fue, en ningún momento, "rodar tranquilo". Hay algo que merece ser dicho: lo que hizo Santi en esos treinta kilómetros entre Senago y Milán no fue, en ningún momento, "rodar tranquilo". Fue, en cambio, exactamente lo contrario —y la razón de eso tiene que ver con algo que Ferretti había mencionado, sin insistir demasiado, en la charla técnica de la mañana.*
 
 *"Nadie se acuerda de las crono que se ganan con ventaja", había dicho Ferretti. "Pero todos se acuerdan de las que se pierden por descuido."*
 
@@ -76,7 +74,6 @@ Faltaba Bernal.
 
 ---
 
-## III. La espera
 
 Bernal había salido nueve minutos después de Santi —el orden de salida de la crono final, de atrás hacia adelante según la clasificación general, garantizaba que el líder y su perseguidor más cercano completaran el recorrido con apenas unos minutos de diferencia, lo suficiente para que ambos resultados estuvieran disponibles casi al mismo tiempo.
 
@@ -92,7 +89,7 @@ El repecho.
 
 — Bernal en el repecho... —Rusconi siguió los números en su pantalla— recupera otro segundo. Tres segundos de ventaja sobre vos, en el segundo intermedio.
 
-*El narrador hace una pausa para señalar algo que, en ese momento, en la zona de meta, nadie decía en voz alta pero que todos sentían: la tensión, mínima como era, no tenía nada que ver con el resultado del Giro —que nada podía cambiar— y todo que ver con algo más simple, casi infantil, algo que sobrevivía en cualquier corredor profesional sin importar cuánto estuviera en juego: la curiosidad de saber quién, en igualdad de condiciones, en el día de hoy, era más rápido.*
+*Algo que, en ese momento, en la zona de meta, nadie decía en voz alta pero que todos sentían: la tensión, mínima como era, no tenía nada que ver con el resultado del Giro —que nada podía cambiar— y todo que ver con algo más simple, casi infantil, algo que sobrevivía en cualquier corredor profesional sin importar cuánto estuviera en juego: la curiosidad de saber quién, en igualdad de condiciones, en el día de hoy, era más rápido.*
 
 Los últimos trece kilómetros.
 
@@ -108,7 +105,7 @@ La GC final del Giro de Italia 2021:
 
 Santi, ganador, con dos minutos cuarenta y dos segundos de ventaja sobre Bernal —los dos minutos dos segundos previos a la crono, menos los siete segundos que Bernal había recortado, más los cuarenta y siete segundos que en realidad correspondían a la diferencia exacta acumulada hasta ese punto.
 
-*El narrador corrige el cálculo, porque la cifra exacta importa: la ventaja de Santi antes de la crono final era de dos minutos dos segundos. Bernal recortó siete. La diferencia final, por lo tanto, era de un minuto cincuenta y cinco segundos.*
+*La cifra exacta: la ventaja de Santi antes de la crono final era de dos minutos dos segundos. Bernal recortó siete. La diferencia final, por lo tanto, era de un minuto cincuenta y cinco segundos.*
 
 *Pero esa no fue la cifra que apareció, oficialmente, en la clasificación general final del Giro de Italia 2021.*
 
@@ -130,7 +127,6 @@ Era de dos minutos cuarenta y ocho segundos.
 
 ---
 
-## IV. El podio
 
 El podio del Giro de Italia 2021, montado frente al Duomo de Milán, con la fachada gótica de la catedral iluminada por el sol de la tarde y una multitud que, después de un año de restricciones por la pandemia, volvía a llenar las calles de Milán para una llegada de Giro como no se veía desde 2019, tuvo tres nombres:
 
@@ -140,7 +136,7 @@ Egan Bernal, segundo, a 2:48.
 
 Simon Yates, tercero, a 4:17.
 
-*El narrador se detiene en la cifra de Yates —cuatro minutos diecisiete segundos— porque, sin que nadie lo planeara así, terminó siendo el dato que, en retrospectiva, mejor resumía lo que este Giro había significado. En 2018, Yates había llevado la maglia rosa trece días y la había perdido por casi cuatro minutos en una sola etapa. En 2021, Yates terminaba tercero, a más de cuatro minutos del ganador —pero esta vez, esos cuatro minutos no eran un colapso. Eran, simplemente, la distancia entre el podio y dos corredores que estaban corriendo, literalmente, en otra categoría.*
+*La cifra de Yates —cuatro minutos diecisiete segundos— terminó siendo, sin que nadie lo planeara así, el dato que mejor resumía lo que este Giro había significado. En 2018, Yates había llevado la maglia rosa trece días y la había perdido por casi cuatro minutos en una sola etapa. En 2021, Yates terminaba tercero, a más de cuatro minutos del ganador —pero esta vez, esos cuatro minutos no eran un colapso. Eran, simplemente, la distancia entre el podio y dos corredores que estaban corriendo, literalmente, en otra categoría.*
 
 *La brecha generacional de la que se había hablado en Turín, tres semanas antes, ya no era una hipótesis de periodistas aburridos en una carpa de prensa. Era un hecho, escrito en la clasificación general, con números.*
 
@@ -160,25 +156,26 @@ Bernal lo miró un momento, procesando la frase —y después sonrió, una sonri
 
 ---
 
-## V. Laureles, seis de la mañana
 
-*El narrador termina este capítulo no en Milán, sino a nueve mil kilómetros de distancia, en un apartamento de Laureles, Medellín, donde eran las nueve y media de la mañana —seis horas menos que en Italia— cuando la transmisión de la ceremonia del podio llegó a su fin.*
+*En Milán: detrás de las vallas de la zona de prensa, a cuarenta metros del podio, con la fachada gótica del Duomo iluminada por el sol de la tarde a sus espaldas.*
 
-Hernando había visto la crono entera —desde las ocho de la mañana, hora de Colombia, con el café que Carmen le había preparado enfriándose sin que él lo tocara, los ojos fijos en la pantalla durante los treinta minutos que había durado el recorrido de Santi.
+Hernando y Carmen habían llegado a Milán el martes anterior —el primer viaje de los dos juntos a un Giro completo, financiado por Duarte sin que Santi lo pidiera, con la lógica simple que Duarte le había explicado por teléfono: *si esto se decide en la crono final, quiero que tu papá lo vea desde la calle, no desde la sala de la casa.* Habían visto el Bondone desde una pantalla en el hotel de Trento, una semana antes, sin que Santi supiera que estaban en Italia —la sorpresa que Duarte había guardado hasta el último momento, coordinada con Carmen durante semanas sin que Hernando dijera una palabra de más en las llamadas con su hijo.
+
+Habían visto la crono entera desde la zona de prensa, con las acreditaciones que el equipo de comunicaciones del FCV había gestionado para ellos —Hernando con un café que se enfrió en su mano sin que lo tocara, los ojos fijos en la pantalla gigante que retransmitía los tiempos intermedios, durante los treinta minutos que había durado el recorrido de Santi.
 
 Cuando el tiempo final apareció en pantalla —y, unos minutos después, cuando los números oficiales confirmaron la cifra de dos minutos cuarenta y ocho segundos—, Hernando se quedó en silencio durante un momento largo.
 
-Carmen, desde la cocina, lo observó.
+Carmen, a su lado, lo observó.
 
 — ¿Estás bien? —preguntó.
 
 Hernando no respondió de inmediato. Cuando lo hizo, su voz sonaba distinta —no la voz seca, lacónica, de siempre, sino algo más suave, casi sorprendido de sí mismo.
 
-— Casi tres minutos —dijo Hernando, sin apartar la vista de la pantalla, donde ahora mostraban el podio frente al Duomo—. En 2018, cuando ganó por primera vez, fue por segundos. Hace dos semanas, en esa montaña rara, llegó empatado con el otro muchacho. —Hernando negó con la cabeza, lentamente—. Y hoy, casi tres minutos.
+— Casi tres minutos —dijo Hernando, sin apartar la vista de la tarima donde estaban montando el podio frente al Duomo—. En 2018, cuando ganó por primera vez, fue por segundos. Hace dos semanas, en esa montaña rara, llegó empatado con el otro muchacho. —Hernando negó con la cabeza, lentamente—. Y hoy, casi tres minutos.
 
-— ¿Y eso qué significa? —preguntó Carmen, sentándose a su lado.
+— ¿Y eso qué significa? —preguntó Carmen.
 
-Hernando se quedó pensando, los ojos todavía en la pantalla, donde Santi, en el podio, levantaba el trofeo sobre su cabeza mientras la multitud de Milán lo aplaudía.
+Hernando se quedó pensando, los ojos todavía en la tarima, donde los organizadores ya colocaban la espiral de plata del Trofeo Senza Fine sobre el atril.
 
 — Significa —dijo Hernando finalmente— que ya no estamos hablando del mismo corredor que ganó en 2018.
 
@@ -188,15 +185,25 @@ Hernando se quedó pensando, los ojos todavía en la pantalla, donde Santi, en e
 
 Carmen le tomó la mano.
 
-— ¿Vas a llamarlo?
+Cuando Santi subió al podio y levantó el trofeo, la multitud de Milán —italianos en su mayoría, pero también el contingente colombiano que había viajado para la última semana, con banderas amarillas, azules y rojas repartidas entre la gente— aplaudió durante más tiempo del protocolar.
 
-— En un rato —dijo Hernando—. Que disfrute esto un poco primero. Sin nosotros encima.
+Santi, desde la tarima, buscó entre las vallas de prensa antes de que el cuerpo de seguridad lo apartara hacia la siguiente entrevista.
 
-Se quedaron los dos, en silencio, viendo la transmisión —la multitud de Milán, el Duomo, la espiral de plata del Trofeo Senza Fine con el nombre de su hijo grabado por segunda vez.
+Los encontró.
 
-Afuera, en la calle, el sol de la mañana de Medellín entraba por la ventana de la cocina, iluminando la taza de café que Hernando, finalmente, después de treinta minutos, se llevó a la boca.
+No dijo nada —no se podía, a esa distancia, con la multitud entre los dos—. Levantó el trofeo un segundo más de lo necesario, en dirección a donde estaban Hernando y Carmen, y después se dejó llevar hacia las cámaras.
 
-Estaba frío.
+Hernando no dijo nada tampoco.
+
+Se quedó mirando la tarima, la espiral de plata, el Duomo detrás, con la mano de Carmen todavía en la suya.
+
+— ¿Vas a esperarlo en el hotel? —preguntó Carmen.
+
+— No —dijo Hernando—. Voy a esperarlo aquí. Que vea, cuando termine con las cámaras, que todavía estamos.
+
+Se quedaron los dos, de pie, entre la multitud de Milán que poco a poco se dispersaba, viendo cómo el staff desmontaba la tarima del podio y el sol de la tarde se iba detrás de las torres del Duomo.
+
+El café de Hernando, en su mano, seguía frío.
 
 No le importó.
 

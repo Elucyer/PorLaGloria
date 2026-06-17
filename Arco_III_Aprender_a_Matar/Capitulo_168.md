@@ -60,7 +60,7 @@ No era un final de Grand Tour. Era el tipo de final que en una carrera de una se
 
 El primer examen real entre Bernal y Santi.
 
-*El narrador, en este punto, tiene que explicar algo que el roadbook no explica: por qué un final de tres kilómetros al siete por ciento, en la quinta etapa de veintiún, importaba tanto.*
+*Algo que el roadbook no explica: por qué un final de tres kilómetros al siete por ciento, en la quinta etapa de veintiún, importaba tanto.*
 
 *Importaba porque era el primer momento en el que el Giro le pedía algo a las piernas que no fuera "rodar". Las primeras cuatro etapas habían sido, para los favoritos, un ejercicio de paciencia: seguir, posicionarse, evitar las caídas que en cada Giro se llevaban por delante a algún candidato en los primeros días sin que tuviera nada que ver con el ciclismo y todo que ver con la mala suerte. La E5 era distinta. La E5 era el cuerpo, por primera vez, en zona roja — no la zona roja de un ataque decisivo, sino la zona roja suficiente para que un director de equipo, viendo los datos esa noche, pudiera empezar a comparar números reales.*
 
@@ -138,7 +138,7 @@ Las etapas seis y siete pasaron sin sobresaltos para la general — dos llegadas
 
 Pero en el pelotón, algo había cambiado.
 
-*El narrador puede decirlo con la perspectiva que ningún corredor tenía esa semana: la E5 de Cattolica fue, en la memoria colectiva del Giro 2021, el momento en que el resto del pelotón entendió que esto no era "Bernal con ventaja" ni "Reyes con ventaja". Era algo que el ciclismo europeo no veía desde hacía años — dos corredores del mismo nivel, del mismo país, separados por segundos, en la misma carrera, con dieciséis etapas todavía por delante.*
+*Con la perspectiva que ningún corredor tenía esa semana: la E5 de Cattolica fue, en la memoria colectiva del Giro 2021, el momento en que el resto del pelotón entendió que esto no era "Bernal con ventaja" ni "Reyes con ventaja". Era algo que el ciclismo europeo no veía desde hacía años — dos corredores del mismo nivel, del mismo país, separados por segundos, en la misma carrera, con dieciséis etapas todavía por delante.*
 
 *Los periodistas de la carpa de Turín tenían, ahora, su historia.*
 
@@ -202,7 +202,7 @@ El martes dieciocho, el Giro entraba en los Apeninos.
 
 Y el jueves veinte, en la etapa catorce, el Giro llegaba al Zoncolan.
 
-*El narrador, antes de cerrar este capítulo, tiene que decir lo último: nada de lo que pasó en esta primera semana — ni la crono de Turín, ni el esprint de Yates, ni los nueve centésimas de Cattolica, ni la frase de Bernal que dio la vuelta al mundo — iba a importar, en términos de la historia que se estaba escribiendo, tanto como lo que estaba a punto de pasar en una montaña de Friuli cuya pendiente media de casi el doce por ciento no le había perdonado nunca a nadie un solo error.*
+*Nada de lo que pasó en esta primera semana — ni la crono de Turín, ni el esprint de Yates, ni los nueve centésimas de Cattolica, ni la frase de Bernal que dio la vuelta al mundo — iba a importar, en términos de la historia que se estaba escribiendo, tanto como lo que estaba a punto de pasar en una montaña de Friuli cuya pendiente media de casi el doce por ciento no le había perdonado nunca a nadie un solo error.*
 
 *Faltaban siete días para el Zoncolan.*
 

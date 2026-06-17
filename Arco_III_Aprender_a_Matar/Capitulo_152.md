@@ -166,7 +166,19 @@ Colgaron.
 
 Patiño y Santi hablaron esa noche. Los números que Patiño había construido con la metodología de siempre — el mercado, los precedentes, el valor del corredor en el contexto del equipo nuevo — apuntaban a un rango. Santi escuchó el rango. Dio un número dentro de él.
 
-Dos millones y medio. Base anual. Más la estructura de bonos existente.
+Dos millones y medio. Base anual.
+
+La cláusula de bonos, que Patiño rehízo por completo para el contrato nuevo — la anterior, escrita en 2019, ya no correspondía a lo que el equipo con presupuesto de veinticuatro millones podía exigir ni a lo que Santi, dos años después, podía pedir —, quedó escalonada por resultado en cada gran objetivo de la temporada:
+
+*Grand Tour: 400.000 € por victoria (1.º), 180.000 € por 2.º puesto, 90.000 € por 3.º puesto, 40.000 € por top 5, 15.000 € por top 10.*
+*Monumento: 150.000 € por victoria, 60.000 € por 2.º o 3.º puesto.*
+*Campeonato del Mundo en ruta: 200.000 € por el arcoíris, 80.000 € por 2.º o 3.º puesto.*
+*Juegos Olímpicos, prueba en ruta: 300.000 € por oro, 150.000 € por plata, 80.000 € por bronce.*
+*Etapa de Grand Tour: 25.000 € por victoria.*
+
+— La cláusula vieja solo pagaba por ganar — le explicó Patiño a Santi por teléfono, antes de la firma—. Eso tenía sentido en 2019, cuando todavía no competías de igual a igual contra Pogačar ni contra nadie del nivel que hay ahora en el pelotón. Hoy, llegar segundo en un Tour de France contra el corredor que sea, por dos segundos o por veinte minutos, vale para el equipo casi tanto como ganar otra carrera más chica. La cláusula tiene que reflejar eso. — Pausa—. Y el Mundial y los Juegos no pueden seguir afuera. Son los dos resultados que más valen para una marca como MercadoLibre, que vende identidad, no solo resultado deportivo.
+
+Ferretti, cuando vio el borrador, agregó una sola nota al margen: *de acuerdo en todo, menos en que esto debería haber estado desde 2019.*
 
 La dirección del FCV aceptó sin contraoferta.
 

@@ -24,7 +24,7 @@ La etapa catorce salía de Cervia, ciento cuarenta y ocho kilómetros hasta el a
 
 El pelotón rodó tranquilo durante los primeros cien kilómetros — una fuga de seis corredores sin ninguna amenaza para la general, el ritmo controlado por los equipos de los favoritos, la tensión acumulándose con cada kilómetro que se acercaba a la base del puerto.
 
-*El narrador puede decir, ahora, lo que ningún corredor sabía en ese momento: que lo que iba a pasar en los próximos cuarenta minutos se iba a convertir, con los años, en una de las referencias obligadas de cualquier conversación sobre el Giro de Italia 2021. No porque cambiara la clasificación general de manera dramática — eso, paradójicamente, no iba a pasar — sino porque iba a ser la primera vez que el pelotón entero, en directo, viera a Bernal y a Santi pelear sin red, sin cálculo, sin la educación táctica que normalmente regía las etapas de montaña. Cuarenta minutos de ataques y respuestas, sin que ninguno de los dos pudiera, ni por un segundo, soltar al otro.*
+*Lo que ningún corredor sabía en ese momento: que lo que iba a pasar en los próximos cuarenta minutos se iba a convertir, con los años, en una de las referencias obligadas de cualquier conversación sobre el Giro de Italia 2021. No porque cambiara la clasificación general de manera dramática — eso, paradójicamente, no iba a pasar — sino porque iba a ser la primera vez que el pelotón entero, en directo, viera a Bernal y a Santi pelear sin red, sin cálculo, sin la educación táctica que normalmente regía las etapas de montaña. Cuarenta minutos de ataques y respuestas, sin que ninguno de los dos pudiera, ni por un segundo, soltar al otro.*
 
 A pie de puerto, la fuga había sido neutralizada. El Ineos tomó el control con dos gregarios, marcando un ritmo que en los primeros tres kilómetros — los "más suaves" del Zoncolan, si es que esa palabra tenía sentido en una pendiente que no bajaba del nueve por ciento — ya había reventado al pelotón en grupos de cinco y seis corredores.
 
@@ -40,7 +40,7 @@ Yates, dos segundos detrás, intentó seguir.
 
 A los doscientos metros, Yates cedió.
 
-*El narrador, en este punto, tiene que detenerse en algo que las cámaras de televisión no podían mostrar bien: la diferencia entre "atacar en el Zoncolan" y "atacar en cualquier otro puerto". En un puerto normal, un ataque es una decisión sobre el ritmo — el corredor elige acelerar porque sabe que su cuerpo puede sostener ese nuevo ritmo más tiempo que el de sus rivales. En el Zoncolan, donde la pendiente ya está, en la base, en zona roja para cualquier ser humano, un ataque no es una aceleración del ritmo. Es una decisión de sufrir más, ahora mismo, apostando a que el cuerpo del rival decida sufrir menos.*
+*Algo que las cámaras de televisión no podían mostrar bien: la diferencia entre "atacar en el Zoncolan" y "atacar en cualquier otro puerto". En un puerto normal, un ataque es una decisión sobre el ritmo — el corredor elige acelerar porque sabe que su cuerpo puede sostener ese nuevo ritmo más tiempo que el de sus rivales. En el Zoncolan, donde la pendiente ya está, en la base, en zona roja para cualquier ser humano, un ataque no es una aceleración del ritmo. Es una decisión de sufrir más, ahora mismo, apostando a que el cuerpo del rival decida sufrir menos.*
 
 *Es, en términos puramente fisiológicos, una apuesta de dolor.*
 
@@ -70,7 +70,7 @@ No porque ninguno de los dos quisiera atacar.
 
 Sino porque ninguno de los dos podía.
 
-*El narrador lo dice sin rodeos: en los últimos tres kilómetros del Zoncolan, Bernal y Santi rodaron al límite absoluto de lo que sus cuerpos permitían — no había ya ningún margen, ningún "nivel más" que encontrar. Lo que el público veía en la pantalla — dos corredores, uno al lado del otro, las caras desencajadas, los cuerpos balanceándose sobre la bicicleta con cada pedalada — era, en términos médicos, dos seres humanos en el límite fisiológico exacto donde el cuerpo todavía puede generar potencia pero ya no puede generar ninguna reserva.*
+*En los últimos tres kilómetros del Zoncolan, Bernal y Santi rodaron al límite absoluto de lo que sus cuerpos permitían — no había ya ningún margen, ningún "nivel más" que encontrar. Lo que el público veía en la pantalla — dos corredores, uno al lado del otro, las caras desencajadas, los cuerpos balanceándose sobre la bicicleta con cada pedalada — era, en términos médicos, dos seres humanos en el límite fisiológico exacto donde el cuerpo todavía puede generar potencia pero ya no puede generar ninguna reserva.*
 
 A doscientos metros de meta, ninguno de los dos tenía nada para un sprint.
 
@@ -92,7 +92,7 @@ La GC, después de la etapa catorce, no cambió en su orden: Santi seguía líde
 
 Pero algo había cambiado, y todos en el pelotón lo sabían.
 
-*El narrador lo resume así: antes del Zoncolan, la diferencia de dos segundos entre Santi y Bernal era una estadística — un número que podía cambiar en cualquier bonificación de etapa, en cualquier sprint reducido, en cualquier crono. Después del Zoncolan, la diferencia de dos segundos era otra cosa. Era la prueba de que, en el peor terreno posible, en las peores condiciones posibles, después de cuarenta minutos al límite absoluto, los dos corredores eran exactamente iguales. Ni Bernal podía soltar a Santi. Ni Santi podía soltar a Bernal.*
+*Antes del Zoncolan, la diferencia de dos segundos entre Santi y Bernal era una estadística — un número que podía cambiar en cualquier bonificación de etapa, en cualquier sprint reducido, en cualquier crono. Después del Zoncolan, la diferencia de dos segundos era otra cosa. Era la prueba de que, en el peor terreno posible, en las peores condiciones posibles, después de cuarenta minutos al límite absoluto, los dos corredores eran exactamente iguales. Ni Bernal podía soltar a Santi. Ni Santi podía soltar a Bernal.*
 
 *El Giro de Italia 2021, a falta de siete etapas, se había convertido oficialmente en lo que Bernal había insinuado en Cattolica y lo que ahora toda Italia repetía: una pelea entre gemelos.*
 
@@ -190,7 +190,7 @@ Santi se acostó.
 
 ---
 
-*El narrador cierra este capítulo con un dato que, en mayo de 2021, nadie en el pelotón conocía todavía, pero que la historia del ciclismo recordaría: la etapa catorce del Giro de Italia 2021, la subida al Zoncolan por Ovaro, fue, durante años, la única etapa de un Grand Tour en la que dos corredores cruzaron la meta, después de un ascenso de pendiente media superior al once por ciento, con una diferencia de tiempo de exactamente cero. No sería la última vez que Bernal y Santi compartirían ese tipo de empate. Pero sí fue la primera. Y la primera vez, en el ciclismo como en todo lo demás, es la que se queda grabada.*
+*Un dato que, en mayo de 2021, nadie en el pelotón conocía todavía, pero que la historia del ciclismo recordaría: la etapa catorce del Giro de Italia 2021, la subida al Zoncolan por Ovaro, fue, durante años, la única etapa de un Grand Tour en la que dos corredores cruzaron la meta, después de un ascenso de pendiente media superior al once por ciento, con una diferencia de tiempo de exactamente cero. No sería la última vez que Bernal y Santi compartirían ese tipo de empate. Pero sí fue la primera. Y la primera vez, en el ciclismo como en todo lo demás, es la que se queda grabada.*
 
 *Faltaban siete etapas.*
 

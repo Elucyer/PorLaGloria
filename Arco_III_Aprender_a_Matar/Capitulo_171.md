@@ -12,7 +12,6 @@
 
 ---
 
-## I. La etapa dieciocho — Yates
 
 La etapa dieciocho, ciento dieciocho kilómetros entre Riva del Garda y Stradella, era la más corta de todo el Giro —una distancia que en cualquier otra carrera habría sido considerada una etapa de "media jornada", pero que el itinerario había colocado deliberadamente entre dos jornadas alpinas exigentes, como una válvula de escape para las piernas del pelotón.
 
@@ -20,7 +19,7 @@ Una fuga de doce corredores se formó en los primeros diez kilómetros —tan nu
 
 Entre los doce, Simon Yates.
 
-*El narrador se permite, aquí, una breve digresión sobre lo que significa, para un corredor como Yates, la decisión de meterse en una fuga el penúltimo día de montaña de un Giro en el que ya no pelea por el podio. No es resignación. Es, en el lenguaje del pelotón, una "reconversión de objetivos" —y es, también, en el caso específico de Yates, una forma de reescribir, aunque sea parcialmente, la historia de su relación con este Giro. El hombre que en 2018 había llevado la maglia rosa durante trece días y la había perdido en la última semana, llevaba tres años cargando esa historia. Una victoria de etapa, en 2021, no borraba 2018. Pero lo cambiaba.*
+*Lo que significa, para un corredor como Yates, la decisión de meterse en una fuga el penúltimo día de montaña de un Giro en el que ya no pelea por el podio. No es resignación. Es, en el lenguaje del pelotón, una "reconversión de objetivos" —y es, también, en el caso específico de Yates, una forma de reescribir, aunque sea parcialmente, la historia de su relación con este Giro. El hombre que en 2018 había llevado la maglia rosa durante trece días y la había perdido en la última semana, llevaba tres años cargando esa historia. Una victoria de etapa, en 2021, no borraba 2018. Pero lo cambiaba.*
 
 A treinta kilómetros de meta, en el último repecho del día —una subida corta, de apenas dos kilómetros al cinco por ciento, que en cualquier otro contexto habría sido irrelevante—, Yates atacó a sus once compañeros de fuga.
 
@@ -42,7 +41,6 @@ Detrás, en el pelotón, Santi y Bernal habían rodado toda la etapa sin sobresa
 
 ---
 
-## II. La conversación con Caruso
 
 Esa noche, en el hotel de Stradella, Santi se encontró con Damiano Caruso en el pasillo del comedor —el italiano del Bahrain Victorious, que durante todo el Giro había rodado discreto, sin protagonismo, manteniéndose cuarto en la general a base de constancia más que de explosividad.
 
@@ -64,11 +62,10 @@ Santi se quedó un momento en el pasillo, pensando en la frase.
 
 *El Giro donde estuvieron Bernal y Reyes.*
 
-*El narrador anota algo que solo se entendería con el paso del tiempo: la frase de Caruso, dicha de manera casual en un pasillo de hotel en Stradella, terminaría siendo, casi palabra por palabra, la que usarían los historiadores del ciclismo para referirse al Giro de Italia 2021. No "el Giro de la pandemia", ni "el Giro del regreso del público a las carreteras" —aunque ambas cosas también fueron ciertas ese año. Simplemente: el Giro donde estuvieron Bernal y Reyes.*
+*Algo que solo se entendería con el paso del tiempo: la frase de Caruso, dicha de manera casual en un pasillo de hotel en Stradella, terminaría siendo, casi palabra por palabra, la que usarían los historiadores del ciclismo para referirse al Giro de Italia 2021. No "el Giro de la pandemia", ni "el Giro del regreso del público a las carreteras" —aunque ambas cosas también fueron ciertas ese año. Simplemente: el Giro donde estuvieron Bernal y Reyes.*
 
 ---
 
-## III. La etapa diecinueve — el último puerto
 
 La etapa diecinueve, ciento setenta y seis kilómetros entre Abbiategrasso y Alpe di Mera, tenía el último puerto de montaña del Giro: una subida de nueve kilómetros al nueve por ciento, con la meta en una estación de esquí del Piamonte.
 
@@ -118,7 +115,6 @@ Bernal se rió —la primera risa genuina que Santi le había visto en tres sema
 
 ---
 
-## IV. La cena de penúltima noche
 
 Esa noche, en el hotel de Alpe di Mera —un hotel de montaña pequeño, con vistas al Monte Rosa que ningún corredor, a esas alturas del Giro, tenía energía para apreciar—, la cena del MercadoLibre-FCV tuvo un invitado inesperado.
 
@@ -158,7 +154,6 @@ Ferretti miró a Santi un momento, como evaluando la pregunta.
 
 ---
 
-## V. La etapa veinte — el último día de pelotón
 
 La etapa veinte, ciento sesenta y cuatro kilómetros entre Verbania y Asti, era llana —la última oportunidad para los velocistas antes de la crono de Milán, una etapa que, para la general, era pura formalidad.
 
@@ -166,7 +161,7 @@ El pelotón rodó tranquilo durante la mañana —algo que, después de tres sem
 
 En un momento de la mañana, rodando uno al lado del otro en mitad del pelotón, Bernal y Santi conversaron —sin cámaras cerca, sin micrófonos, una conversación que ninguno de los dos contaría después en detalle, pero que ambos, por separado, describirían más tarde como "importante".
 
-*El narrador no va a inventar el contenido de esa conversación. Lo que sí puede decir es que, cuando el pelotón llegó a los últimos kilómetros de Asti y se preparó para el sprint masivo que decidiría la etapa, Bernal y Santi se separaron, cada uno hacia su propio equipo, con algo que parecía, desde la distancia, un acuerdo silencioso. No sobre la carrera. Sobre algo más grande, que ninguno de los dos, todavía, sabía nombrar del todo.*
+*El contenido de esa conversación quedó entre ellos. Cuando el pelotón llegó a los últimos kilómetros de Asti y se preparó para el sprint masivo que decidiría la etapa, Bernal y Santi se separaron, cada uno hacia su propio equipo, con algo que parecía, desde la distancia, un acuerdo silencioso. No sobre la carrera. Sobre algo más grande, que ninguno de los dos, todavía, sabía nombrar del todo.*
 
 La etapa terminó en sprint masivo, ganada por un velocista alemán. Ni Santi ni Bernal participaron del sprint —ambos cruzaron la meta dentro del pelotón principal, sin riesgos, sin cambios en la GC.
 
