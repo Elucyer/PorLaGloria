@@ -265,7 +265,7 @@ Strade Bianche: Pogačar (Santi 2.º) / Tirreno: Roglič (sin Santi) / Sanremo: 
 
 ## BLOQUE 10-B — FIN DE TEMPORADA EN COLOMBIA (Caps 193–200)
 **Salto de tiempo: noviembre-diciembre 2022. Sin competencia — apariciones, patrocinios, vida familiar.**
-**CAMBIO DE CANON IMPORTANTE: el primer contacto con Mariana López ya NO es 2026 — se adelantó a este bloque. Ver BIBLIA_PorLaGloria.md, sección VIII, actualizada.**
+**CAMBIO DE CANON IMPORTANTE: el primer contacto con Mariana Castañeda ya NO es 2026 — se adelantó a este bloque. Ver BIBLIA_PorLaGloria.md, sección VIII, actualizada.**
 
 | Cap | Título | Período | Estado | Notas |
 |-----|--------|---------|--------|-------|
@@ -273,7 +273,7 @@ Strade Bianche: Pogačar (Santi 2.º) / Tirreno: Roglič (sin Santi) / Sanremo: 
 | 194 | Los compromisos | Nov 2022 | ✅ | Catorce compromisos de Duarte: comercial de Claro, evento con niños, cena VIP de IWC en Bogotá, charla corporativa en Bancolombia donde Santi cambia el título de "resiliencia" por la verdad cruda. |
 | 195 | La Vuelta a Boyacá juvenil | 12 nov 2022 | ✅ | Acto de presencia (no corre) en Villa de Leyva. Conoce a Jefferson Buitrago, ganador juvenil de Tunja — origen de la futura expansión de la Fundación a Boyacá. |
 | 196 | El gimnasio de San José | 19 nov 2022 | ✅ | Inauguración del gimnasio/pista cubierta financiado con la reserva de liquidez de 2021 (cap 191). 29 niños del programa local. Escena con Hernando en la piedra del abuelo. |
-| 197 | La Clásica de Oriente | 26 nov 2022 | ✅ | **Acto de presencia en Marinilla, Antioquia — entrega de trofeo, no corre.** Mientras espera, arregla sin que lo reconozcan la cadena de una bicicleta de un niño. **Mariana López (24 años, fotógrafa freelance de Bogotá) lo fotografía sin saber quién es.** |
+| 197 | La Clásica de Oriente | 26 nov 2022 | ✅ | **Acto de presencia en Marinilla, Antioquia — entrega de trofeo, no corre.** Mientras espera, arregla sin que lo reconozcan la cadena de una bicicleta de un niño. **Mariana Castañeda (24 años, fotógrafa freelance de Bogotá) lo fotografía sin saber quién es.** |
 | 198 | La foto | 28 nov–2 dic 2022 | ✅ | La foto se viraliza (de 1.000 a 15.000 seguidores de Mariana en 48h). Santi le escribe "Gracias por esa foto." Ella responde "No sabía quién eras cuando la tomé. Por eso quedó bien." Tres mensajes — después, silencio de años. |
 | 199 | Diciembre en Laureles | Dic 2022 | ✅ | Sesión Garmin, episodio especial del podcast (Santi entrevista a Julián), cena con Alejandro Vélez (Alto Performance). Hernando le muestra el mirador donde el abuelo le enseñó a andar en bicicleta. Rusconi propone reducir riesgo de entrenamiento en carretera abierta tras la caída. |
 | 200 | El cierre de año | 20 dic 2022 | ✅ | Reunión anual con Duarte, Patiño, Salcedo. Bruto 2022: 5.979.000 € (-10% vs 2021, mejor de lo proyectado en junio). Fundación llega a 7 municipios (incluye Boyacá). Primeros acercamientos informales de otros equipos para 2023. Cierra con el nombre de Mariana "guardado, sin que nadie lo supiera, en un rincón del teléfono." |

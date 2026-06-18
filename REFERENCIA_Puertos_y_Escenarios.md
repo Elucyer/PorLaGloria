@@ -148,7 +148,7 @@
 - **Distancia (desde Luz-Saint-Sauveur):** 19 km
 - **Pendiente media:** 7.3%
 - **Pendiente máxima:** 13%
-- **Característica narrativa:** Escenario del accidente de 2025 en la bajada (Arco IV).
+- **Característica narrativa:** Escenario del accidente de 2024 en la bajada (Arco IV).
 
 ### L'Alpe d'Huez (Alpes franceses)
 - **Altitud cima:** 1,850 m s.n.m.

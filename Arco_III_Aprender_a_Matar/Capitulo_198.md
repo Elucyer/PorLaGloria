@@ -22,7 +22,7 @@ Lo que pasó después tomó a Mariana completamente por sorpresa.
 
 La nota del portal regional fue retomada, en menos de seis horas, por dos medios deportivos nacionales. Después por una cuenta de Twitter dedicada a "momentos humanos del deporte colombiano", que la publicó con el texto: *"Esto es lo que hace un campeón cuando cree que nadie lo está mirando."*
 
-Para la noche del veintinueve, la foto tenía más de cuarenta mil "me gusta" en la cuenta de esa página de Twitter, y el nombre de Mariana López —la fotógrafa que la había tomado— empezaba a circular junto a la imagen, generando, en cuestión de horas, un salto de seguidores en su propia cuenta que pasó de mil a casi nueve mil en dos días.
+Para la noche del veintinueve, la foto tenía más de cuarenta mil "me gusta" en la cuenta de esa página de Twitter, y el nombre de Mariana Castañeda —la fotógrafa que la había tomado— empezaba a circular junto a la imagen, generando, en cuestión de horas, un salto de seguidores en su propia cuenta que pasó de mil a casi nueve mil en dos días.
 
 — Esto no me había pasado nunca —le dijo a una amiga, por teléfono, la noche del treinta de noviembre, todavía procesando la velocidad con que la imagen se había movido—. Yo solo quería fotografiar el pueblo.
 
@@ -50,7 +50,7 @@ Santi le pidió a Duarte que le mandara el enlace. Cuando la vio —la imagen de
 
 — ¿Quién la tomó? —preguntó.
 
-— Una fotógrafa de Bogotá —dijo Duarte—. Mariana López. Veinticuatro años, freelance. Nadie la conocía hasta ayer.
+— Una fotógrafa de Bogotá —dijo Duarte—. Mariana Castañeda. Veinticuatro años, freelance. Nadie la conocía hasta ayer.
 
 ---
 

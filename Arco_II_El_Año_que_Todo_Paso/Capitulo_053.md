@@ -420,7 +420,7 @@ Lo supo tres días después, cuando la editora de la Gazzetta la eligió para la
 
 Y fue esa portada — recortada con tijeras de una copia que alguien dejó en una consulta de Roma en algún momento del año siguiente — la que años después aparecería pegada con cinta adhesiva en la primera página del cuaderno de trabajo de una fotógrafa bogotana que en mayo de 2018 estaba terminando su carrera en la Universidad Nacional y que no sabía nada de ciclismo ni tenía ningún motivo para saber nada de ciclismo salvo que la imagen de ese chico mirando hacia algo fuera del encuadre le decía algo que no sabía cómo nombrar.
 
-Mariana López lo diría así, años después, cuando alguien le preguntara:
+Mariana Castañeda lo diría así, años después, cuando alguien le preguntara:
 
 *Una foto que habla de lo que viene antes de que venga. Eso era.*
 

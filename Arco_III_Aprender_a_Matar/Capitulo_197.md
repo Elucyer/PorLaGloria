@@ -40,7 +40,7 @@ El niño, todavía sin reconocerlo del todo, asintió y corrió de vuelta al par
 
 Lo que Santi no vio —porque estaba de espaldas, concentrado en la cadena, sin ninguna razón para mirar hacia los lados— fue que, desde la acera de enfrente, una mujer joven con una cámara réflex colgada al cuello había levantado el lente y disparado tres veces, rápido, sin pensarlo, en el instante exacto en que Santi se agachaba junto a la bicicleta con la cadena en las manos.
 
-Mariana López tenía veinticuatro años, había llegado a Marinilla esa mañana desde Bogotá por encargo de una revista cultural regional que pagaba poco pero que le daba la libertad de fotografiar lo que ella considerara interesante, no lo que la organización de la carrera quisiera mostrar. No le interesaba el pelotón, ni los patrocinadores, ni la llegada. Le interesaba el pueblo: los balcones, los niños jugando fútbol en la calle cerrada, los viejos sentados en las puertas de los almacenes viendo pasar la tarde.
+Mariana Castañeda tenía veinticuatro años, había llegado a Marinilla esa mañana desde Bogotá por encargo de una revista cultural regional que pagaba poco pero que le daba la libertad de fotografiar lo que ella considerara interesante, no lo que la organización de la carrera quisiera mostrar. No le interesaba el pelotón, ni los patrocinadores, ni la llegada. Le interesaba el pueblo: los balcones, los niños jugando fútbol en la calle cerrada, los viejos sentados en las puertas de los almacenes viendo pasar la tarde.
 
 No tenía idea de quién era el hombre que acababa de arreglar una cadena de bicicleta para un niño desconocido. Vestía una camiseta sin ningún logo visible, una gorra sin marca, y se movía entre la gente del pueblo con la misma naturalidad de cualquiera.
 
