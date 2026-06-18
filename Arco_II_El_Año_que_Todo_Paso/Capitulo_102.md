@@ -2,6 +2,8 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 102 — El Arcoíris (29 de septiembre de 2019)
 
+*Campeonato del Mundo en Ruta UCI 2019 — Octava y última vuelta del circuito de Harrogate. Ataque decisivo en el Jenkin Road.*
+
 ---
 
 El descenso del Jenkin Road.

@@ -4,6 +4,13 @@
 
 ---
 
+*Tour de l'Avenir 2017 — Etapa 8 (reina). Albertville → Sainte-Foy-Tarentaise.*
+*120,5 km. Beaufortain: 70 km ondulados con varios puertos de 2.ª y 3.ª categoría sin nombre destacado, antes del ascenso final.*
+*Ascenso final: 4,9 km al 8,7% de media, rampas al 12%. Llegada en alto, 1.500 m de altitud.*
+*26 de agosto de 2017.*
+
+---
+
 La noche anterior a la etapa reina, el director técnico de la selección Colombia se llamaba Mauricio Patiño y tenía la cara curtida de quien ha pasado veinte años en carreteras de tres continentes. Reunió al equipo a las ocho de la tarde en la habitación del hotel de Albertville que hacía las veces de sala de reuniones: seis ciclistas en sillas de plástico, el portátil sobre la cama, el proyector improvisado contra la pared blanca.
 
 La imagen en la pared era el perfil de altimetría de la etapa 8.

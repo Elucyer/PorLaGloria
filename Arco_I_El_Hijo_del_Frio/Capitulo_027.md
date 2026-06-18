@@ -4,6 +4,12 @@
 
 ---
 
+*Vuelta del Porvenir 2017 — Etapa 5 (reina). Muzo → Puerto de Boyacá.*
+*43 km totales: 10 km de llano de salida + 1 km de transición + 32 km de ascenso desde los 980 m hasta los 2.800 m.*
+*Perfil del puerto: km 0-12 al 7% continuo · km 12-14 respiro al 5,5% · km 14-26 vuelve al 7% · km 26-32 rampas al 8-9% (los seis kilómetros decisivos).*
+
+---
+
 Muzo amaneció con neblina baja y olor a tierra roja.
 
 Era la clase de neblina que no preocupa a los organizadores —fina, sin lluvia, la que el sol borra en media hora— y que en cambio sí preocupa a los corredores, porque en las curvas cerradas de montaña la carretera mojada tiene una manera de traicionar que el asfalto seco no conoce. Santi la vio desde la ventana del hotel a las seis y media de la mañana y calculó: para las nueve, cuando saliera la carrera, la neblina habría cedido. Para el mediodía, cuando llegaran al kilómetro veinticinco del puerto, el sol estaría alto y el frío sería el frío limpio del altiplano, no el frío húmedo de la madrugada.

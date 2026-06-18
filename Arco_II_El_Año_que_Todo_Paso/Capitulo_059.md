@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 59 — Burgos III: La primera
 
+*Vuelta a Burgos 2018 — Etapa 5 (final). Burgos → Alto de la Muela. 140 km.*
+*Alto de la Muela: últimos 17 km al 9,5% de media, tramo de 2 km al 13% en la parte central, cima a 1.800 m. Viento de poniente en contra en los kilómetros finales.*
+
 ---
 
 La etapa cinco salió del centro de Burgos.

@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 75 — Tour de Romandia II: Thyon 2000 (Etapas 3–4, 1–2 de mayo de 2019)
 
+*Tour de Romandía 2019 — Etapas 3 y 4.*
+*Etapa 3 — Nyon → interior del cantón de Vaud. 122 km, Pays d'Enhaut.*
+*Etapa 4 — Llegada en alto a Thyon 2000. Subida: 16 km al 8% de media, rampa al 11% en el km 9, altitud 2.000 m, muro final de 2 km al 9,5%.*
+
 ---
 
 La etapa tres fue el día intermedio.

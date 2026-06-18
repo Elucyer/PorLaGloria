@@ -2,6 +2,13 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 124 — Tour VII: El silencio antes de los Alpes (Etapas 10–14, 8–12 de septiembre de 2020)
 
+*Tour de Francia 2020 — Etapas 10 a 14.*
+*Etapa 10 — Île d'Oléron → Île de Ré. 170 km, llano costero.*
+*Etapa 11 — Châtelaillon-Plage → Poitiers. 167 km. Fuga de Søren Kragh Andersen.*
+*Etapa 12 — Chauvigny → Sarran. 218 km, la etapa más larga del Tour 2020.*
+*Etapa 13 — Châtel-Guyon → Le Puy Mary (Pas de Peyrol). 191,5 km. Subida final: 5,4 km al 8,1%, últimos 2,4 km en doble dígito, alt. 1.589 m. Daniel Martínez gana.*
+*Etapa 14 — de transición.*
+
 ---
 
 Las cinco etapas entre el día de descanso y el Grand Colombier fueron las cinco etapas del Tour donde nadie de los tres atacó de verdad.

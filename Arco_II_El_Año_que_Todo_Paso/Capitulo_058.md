@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 58 — Burgos II: La Sierra de la Demanda
 
+*Vuelta a Burgos 2018 — Etapa 3. Salas de los Infantes → Lagunas de Neila. 142 km.*
+*Repecho intermedio a 4 km de Neila: 4 km al 6%. Puerto final: 8 km — km1 al 4%, km2 al 8%, km3-5 al 11%, cima a 2.115 m.*
+
 ---
 
 La etapa tres salió de Salas de los Infantes a las doce del mediodía.

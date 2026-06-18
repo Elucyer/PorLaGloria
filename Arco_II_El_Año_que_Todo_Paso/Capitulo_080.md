@@ -2,6 +2,8 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 80— Giro: CRI San Marino (Etapa 9, 19 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapa 9 (CRI), en detalle. Riccione → San Marino. 34,8 km. Últimos 6 km al 8%.*
+
 ---
 
 La contrarreloj de San Marino era la etapa que Ferretti había marcado en rojo desde enero.

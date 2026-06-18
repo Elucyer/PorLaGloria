@@ -2,6 +2,13 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 44 — Los días del gregario (Calabria–Véneto, 11–18 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapas 7 a 13.*
+*Etapa 7 — Pizzo → Praia a Mare. 159 km, sprint masivo.*
+*Etapa 8 — Praia a Mare → Santuario de Montevergine. 209 km. Subida final: 11 km al 6%.*
+*Etapa 9 — → Gran Sasso/Campo Imperatore. 225 km. Subida final: 10 km al 5%, cima a 2.135 m, viento cruzado de 40-50 km/h.*
+*Etapas 10-12 — transición, sin incidentes destacados.*
+*Etapa 13 — Ferrara → Nervesa della Battaglia. 180 km, sprint masivo (Viviani gana).*
+
 ---
 
 La mañana de la Etapa 7 amaneció nublada sobre Pizzo y el mar Tirreno estaba gris y quieto cuando el autobús salió del hotel a las ocho y veinte. Ferretti no tuvo que decir nada especial. Era una etapa de sprint masivo —ciento cincuenta y nueve kilómetros hasta Praia a Mare— y el trabajo estaba claro: pelotón, hidratación, llegar sin problemas.

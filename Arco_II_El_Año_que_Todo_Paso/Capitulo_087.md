@@ -2,6 +2,11 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 87 — Giro VI: El Stelvio (Etapa 16, 28 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapa 16. 194 km. El Mortirolo, la Gavia, el Stelvio.*
+*Mortirolo (desde Mazzo): 12,6 km al 10,9% de media, rampas al 18%.*
+*Gavia: cima a 2.618 m, el techo frío del Giro.*
+*Stelvio (desde Prato, final): 21,5 km al 7,4% de media, 48 curvas, cima a 2.758 m.*
+
 ---
 
 El despertador sonó a las cinco y cuarenta y cinco.

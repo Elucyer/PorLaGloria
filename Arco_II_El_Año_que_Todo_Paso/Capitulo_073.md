@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 73 — París-Niza III: El Turini y la Madone (Etapas 7–8, 16–17 de marzo de 2019)
 
+*París-Niza 2019 — Etapas 7 y 8 (finales).*
+*Etapa 7 — Niza → Col de Turini. 120 km. Pie del puerto en el km 97; 19 km de ascenso, muro final de 2 km al 9%.*
+*Etapa 8 — Niza → Niza (circuito) → La Madone de Gorbio. 143 km. Col de Castillon (2.ª cat., km 94 de etapa) + La Madone: 17 km al 8,5%.*
+
 ---
 
 La etapa siete salía de Niza a las once de la mañana.

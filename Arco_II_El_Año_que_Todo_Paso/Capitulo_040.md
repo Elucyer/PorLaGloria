@@ -4,6 +4,12 @@
 
 ---
 
+*Giro de Italia 2018 — Etapa 1 (prólogo). Jerusalén.*
+*CRI de 9,7 km. Primeros 2 km de adoquín (Puerta de Jaffa, calle David); a partir del km 3 la calle se abre. Viento cruzado de 16 km/h en los sectores 5 y 6. Llegada en llano frente al edificio de la Knesset.*
+*Temperatura: 31°C al mediodía, 33°C a las 15:00. Primer corredor sale a las 13:45; último a las 17:17.*
+
+---
+
 El autobús salió del hotel a las siete y diez de la mañana.
 
 Eran once corredores y cuatro miembros del staff, más los dos mecánicos que fueron por separado en la furgoneta con las bicicletas. El trayecto desde el hotel Sheraton hasta el área de salida de la contrarreloj duraba doce minutos, pero Duchêne siempre llegaba treinta antes —costumbre de los directores que aprendieron a correr en una época en que las cosas fallaban con más regularidad y el tiempo de margen era la diferencia entre salir y no salir.

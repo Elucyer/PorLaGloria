@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 62 — Il Lombardia
 
+*Il Lombardia 2018. Bérgamo → Como. 253 km.*
+*Colma di Sormano (km 140): 2 km al 25%. Civiglio (km 231, a 22 km de meta): 9-11%, tramo central al 14%.*
+*Nibali gana. Santi pierde el grupo de cabeza por 5 segundos en la cima del Civiglio.*
+
 ---
 
 Los Monumentos no son carreras.

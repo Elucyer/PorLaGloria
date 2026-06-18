@@ -2,6 +2,8 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 164 — Los últimos veinticinco kilómetros (25 de abril de 2021)
 
+*Lieja-Bastoña-Lieja 2021 — últimos 25 km. Côte de Saint-Nicolas (a 6 km de meta) y la llegada en el Boulevard d'Avroy.*
+
 ---
 
 El valle del Ourthe.

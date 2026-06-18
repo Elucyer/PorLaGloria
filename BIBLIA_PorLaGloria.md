@@ -177,11 +177,13 @@ Creado por Julián Estrada en abril de 2020 durante el confinamiento de COVID. S
 
 ### VIII. EL ROMANCE — MARIANA Y SANTI
 
-**El primer contacto:** 2026. Mariana está en San José de la Montaña trabajando en un proyecto documental sobre los municipios más fríos de Antioquia. A las 5:40 de la mañana ve a un hombre salir pedaleando en la niebla. Dispara sin pensarlo. La foto —Santi de espaldas, la carretera desapareciendo en la oscuridad, el vapor del aliento visible en el frío— se vuelve viral en Instagram en 48 horas. Santi la ve. Rastrea el origen. La sigue. Ella tarda tres semanas en darse cuenta.
+**El primer contacto (revisado — ahora en el Arco III, no en el Arco V):** Octubre de 2022, en una carrera departamental en el oriente antioqueño donde Santi hace acto de presencia tras el cierre de temporada (sin competir — recuperándose de la clavícula). Mariana López, veinticuatro años, bogotana, fotógrafa freelance que apenas empieza su carrera, está ahí por encargo de una revista regional, no para fotografiar a Santi sino la carrera de base — los corredores aficionados, los padres en la meta, el ciclismo de pueblo que nadie más fotografía. No le interesa el ciclismo profesional ni sabe casi nada de él. En un momento en que nadie lo está mirando —Santi apartado de la zona de prensa, agachado hablando con un niño que perdió la cadena de la bicicleta a mitad de carrera—, Mariana dispara sin pensarlo, sin saber siquiera quién es. La foto no es de "Santi el campeón": es de un hombre cualquiera ayudando a un niño. Se vuelve viral cuando alguien la identifica y la repostea.
 
-**El primer mensaje:** Santi escribe *"esa foto soy yo"* y nada más. Ella responde *"lo sé."* Ese es el inicio.
+**El primer mensaje:** Santi la encuentra en redes, le escribe *"gracias por esa foto"* y nada más. Ella, que para entonces ya sabe quién es, responde *"no sabía quién eras cuando la tomé. Por eso quedó bien."* Ahí termina, por años, todo contacto entre los dos — un intercambio de tres mensajes que ninguno de los dos borra, pero que tampoco continúa.
 
-**El documental:** Mariana propone seguirlo durante una temporada con cámara fotográfica — no video, no prensa, solo fotos. Él acepta porque ella es la única persona que lo mira sin ver al ciclista primero.
+**El silencio de los años intermedios:** No se vuelven a hablar hasta 2026. Mariana sigue su carrera de fotografía documental por su cuenta; Santi sigue la suya. Cuando se reencuentran —ella otra vez en Antioquia, otro proyecto, otra foto que se vuelve viral, esta vez la de la niebla en San José de la Montaña— ninguno de los dos lo nombra como "la segunda vez", pero los dos lo saben.
+
+**El documental:** Mariana propone seguirlo durante una temporada con cámara fotográfica — no video, no prensa, solo fotos. Él acepta porque ella es la única persona que lo mira sin ver al ciclista primero, y porque ya lo había hecho una vez, cuatro años antes, sin saberlo.
 
 **La tensión:** El romance es lento, incómodo, genuino. Primer quiebre: Arco IV, cuando Santi está en el hospital tras el accidente de 2024 y ella no sabe si su rol es de periodista o de algo más. Segundo quiebre: Arco VI, tras el accidente de 2029.
 

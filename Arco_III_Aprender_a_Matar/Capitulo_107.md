@@ -2,6 +2,8 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 107 — Lombardia III: El Lago di Como — llegada en Como (Il Lombardia, km 170–243, 12 de octubre de 2019)
 
+*Il Lombardia 2019 — km 170 a 243 (final). Civiglio, San Fermo della Battaglia y la llegada a Como.*
+
 ---
 
 El descenso del Ghisallo no fue el problema.

@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 78 — Giro I: Bologna (Etapas 1–4, 11–14 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapas 1 a 4.*
+*Etapa 1 (CRI) — Calles de Bolonia. 8,2 km. Maglia Rosa: Roglič.*
+*Etapas 2-4 — Bolonia hacia la Toscana y la costa, jornadas llanas de sprint masivo (Ackermann, Ewan). Caída de Dumoulin en la etapa 4.*
+
 ---
 
 El año anterior Santi había llegado a Bolonia como un nombre sin contexto. El chico colombiano del equipo belga que había ganado el Giro sub-23 y al que nadie había puesto en la lista de candidatos porque nadie ponía a los debutantes de dieciocho años en las listas de candidatos del Giro de Italia.

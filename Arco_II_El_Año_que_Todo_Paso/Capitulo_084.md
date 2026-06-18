@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 84 — Giro IV: Courmayeur (Etapa 14, 25 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapa 14. Saint-Vincent → Courmayeur. 131 km.*
+*Primeros 80 km ondulados por el Valle de Aosta. Descenso del Joux: 15 km técnico.*
+*Subida final: 8,5 km al 9,1%, de Courmayeur al Skyway Monte Bianco.*
+
 ---
 
 Ciento treinta y un kilómetros de Saint-Vincent a Courmayeur.

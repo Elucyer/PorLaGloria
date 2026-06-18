@@ -2,6 +2,11 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 88 — Giro VII: La Defensa (Etapas 17–19, 29–31 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapas 17 a 19.*
+*Etapa 17 — Commezzadura → Anterselva. 181 km. Passo del Giovo: 16 km, ataque en el km 7.*
+*Etapa 18 — Valdaora → Santa Maria di Sala. 222 km, llano, sin incentivo para atacar en GC.*
+*Etapa 19 — Treviso → San Martino di Castrozza. 151 km. Llegada final: 4 km al 7%, a los pies de las Pale di San Martino.*
+
 ---
 
 La mañana después del Stelvio, Santi no pudo levantarse de la cama.

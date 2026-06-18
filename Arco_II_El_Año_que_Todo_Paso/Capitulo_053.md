@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 53 — Roma (27 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 21 (final). Roma.*
+*115 km. Circuito de 8 km, 14 vueltas. Salida y llegada en Via della Conciliazione. Sprint masivo (Bennett gana).*
+*Podio final: Froome 1º, Reyes 2º, López 3º.*
+
 ---
 
 Se despertó a las siete.

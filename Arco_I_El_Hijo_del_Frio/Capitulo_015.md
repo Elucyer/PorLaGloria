@@ -4,6 +4,12 @@
 
 ---
 
+*Clásico RCN Juvenil 2016 — Etapa 4 (reina). Neira → Alto de Minas, vertiente de Caldas.*
+*41 km de ascenso puro. Pendiente media 4,2%; cambio de carácter en el km 30 (sube al 6-7%, pico del 9% en un tramo de 200 m); últimos 11 km entre el 7% y el 7,5%. Altitud en cima: 2.352 m.*
+*140 km totales de etapa. Salida de Neira: 8:45 a.m.*
+
+---
+
 Cuarenta y un kilómetros desde Neira hasta la cima.
 
 La carretera sale del pueblo por el norte, pasa por el matadero municipal donde a las nueve de la mañana todavía había camiones estacionados, cruza la quebrada por un puente de cemento con la barandilla pintada de amarillo, y empieza a subir. Despacio al principio —el cuatro por ciento honesto, casi cómodo, la clase de pendiente que en las piernas se siente como andar en llano pero que va sumando metros sobre el mar y va cambiando el aire y va cambiando, muy lentamente, el tipo de hombre que hay que ser para seguir pedaleando.

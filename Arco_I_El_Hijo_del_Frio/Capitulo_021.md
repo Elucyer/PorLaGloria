@@ -4,6 +4,12 @@
 
 ---
 
+*Vuelta de la Juventud de Colombia 2017. Ocho etapas — Eje Cafetero, Cauca, Valle del Cauca.*
+*Llegadas en alto: Etapa 4, Alto de Miraflores (32 km desde Manizales, últimos 15 km al 6,5%). Etapa 6, CRI Buga (28 km, llano con viento cruzado). Etapa 7 (reina), Alto del Vino (36 km desde Buga: 18 de aproximación + 18 de ascenso puro, pendiente media 6,5%, rampas al 10% en los últimos 4 km, altitud en cima 1.950 m).*
+*Salida: Armenia, primer jueves de abril de 2017.*
+
+---
+
 La segunda vez que corrió la Vuelta de la Juventud de Colombia, Santi sabía lo que era perder frente a Arroyave.
 
 Lo que no sabía era cómo era ganar sin él.

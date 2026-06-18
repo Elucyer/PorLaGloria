@@ -2,6 +2,11 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 74 — Tour de Romandia I: Neuchâtel (Prólogo y Etapas 1–2, 28–29 de abril de 2019)
 
+*Tour de Romandía 2019 — Prólogo y Etapas 1-2.*
+*Prólogo — CRI urbana de Neuchâtel. 3,4 km. Subida final de 600 m al 5% en el km 2,8.*
+*Etapa 1 — Neuchâtel → La Chaux-de-Fonds. 147 km, hacia el Jura, llegada con repecho final al 4%.*
+*Etapa 2 — Neuchâtel → sur. 160 km. Col du Mollendruz (km 120, 2.ª cat.): 15 km al 5,5%.*
+
 ---
 
 Suiza en abril tenía una calidad de luz que Santi no había encontrado en ningún otro lugar donde hubiera corrido.

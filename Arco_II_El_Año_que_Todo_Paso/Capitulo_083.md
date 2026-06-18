@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 83— Giro: El Lago Serrù (Etapa 13, 24 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapa 13. Pinerolo → Ceresole Reale (Lago Serrù). 196 km.*
+*Col d'Izoard: 14 km al 7,3%. Colle dell'Agnello: 21 km al 6,9%, alt. 2.744 m (el puerto más alto del Giro 2019). Lago Serrù (final): 12 km al 5,6%.*
+
 ---
 
 Ciento noventa y seis kilómetros de Pinerolo a Ceresole Reale.

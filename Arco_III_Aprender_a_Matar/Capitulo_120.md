@@ -2,6 +2,8 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 120 — Tour III: El viento de Provenza (Etapa 3, Niza–Sisteron, 31 de agosto de 2020)
 
+*Tour de Francia 2020 — Etapa 3. Niza → Sisteron. 198 km. Tres puertos menores, viento de Provenza como factor decisivo.*
+
 ---
 
 La tercera etapa del Tour de France 2020 fue la etapa que el pelotón no esperaba y que Roglič había preparado.

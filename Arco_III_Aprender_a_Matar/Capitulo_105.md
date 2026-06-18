@@ -2,6 +2,9 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 105 — Lombardia I: La carrera de las hojas muertas (Il Lombardia, Bérgamo–Como, 12 de octubre de 2019)
 
+*Il Lombardia 2019. Bérgamo → Como. 243 km.*
+*Madonna del Ghisallo (km 91, alt. 754 m): primeros 4 km al 4%, últimos 4 km al 7,5%. Civiglio (km 213, alt. 607 m): 6 km al 9%. San Fermo della Battaglia (km 234, alt. 409 m): a 9 km de meta, el puerto decisivo.*
+
 ---
 
 El once de octubre llegó a Bergamo con el jersey arcoíris en la bolsa.

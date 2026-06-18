@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 90 — Giro VIII: El Monte Avena (Etapa 20, 1 de junio de 2019)
 
+*Giro de Italia 2019 — Etapa 20. 174 km. Croce d'Aune (a 40 km de meta) + Monte Avena (final).*
+*Monte Avena: primeros 5 km al 6%, tramo de 3 km al 7-7,5%, últimos 3 km de vuelta al 6%.*
+
 ---
 
 Santi se despertó antes de que sonara el despertador.

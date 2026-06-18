@@ -4,6 +4,14 @@
 
 ---
 
+*Clásico RCN Juvenil 2016 — categoría Sub-17/Sub-23, etapa por equipos departamentales.*
+*Etapa 1 — Salamina → Riosucio. 106 km. Terreno ondulado, sin puertos de categoría. Llegada en sprint reducido.*
+*Etapa 2 — Riosucio → Anserma. Puerto: Alto de Manzanares (12 km al 6% de media, tramos al 8%).*
+*Etapa 3 — Anserma → Neira. 93 km de transición.*
+*Etapa 4 (reina) — Neira → Alto de Minas (vertiente de Caldas). 140 km totales. Ascenso final: 41 km desde Neira, pendiente media 4,2%, últimos 11 km entre el 7% y el 8% — "el cambio de carácter" del kilómetro treinta.*
+
+---
+
 El Clásico RCN.
 
 Hernando Reyes había pronunciado ese nombre durante toda la infancia de Santi con la reverencia específica que los hombres guardan para las cosas que les importaron demasiado y no pudieron completar. No con amargura —su padre no era un hombre amargo— sino con esa economía de quien mide bien cuánto peso puede dar a una palabra antes de que el peso la deforme. El Clásico RCN era la carrera más antigua del calendario colombiano. Era donde Lucho Herrera había mostrado al mundo que los colombianos podían subir montañas que los europeos no podían subir. Era donde su padre había pedaleado tres ediciones sin ganar nunca, siendo bueno pero no siendo suficiente, siendo el hombre que hacía posible la victoria de otros.

@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 85 — Giro V: Ivrea-Como y el Segundo Descanso (Etapa 15, 26–27 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapa 15. Ivrea → Como. 232 km, la etapa más larga del Giro.*
+*Cotas de 2.ª/3.ª categoría: Col de la Maddalena, Montello, subida final al lago — ninguna de la entidad de Agnello o Courmayeur.*
+
 ---
 
 La Maglia Rosa pesa.

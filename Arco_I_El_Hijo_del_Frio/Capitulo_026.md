@@ -4,6 +4,15 @@
 
 ---
 
+*Vuelta del Porvenir 2017. Cinco etapas — Boyacá y Cundinamarca.*
+*Etapa 1 — Circuito de Tunja. 108 km, dos repechos menores.*
+*Etapa 2 — Duitama → Sogamoso. Puerto: Alto del Vino (Boyacá).*
+*Etapa 3 — Altiplano → Zipaquirá, ascenso final.*
+*Etapa 4 — De transición.*
+*Etapa 5 (reina) — Muzo → Puerto de Boyacá, 43 km con 32 de ascenso puro hasta los 2.800 m.*
+
+---
+
 La Vuelta del Porvenir olía a asfalto caliente y a empanaditas de pipián vendidas al borde de la carretera.
 
 Era agosto de 2017, Santi tenía diecisiete años, y por primera vez en su vida corría en una carrera que era más grande que él —no físicamente, no en kilómetros o puertos, sino en lo que el nombre significaba. La Vuelta del Porvenir era el filtro. El punto donde el ciclismo colombiano separaba a los que iban a tener una carrera de los que iban a tener una historia. Lucho Herrera la había ganado. Nairo la había ganado. Bernal la había ganado. El país citaba esa lista con la reverencia que se da a los hechos que parecen leyes naturales.

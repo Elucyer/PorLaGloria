@@ -2,6 +2,8 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 106 — Lombardia II: El ataque en el Ghisallo (Il Lombardia, km 91–170, 12 de octubre de 2019)
 
+*Il Lombardia 2019 — km 91 a 170. Madonna del Ghisallo y el tramo posterior. 179 corredores al inicio.*
+
 ---
 
 Los primeros ciento sesenta kilómetros fueron los kilómetros del pelotón en transición.

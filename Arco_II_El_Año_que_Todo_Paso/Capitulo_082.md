@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 82 — Giro III: Pinerolo (Etapas 10–12, 21–23 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapas 10 a 12.*
+*Rávena → Módena. 145 km, llano, sprint (Ackermann gana).*
+*Hacia Pinerolo. 158 km. Colle del Monginevro: 11 km al 5,5%, alt. 1.850 m. Benedetti gana desde la fuga.*
+
 ---
 
 Las etapas diez, once y doce fueron las etapas que existían para llegar a la trece.

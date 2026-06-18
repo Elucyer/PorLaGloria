@@ -2,6 +2,8 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 163 — La Roche aux Faucons (25 de abril de 2021)
 
+*Lieja-Bastoña-Lieja 2021 — La Roche aux Faucons (km 228 de 259). Tramo clave al 5%.*
+
 ---
 
 La base de la Roche aux Faucons.

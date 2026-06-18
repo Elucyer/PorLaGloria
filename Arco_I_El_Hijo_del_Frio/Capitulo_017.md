@@ -42,6 +42,10 @@ Santi había escuchado ese nombre antes —en los comentarios del ciclismo colom
 
 ---
 
+*Vuelta del Porvenir Antioqueño 2016. Categoría Sub-23. Cuatro etapas — oriente antioqueño.*
+*Etapa 1 — Rionegro. Etapa 2 — El Retiro. Etapa 3 — El Santuario. Etapa 4 (reina) — Alto de Palmas.*
+*Pelotón de 42 corredores de los principales clubes departamentales.*
+
 La Vuelta del Porvenir Antioqueño fue en septiembre.
 
 Cuatro etapas por el oriente antioqueño —Rionegro, El Retiro, El Santuario, Alto de Palmas— con un pelotón de cuarenta y dos corredores de los mejores clubes del departamento. Santi había corrido con varios de ellos en pruebas menores durante el año y los conocía: sabía quién atacaba temprano y se reventaba, quién guardaba para el final, quién tenía mejor crono que montaña.
@@ -95,6 +99,8 @@ Antes de dormirse escribió en la libreta, con la misma letra que usaba para los
 Debajo añadió: *Arroyave*.
 
 ---
+
+*Vuelta de la Juventud de Colombia 2016. Ocho etapas, doce equipos Sub-23 — Manizales y el Eje Cafetero. Etapa 4: Alto de la Línea, 40 km desde Armenia, cima a 3.400 m.*
 
 La Vuelta de la Juventud de Colombia arrancó en Manizales el primer jueves de octubre.
 

@@ -2,6 +2,10 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 119 — Tour II: Tres tiburones en calma (Etapas 2–3, 30–31 de agosto de 2020)
 
+*Tour de Francia 2020 — Etapas 2 y 3.*
+*Etapa 2 — Niza → Niza. Col de la Colmiane y Col d'Èze, dos puertos de primer nivel. Sprint final sin relevancia de GC.*
+*Etapa 3 — hacia Sisteron.*
+
 ---
 
 En el ciclismo de los Grand Tours, los primeros días no son de transición.

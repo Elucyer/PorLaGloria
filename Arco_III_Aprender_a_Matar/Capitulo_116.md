@@ -2,6 +2,10 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 116 — Strade Bianche II: La carrera sin público (Strade Bianche, Siena–Siena, 184 km, 1 de agosto de 2020)
 
+*Strade Bianche 2020. Siena → Siena. 184 km, 11 sectores de grava. Carrera sin público por protocolo COVID.*
+*Sector 1 (km 24): 4,4 km al 5%. Monte Sante Marie: el sector más exigente del recorrido.*
+*Calor: 32°C. 138 corredores en la salida.*
+
 ---
 
 La rueda de prensa fue el treinta y uno de julio, la tarde antes de la carrera.

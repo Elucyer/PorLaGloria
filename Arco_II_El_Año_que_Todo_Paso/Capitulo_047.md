@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 47 — La contrarreloj (Trento–Rovereto, 22 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 16 (CRI). Trento → Rovereto.*
+*34,2 km. Cuatro curvas pronunciadas en los primeros 12 km, sección ondulada intermedia, bajada final de 8 km hacia Rovereto.*
+
 ---
 
 Treinta y cuatro kilómetros y doscientos metros contra el reloj.

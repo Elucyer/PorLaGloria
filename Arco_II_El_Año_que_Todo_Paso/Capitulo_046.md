@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 46 — Sappada (Tolmezzo–Sappada, 20 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 15. Tolmezzo → Sappada.*
+*Passo della Mauria (km 125 de etapa): 18 km al 5% de media, tramo de 4 km al 7%. Descenso técnico de 16 km.*
+*Sappada (subida final): pendiente del 5,4%.*
+
 ---
 
 A las siete de la mañana del domingo 20 de mayo, cuando Santi bajó a desayunar en el hotel de Tolmezzo, los otros corredores del pelotón que estaban en el mismo comedor lo miraron de una manera diferente.

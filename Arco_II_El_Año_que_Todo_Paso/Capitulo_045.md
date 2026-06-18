@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 45 — El Zoncolan (San Vito al Tagliamento–Monte Zoncolan, 19 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 14. San Vito al Tagliamento → Monte Zoncolan (vertiente de Ovaro).*
+*Zoncolan desde Ovaro: 10,1 km al 11,9% de media, máximo 22% en los primeros 4 km, sin tregua hasta la cima.*
+
 ---
 
 Santi supo lo de la rodilla la noche anterior.

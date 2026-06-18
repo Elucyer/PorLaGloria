@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 71 — París-Niza I: Saint-Germain-en-Laye (Etapas 1–2, 10–11 de marzo de 2019)
 
+*París-Niza 2019 — Etapas 1 y 2.*
+*Etapa 1 — Saint-Germain-en-Laye → oeste. 153 km, valles del Yvelines, sprint llano.*
+*Etapa 2 — Les Bréviaires → Bellegarde. 163 km, sin puertos catalogados, viento Mistral en la recta final.*
+
 ---
 
 Saint-Germain-en-Laye estaba al oeste de París y tenía el nombre más aristocrático del departamento de Yvelines: la ciudad del castillo real, de los jardines trazados con regla, de los turistas en el Musée d'Archéologie Nationale. Pero en la mañana del diez de marzo, con el pelotón neutralizado por las calles del centro histórico y el arco de salida montado en la explanada frente al castillo, lo que Santi veía no era la historia sino el letrero amarillo con la bicicleta roja que decía *PARIS–NICE* y que en el cielo gris de las ocho de la mañana tenía algo de promesa, de cosa que todavía no había empezado pero que iba a pasar.

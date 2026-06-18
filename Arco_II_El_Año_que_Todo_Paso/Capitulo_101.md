@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 101 — El Mundial II: Los Circuitos (29 de septiembre de 2019)
 
+*Campeonato del Mundo en Ruta UCI 2019 — Circuitos finales de Harrogate. 8 vueltas, lluvia.*
+*Jenkin Road (por vuelta): subida al 14%, descenso técnico de 1,2 km también al 14%. Harlow Hill: cota menor, 2 km antes del Jenkin Road.*
+
 ---
 
 Los circuitos de Harrogate comenzaron con la lluvia.

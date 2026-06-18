@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 57 — Burgos I: El pelotón que espera
 
+*Vuelta a Burgos 2018 — Etapas 1 y 2.*
+*Etapa 1 — Burgos → Miranda de Ebro. 180 km, meseta castellana, viento como único factor. Sprint masivo.*
+*Etapa 2 — Miranda de Ebro → Santo Domingo de Silos. 165 km, últimos 40 km de carretera ondulada (collados, no montaña).*
+
 ---
 
 La Vuelta a Burgos empezaba el primero de agosto y el equipo viajó en van desde Waregem — siete corredores, dos mecánicos, Ferretti al volante del coche de director — cruzando Francia de norte a sur por la A1 hasta la frontera de Irún y luego la meseta castellana con sus campos de cereal cosechado y sus cielos anchos y el calor seco que era un calor distinto al calor húmedo de Bélgica en verano, un calor que te deshidrataba despacio sin que te enteraras.

@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 52 — Cervinia (Susa–Cervinia, 26 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 20. Susa → Cervinia. 214 km.*
+*Col du Mont Cenis: 16 km, puerto más largo de la etapa. Col de l'Iseran: 2.770 m, el punto más alto del Giro 2018. Piccolo San Bernardo y Cervinia completan el cuarteto de puertos.*
+*Fuga de Mikel Nieve gana la etapa.*
+
 ---
 
 Se despertó a las seis y cuarto con el cuerpo diciéndole una sola cosa.

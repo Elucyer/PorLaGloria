@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 49 — La rosa (Abbiategrasso–Prato Nevoso, 24 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 18. Abbiategrasso → Prato Nevoso. 196 km.*
+*Col d'Esischie (km 140 de etapa): inclinación inicial suave, rampa al 9% en el km 7. Descenso técnico de 12 km.*
+*Prato Nevoso (subida final): 15 km al 6,5% de media, primeros 3 km al 4-5%. Cima a 1.480 m.*
+
 ---
 
 Se despertó a las seis menos cuarto sin que el teléfono sonara.

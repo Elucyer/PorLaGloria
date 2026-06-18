@@ -2,6 +2,12 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 72 — París-Niza II: El Camino al Sur (Etapas 3–5, 12–14 de marzo de 2019)
 
+*París-Niza 2019 — Etapas 3 a 6.*
+*Etapa 3 — Cepoy → Moulins-Yzeure. 200 km, llano.*
+*Etapa 4 — Sisteron → este. 180 km, Haute-Provence, tres puertos de 2.ª/3.ª categoría.*
+*Etapa 5 (CRI) — Circuito de Barbentane. 25,5 km. Repecho de 1 km al 4% en el km 16.*
+*Etapa 6 — Sisteron → sur/este, hacia la Côte d'Azur. 170 km.*
+
 ---
 
 La etapa tres fue doscientos kilómetros de Cepoy hacia el sur — un recorrido llano que cruzaba el Loira y la planicie de la Beauce antes de llegar a Moulins-Yzeure sobre el Allier, una de esas etapas largas del París-Niza que en el argot de la organización existían para mover la carrera hacia el sur y en el argot del pelotón existían para dos cosas: para que los velocistas se pelearan el sprint y para que los equipos de GC tuvieran un día de recuperación activa después de las dos primeras etapas de selección.

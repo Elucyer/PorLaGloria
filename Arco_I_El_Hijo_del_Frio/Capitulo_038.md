@@ -4,6 +4,12 @@
 
 ---
 
+*Giro de Italia 2018. Grande Partenza — Gerusalemme/Jerusalén, Israel.*
+*Etapa 1 (prólogo) — CRI de 9,7 km por la Ciudad Vieja. Calles angostas, curvas cerradas, tramo de adoquines cerca de la Puerta de Jaffa. Km 7: descenso suave bajo la muralla, ~70 km/h.*
+*Salida de la carrera: 4 de mayo de 2018.*
+
+---
+
 El avión aterrizó en el Aeropuerto Ben Gurión a las seis de la tarde, hora local.
 
 Santi miraba por la ventanilla mientras el Boeing descendía sobre el desierto de Judea —la tierra amarilla y árida, sin el verde de Antioquia, sin las curvas de los cafetales, sin ninguna de las referencias visuales con las que su cerebro había aprendido a leer el mundo desde niño— y tuvo la sensación de que estaba aterrizando en un planeta diferente. No de forma poética. De forma literal: el color del suelo era otro color. La manera en que la luz caía sobre las colinas era otra manera. Incluso la geometría del horizonte era distinta —más plano, más abierto, sin las montañas verticales que en Antioquia hacen que el cielo siempre sea un recorte entre cimas.

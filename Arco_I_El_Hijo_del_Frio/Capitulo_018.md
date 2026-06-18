@@ -14,6 +14,9 @@ Era el descanso de la cabeza.
 
 ---
 
+*Clásica Antioqueña Sub-23 2016. Carrera de un día. 140 km, oriente antioqueño.*
+*Llegada: Alto de las Palmas, vertiente sur (variación de ese año, +4 km al 6%).*
+
 La Clásica Antioqueña sub-23 fue la última semana de octubre.
 
 Un día, ciento cuarenta kilómetros por el oriente antioqueño, con un final en el Alto de las Palmas que los organizadores habían modificado ese año para alargar el trayecto por la vertiente sur —una variación que en el papel parecía menor y en la carretera significaba cuatro kilómetros adicionales con pendiente del seis que llegaban exactamente cuando las piernas ya habían pagado el precio de la primera parte del día.
@@ -27,6 +30,9 @@ Atacó en el kilómetro ciento dieciséis.
 Ganó con doce segundos.
 
 ---
+
+*Clásica del Café Sub-23 2016. Dos etapas — Eje Cafetero.*
+*Etapa 1 — Alto de Letras → Anserma. 180 km. Etapa 2 — CRI 22 km.*
 
 La Clásica del Café fue dos semanas después, en Manizales.
 

@@ -4,6 +4,12 @@
 
 ---
 
+*Giro de Italia 2018 — Etapas 2 y 3. Israel.*
+*Etapa 2 — Haifa → Tel Aviv. 167 km, llano, viento costero en sectores 3 y 7. Calor: 34°C y 60% de humedad en los últimos 15 km.*
+*Etapa 3 — Be'er Sheva → Eilat. 229 km, la etapa más larga del Giro 2018. Desierto del Negev, llano total. Calor de 40°C en el km 120.*
+
+---
+
 La reunión del autobús para la Etapa 2 fue a las ocho y cuarenta de la mañana, con el mar al fondo por la ventanilla porque el hotel de Haifa estaba en la ladera del Carmelo y desde el aparcamiento se veía el Mediterráneo. Nadie miraba el mar. Los corredores miraban la tablet de Ferretti o el plato de pasta del desayuno o la nada del corredor que está pensando sin pensar en nada específico.
 
 Duchêne fue breve.

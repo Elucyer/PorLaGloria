@@ -2,6 +2,8 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 91 — Giro IX: Verona (Etapa 21, 2 de junio de 2019)
 
+*Giro de Italia 2019 — Etapa 21 (CRI final). Verona. 17 km. Pavé del puente Pietra, recta del corso Porta Nuova (hasta 60 km/h).*
+
 ---
 
 La última mañana del Giro, Santi se despertó sin despertador.

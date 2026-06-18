@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 89— Giro: San Martino di Castrozza (Etapa 19, 31 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapa 19, en detalle. Treviso → San Martino di Castrozza. 151 km.*
+*Passo Rolle: cima cercana a los 2.000 m. Llegada final: 4 km al 7%.*
+
 ---
 
 Ciento cincuenta y un kilómetros de Treviso a San Martino di Castrozza.

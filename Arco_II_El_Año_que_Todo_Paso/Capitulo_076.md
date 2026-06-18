@@ -2,6 +2,8 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 76 — Tour de Romandia III: Ginebra (Etapa 5, 4 de mayo de 2019)
 
+*Tour de Romandía 2019 — Etapa 5 (CRI final). Ginebra. 12,5 km, llano. Promenade du Lac, puente del Mont-Blanc, llegada en el Palais des Nations.*
+
 ---
 
 La contrarreloj final del Tour de Romandia era doce kilómetros y medio por las calles de Ginebra.

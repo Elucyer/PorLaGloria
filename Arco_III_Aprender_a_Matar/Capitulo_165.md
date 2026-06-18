@@ -2,6 +2,8 @@
 ## Arco III — Aprender a Matar
 ### Capítulo 165 — El final en Lieja (25 de abril de 2021)
 
+*Lieja-Bastoña-Lieja 2021 — la línea de meta, Boulevard d'Avroy, Lieja.*
+
 ---
 
 La foto finish tardó cuarenta y tres segundos.

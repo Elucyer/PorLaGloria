@@ -4,6 +4,12 @@
 
 ---
 
+*Tour de l'Avenir 2017 — Etapa 9 (final). Bourg-Saint-Maurice → Albiez-Montrond.*
+*106 km. Col de la Madeleine (24 km al 6,2%, alt. 2.000 m) + Albiez-Montrond (9,9 km al 7,5% de media, últimos 2 km al 10-12%).*
+*27 de agosto de 2017.*
+
+---
+
 El desayuno del último día de carrera tiene una luz diferente.
 
 No es más tranquilo —los corredores siguen cargando carbohidratos con la concentración metódica de quien sabe que el cuerpo lo va a necesitar en las próximas cuatro horas— sino distinto en temperatura. La tensión de los días anteriores, que se había acumulado silenciosa bajo cada gesto y cada conversación del comedor del hotel, se había transformado en algo menos urgente. No paz —tampoco sería correcto llamarlo eso, porque Pavel Sivakov del equipo Sky Development seguía ahí con el hambre de quien todavía no ha ganado ninguna etapa y Lambrecht todavía estaba segundo en la general y los dos iban a poner lo que les quedara en la carretera. Pero diferente. El tipo de diferencia entre el miedo antes de la batalla y la concentración durante la batalla.

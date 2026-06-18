@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 43 — El volcán (Caltanissetta–Etna, 10 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 6. Caltanissetta → Etna.*
+*162 km. Ascenso final al Etna (Osservatorio Astrofisico): 16 km, último tramo de 300 m al 9%.*
+*Ataque decisivo de Simon Yates en el km 8 de la subida.*
+
 ---
 
 Se despertó a las seis y cuarto sin alarma.

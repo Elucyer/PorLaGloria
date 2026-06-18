@@ -2,6 +2,10 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 79 — Giro II: San Marino (Etapas 5–9, 15–19 de mayo de 2019)
 
+*Giro de Italia 2019 — Etapas 5 a 9.*
+*Etapas 5-8 — jornadas de transición y sprint (Ewan gana dos), 140-239 km cada una.*
+*Etapa 9 (CRI) — Riccione → San Marino. 34,8 km. Primeros 12 km ondulados; subida final de 6 km al 8%. Roglič gana; Santi 10º, +1:38.*
+
 ---
 
 Los cinco días entre Frascati y la contrarreloj de San Marino fueron los cinco días que existían para ser olvidados.

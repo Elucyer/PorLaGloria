@@ -4,6 +4,12 @@
 
 ---
 
+*Giro de Italia 2018 — Etapas 4 y 5. Sicilia.*
+*Etapa 4 — Catania → Caltagirone. 202 km, media montaña. Final con rampa al 8% en los últimos 2 km.*
+*Etapa 5 — Agrigento → Santa Ninfa. 153 km, media montaña, viento lateral en los últimos 40 km.*
+
+---
+
 Las dos etapas sicilianas fueron de las que el ciclismo profesional llama de transición y que en realidad no son de transición para nadie: son de preparación, que es distinto. Transición sugiere que no pasa nada. Preparación sugiere que todo lo que pasa sirve para lo que viene.
 
 La Etapa 4 — Catania a Caltagirone, doscientos dos kilómetros de media montaña siciliana — fue la primera vez que Santi vio el interior de la isla. Había imaginado Sicilia como costa y mar y ciudades antiguas, pero el interior era otra cosa: campos de trigo ya amarillo en mayo, viñas que trepaban por laderas pedregosas, pueblos de piedra color ocre encaramados en lo alto de las colinas con la misma lógica defensiva de hace quinientos años. El calor era distinto al del desierto — más húmedo, más verde en los bordes. La carretera subía y bajaba con una irregularidad que los datos del potenciómetro registraban como esfuerzo intermitente y que el cuerpo registraba como conversación — el terreno hablando, el cuerpo respondiendo.

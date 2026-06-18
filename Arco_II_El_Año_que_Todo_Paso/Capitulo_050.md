@@ -2,6 +2,11 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 50 — El Finestre (Venaria Reale–Bardonecchia/Jafferau, 25 de mayo de 2018)
 
+*Giro de Italia 2018 — Etapa 19. Venaria Reale → Bardonecchia/Jafferau. 185 km.*
+*Sestriere (km 30 de etapa): 16 km al 7%, descenso técnico de 16 km.*
+*Colle delle Finestre: sterrato (grava), cima a 2.178 m. Froome ataca a 80 km de la meta y llega solo a Bardonecchia, +2:13.*
+*Jafferau (subida final): 9 km al 9%.*
+
 ---
 
 Esa noche, en el apartamento de Laureles, Carmen Cardona lavó las dos tazas del café que habían tomado durante la etapa y las puso a escurrir sobre el fregadero de la cocina, y luego se quedó de pie frente al fregadero mirando el patio interior del edificio —el patio oscuro, sin nadie, con la luz del pasillo del segundo piso encendida aunque nadie viviera en el segundo piso desde hacía meses— durante un tiempo que no supo medir.

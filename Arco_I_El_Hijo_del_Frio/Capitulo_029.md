@@ -148,6 +148,10 @@ Ospina hizo una pausa.
 
 ---
 
+*Tour de l'Avenir 2017. Nueve etapas — Francia. Selección Colombia Sub-23, 6 corredores.*
+*Etapa 1 — Circuito de Loudéac, Bretaña. 134 km, llano, sprint masivo.*
+*Etapas 4-6 — Valle del Loira: Derval → Saumur → Amboise → Saint-Amand-Montrond. 166 km cada una, llano-ondulado.*
+
 La primera etapa del Tour de l'Avenir era un circuito de ciento treinta y cuatro kilómetros alrededor de Loudéac, con salida y llegada en la misma ciudad. Una etapa para sprinters, para equipos que controlaban el pelotón y dictaban el ritmo de la carrera desde la cabeza. Santi la corrió en el pelotón, en posición media, con las instrucciones del director: *quedáte quieto, observá, no gastés nada que no sea necesario*.
 
 El pelotón europeo era diferente al colombiano desde el primer kilómetro.
@@ -160,9 +164,9 @@ Ospina tenía razón sobre la velocidad en los llanos.
 
 Las etapas dos y tres —por el interior de Bretaña, entre Inzinzac-Lochrist y Bignan, luego entre Missillac y Châteaubriant— tenían perfiles que en el papel parecían llanos y en la carretera tenían esos repechos breves y continuos que los franceses llaman *faux plat* y que son la trampa perfecta para los escaladores que no han aprendido a pedalear en llano con eficiencia. El pelotón europeo se movía a cuarenta y cinco de media en esas carreteras bretonas, con ráfagas a cincuenta cuando los trenes de los equipos con sprinters empujaban. Santi, que en Colombia corría los llanos a treinta y ocho de media, procesó la diferencia en el primer kilómetro de la segunda etapa y no volvió a subestimarla.
 
-Las etapas cuatro, cinco y seis bajaron hacia el Valle del Loira —ciento sesenta y seis kilómetros de Derval a Saumur, luego a Amboise, luego a Saint-Amand-Montrond— con un calor diferente al de Bretaña, más seco, el calor del interior de Francia en agosto que no tenía la humedad del Atlántico. En esas etapas Santi terminó siempre en el pelotón. Ni atacó ni fue atacado. Observó, ahorró, aprendió el ritmo de una carrera de nueve días que todavía tenía lo importante por delante.
+Las etapas cuatro, cinco y seis bajaron hacia el Valle del Loira —ciento sesenta y seis kilómetros cada una: de Derval a Saumur, luego de Saumur a Amboise, luego de Amboise a Saint-Amand-Montrond— con un calor diferente al de Bretaña, más seco, el calor del interior de Francia en agosto que no tenía la humedad del Atlántico. En esas etapas Santi terminó siempre en el pelotón. Ni atacó ni fue atacado. Observó, ahorró, aprendió el ritmo de una carrera de nueve días que todavía tenía lo importante por delante.
 
-Al final de la sexta etapa estaba decimocuarto en la clasificación general, a tres minutos del líder general: Egan Bernal, su compañero de equipo, que llevaba la camiseta de líder desde la primera llegada en alto y la llevaba con la comodidad de quien ya no se sorprende de que las cosas vayan bien.
+Al final de la sexta etapa estaba decimocuarto en la clasificación general, a tres minutos del líder general: Egan Bernal, su compañero de equipo, que se había hecho con la camiseta de líder gracias a las bonificaciones de un par de llegadas reducidas en el faux plat bretón, y la llevaba con la comodidad de quien ya no se sorprende de que las cosas vayan bien.
 
 Los Alpes arrancaban mañana.
 

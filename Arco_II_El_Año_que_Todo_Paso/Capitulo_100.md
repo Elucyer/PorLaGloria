@@ -2,6 +2,9 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 100 — El Mundial I: Yorkshire (29 de septiembre de 2019)
 
+*Campeonato del Mundo en Ruta UCI 2019. Leeds → Harrogate. 285 km — la carrera más larga del año.*
+*Côte de Brimham Rocks: 4 km al 4%. Jenkin Road: 14%, con 2 km de descenso técnico después. Côte de Cray: 9,5 km al 5,3%. Côte de Leyburn: 4 km al 5,1%. Circuitos finales en Harrogate, últimos 120 km.*
+
 ---
 
 La salida fue en Leeds a las diez y cuarenta y cinco de la mañana.
