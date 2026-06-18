@@ -141,7 +141,53 @@ Santi escuchó eso sin reaccionar de inmediato.
 
 — Pienso que tenés tiempo —dijo Patiño—. El contrato vence en 2023, no ahora. Pero quería que lo supieras antes de que termine el año, para que entres a enero con la cabeza preparada, no sorprendido.
 
-— Gracias —dijo Santi—. Lo voy a pensar en el invierno, junto con todo lo demás.
+Santi se quedó callado un momento, mirando la mesa, los números todavía abiertos en la carpeta frente a él.
+
+— No necesito el invierno entero para pensarlo, en realidad —dijo, finalmente—. Quiero quedarme en el equipo.
+
+Duarte y Patiño se miraron, sorprendidos por la rapidez de la respuesta.
+
+— ¿Estás seguro? —preguntó Duarte—. No hace falta decidir hoy. Los acercamientos de los otros equipos incluyen cifras que valdría la pena al menos escuchar.
+
+— No necesito escucharlas para saber lo que quiero —dijo Santi—. Ferretti armó este equipo pensando en mí desde el principio. Rusconi conoce mi cuerpo mejor que cualquier fisiólogo nuevo lo conocería en su primer año. Koen revisa mis bicicletas como si fueran suyas. No voy a cambiar todo eso por una cifra más alta en otro lado, sin garantía de que el nuevo equipo entienda lo que este ya entiende.
+
+— Eso simplifica las cosas —dijo Patiño, sin esconder cierto alivio—. Entonces hablemos de cómo se ve la renovación.
+
+---
+
+— Si te quedás, hay margen para negociar mejor de lo que el equipo ofreció en la primera conversación informal de octubre —dijo Duarte—. El resultado de este año, a pesar de la clavícula, te puso en una posición de fuerza que no tenías antes. Y hay algo más: dos marcas nuevas se acercaron a mí en las últimas semanas, preguntando por espacio en tu calendario de patrocinio para 2023.
+
+— ¿Cuáles? —preguntó Santi.
+
+— Red Bull, interesado en patrocinio personal de nutrición deportiva y contenido, después de ver los números del podcast y la repercusión de la recuperación de este año —dijo Duarte—. Y una aerolínea colombiana que quiere mover parte de su presupuesto de publicidad hacia el deporte, después de ver el efecto que tuvo Claro con la campaña del año pasado.
+
+— ¿Eso no se cruza con los contratos que ya tenemos? —preguntó Santi.
+
+— No, si lo armamos bien —dijo Patiño—. La aerolínea no compite con Claro, y Red Bull tendría que negociarse con cuidado en la categoría de bebidas energéticas, para no chocar con ningún patrocinador del equipo en esa misma categoría. Es trabajo adicional para mí, pero es viable.
+
+— Hay una tercera cosa, distinta a las otras dos —dijo Duarte, con un tono más cauteloso—. Una marca de bicicletas se acercó hace dos semanas, no solo para patrocinio personal sino para reemplazar a Specialized como proveedor del equipo completo.
+
+Santi se quedó en silencio un momento, midiendo el peso de esa propuesta.
+
+— Eso no es lo mismo que un reloj o una aerolínea —dijo, finalmente.
+
+— No lo es —confirmó Patiño—. Cambiar de marca de bicicleta no es solo un contrato nuevo. Es readaptar la posición, el equipo de mecánicos, los repuestos, todo lo que Koen y Rusconi ajustaron durante años con Specialized. No es algo para decidir en una reunión de diciembre.
+
+— ¿Cuánto ofrecen? —preguntó Santi.
+
+— Lo suficiente para que valga la pena estudiarlo con calma, sin apuro —dijo Duarte—. Pero estoy de acuerdo con Diego. Esto no se decide hoy. Esto se decide en enero, con Ferretti y con Rusconi sentados en la misma mesa, no solo con números.
+
+— De acuerdo —dijo Santi—. Esa conversación la dejamos para el año nuevo, entonces. Las otras dos, las seguimos armando ya.
+
+— Entonces armemos los dos —dijo Santi—. Si la fundación puede crecer con eso, vale la pena el trabajo extra.
+
+— Eso pensé que ibas a decir —dijo Duarte, sonriendo—. Lo tengo en marcha desde la semana pasada, por si acaso.
+
+— ¿Y la renovación con el equipo? —preguntó Santi.
+
+— Necesitamos un par de meses para cerrar los números con Ferretti y la directiva —dijo Patiño—. Probablemente marzo, antes de que arranque la primavera fuerte de carreras. Pero la decisión de fondo —quedarte— ya la tomaste hoy. Lo demás es papeleo.
+
+— Gracias —dijo Santi—. A los tres. Por construir algo que vale la pena no cambiar.
 
 ---
 
@@ -155,17 +201,33 @@ Santi condujo hacia Laureles. Hernando lo esperaba en la cocina, con Carmen term
 
 — ¿Cómo cuáles?
 
-— San José ahora tiene gimnasio. La Fundación llegó a Boyacá. Y, según Duarte, ya hay equipos preguntando por mí para cuando venza el contrato.
+— San José ahora tiene gimnasio. La Fundación llegó a Boyacá. Y decidí quedarme en el equipo.
 
-Hernando lo miró un momento.
+Hernando lo miró un momento, sorprendido por lo rápido que llegaba esa noticia.
 
-— ¿Eso te interesa?
+— ¿Ya lo decidiste? Pensé que lo ibas a pensar en el invierno.
 
-— No lo sé todavía —dijo Santi—. Es la primera vez en mi carrera que esa pregunta tiene sentido. Ferretti construyó este equipo alrededor de mí. Pero el equipo no es solo Ferretti.
+— Lo pensé ahí mismo, en la reunión —dijo Santi—. No hacía falta más tiempo. Ferretti construyó este equipo alrededor de mí, Rusconi conoce mi cuerpo mejor que nadie, Koen revisa cada bicicleta como si fuera suya. No iba a encontrar eso en ningún otro lado, por más dinero que ofrecieran.
 
-— Tenés tiempo para pensarlo —dijo Hernando, repitiendo, sin saberlo, casi las mismas palabras de Patiño.
+— ¿Y los acercamientos de los otros equipos?
 
-— Lo sé.
+— Ni los escuché —dijo Santi—. No hacía falta.
+
+Hernando sonrió, con la satisfacción tranquila de quien escucha una decisión que le parece correcta.
+
+— Eso suena a algo que yo hubiera dicho, si alguna vez hubiera tenido la opción —dijo—. ¿Y qué más salió de la reunión?
+
+— Dos patrocinadores nuevos, posiblemente —dijo Santi—. Red Bull y una aerolínea colombiana. Duarte ya está armando los números. Y una tercera cosa más grande, todavía sin decidir: una marca de bicicletas que quiere ser patrocinador mío y del equipo completo, en lugar de Specialized.
+
+— ¿Eso es bueno? —preguntó Hernando, sin estar del todo seguro de entender el peso de la pregunta.
+
+— Es complicado —dijo Santi—. Cambiar de bicicleta no es solo cambiar de marca. Es cambiar años de trabajo de posición con Rusconi, de ajustes de Koen. Esa decisión la dejamos para enero, con calma.
+
+— Tenés razón en no apurar eso —dijo Hernando—. Las bicicletas no se cambian como una camiseta.
+
+— Parece que el año termina mejor de lo que esperabas en junio —dijo Hernando.
+
+— Mucho mejor —dijo Santi.
 
 Carmen sirvió la cena. Los tres se sentaron a la mesa de siempre, con la ventana abierta y el sonido de Laureles entrando en la noche de diciembre — un año que había empezado con la mejor primavera de la carrera de Santi y que terminaba, de la manera más inesperada, con un gimnasio nuevo en la montaña donde todo había empezado, y con el nombre de una fotógrafa de Bogotá guardado, sin que nadie lo supiera todavía, en un rincón de su teléfono que no había vuelto a abrir desde el dos de diciembre.
 

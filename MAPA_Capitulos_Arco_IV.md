@@ -85,6 +85,57 @@ Año sin competir. Ejes:
 
 ---
 
+## ESTADO DE CAPÍTULOS — BLOQUE 1 (2023)
+
+**Escritos (caps. 201–235 + especial). Nota: el cap. 205 (La firma) se insertó después de escribir el bloque completo, por lo que los capítulos 205-234 originales se renumeraron a 206-235.**
+
+| Cap | Título | Contenido |
+|-----|--------|-----------|
+| 201 | El invierno de la decisión | Reunión con Rusconi, decisión de un solo objetivo (el Tour) |
+| 202 | El túnel de viento | Túnel de viento en Ginebra, ajuste de posición |
+| 203 | Laureles, antes de viajar | Despedida familiar antes de la gira de primavera |
+| 204 | Strade Bianche | Victoria 1 |
+| 205 | La firma | Renovación de contrato con MercadoLibre-FCV: bonos ampliados a todo el calendario WorldTour, cobertura médica extendida, se descarta el cambio de marca de bicicleta (sigue Specialized), cláusula del 5% de bonos de Grand Tour para la Fundación |
+| 206 | Volta a Catalunya | Victoria 2, primer mensaje de Mariana tras el silencio |
+| 207 | Itzulia País Vasco | Victoria 3 |
+| 208 | Bogotá, una tarde cualquiera | Perspectiva de Mariana con Daniela (1) |
+| 209 | Amstel Gold Race | Victoria 4 |
+| 210 | El Mur de Huy | Flèche Wallonne — 2.º, falla mecánica |
+| 211 | El protocolo | Revisión de protocolo mecánico del equipo |
+| 212 | Los días entre carreras | Café con Mariana en Laureles, Santi se aleja |
+| 213 | San José de la Montaña | Escena familiar, gimnasio de la fundación |
+| 214 | Marinilla, otra vez | Perspectiva de Mariana con Camilo |
+| 215 | El bloque de mayo | Sierra Nevada, preparación pre-Dauphiné |
+| 216 | Critérium du Dauphiné | Victoria 5 (crono +31" sobre Vingegaard) |
+| 217 | Las últimas tres semanas | Descanso, revisión de protocolo, previa al Tour |
+| 218 | Bilbao, antes de empezar | Presentación de equipos, reconocimiento |
+| 219 | Bogotá ve el Tour | Perspectiva de Mariana viendo la Grand Départ |
+| 220 | Las etapas vascas | Etapas 2-3, Jaizkibel |
+| 221 | La primera semana | Etapas 4-9, día de descanso 1 |
+| 222 | El Col de la Loze | Etapa 10, primera gran batalla alpina |
+| 223 | El Col du Galibier | Etapa 12, ataques de Pogačar |
+| 224 | El Tourmalet, de subida | Etapa 14, ataque de Vingegaard, duda de Santi |
+| 225 | Luz Ardiden, la respuesta | Etapa 15, respuesta de Santi |
+| 226 | Combloux | Etapa 16, crono decisiva — Santi toma el liderato (+18") |
+| 227 | Defender los dieciocho segundos | Etapas 17-19, control alpino |
+| 227_especial_1 | La fuga de Pinot | Etapa 20 — Pinot gana con Santi/Pogačar/Vingegaard persiguiendo sin éxito a 30" |
+| 228 | Los Campos Elíseos | Etapa 21 — Santi gana el Tour de Francia 2023 |
+| 229 | El regreso | Vuelta a Colombia, recepción en San José |
+| 230 | Diez días | Café en Marinilla, Mariana confronta a Santi |
+| 231 | Clásica San Sebastián | Victoria 6 (Jaizkibel) |
+| 232 | Bogotá, el resto del verano | Perspectiva de Mariana con amigos (3) |
+| 233 | Il Lombardia | Victoria 7 (3.ª vez) — cierre con Pogačar |
+| 234 | El cierre de año | Reunión anual financiera (estilo cap. 200) |
+| 235 | La conversación | Santi y Mariana — paso adelante, sin oficializar todavía |
+
+**Calendario de carreras 2023 confirmado en los capítulos:** Strade Bianche (1.º), Volta a Catalunya (1.º), Itzulia País Vasco (1.º), Amstel Gold Race (1.º), La Flèche Wallonne (2.º, falla mecánica), Critérium du Dauphiné (1.º), Tour de Francia (1.º), Clásica San Sebastián (1.º), Il Lombardia (1.º). 8 victorias de 9 carreras — exactamente como se planeó.
+
+**Renovación de contrato (cap. 205):** firmada el 10 de marzo de 2023 en Girona. Salario base 3,2M€/año por 3 años. Bonos ampliados a todo el calendario WorldTour (no solo Grand Tours/Monumentos como antes). Cobertura médica ampliada para acompañantes directos (respuesta a lo vivido con Hernando/Carmen en 2022). Se evalúa y descarta el cambio a una marca de bicicletas nueva — el equipo sigue con Specialized este ciclo de contrato, decisión de Rusconi y Koen por el riesgo de readaptar la posición a mitad de la temporada del Tour único. Nuevos patrocinios personales en curso: Red Bull y una aerolínea colombiana.
+
+**Cierre del Bloque 1:** 2023 termina con Santi y Mariana dando un paso adelante (28 dic. 2023) pero sin relación oficializada — consistente con la pauta de mantener todo el año en zona de amigos con roces. La resolución plena queda abierta para 2024.
+
+---
+
 ## PENDIENTES POR DEFINIR
 
 - [ ] Puerto/etapa exacta donde Santi pierde el Giro 2024 frente a Pogačar.

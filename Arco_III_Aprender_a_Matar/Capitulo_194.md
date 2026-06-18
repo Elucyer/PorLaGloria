@@ -4,7 +4,7 @@
 
 ---
 
-Duarte llegó al apartamento de Laureles el lunes siete de noviembre con la agenda de las seis semanas ya armada —el tipo de agenda que en cualquier otro mes del año Santi habría revisado entre entrenamientos, pero que en noviembre, sin nada más que hacer, podía revisar con calma, sentado en la mesa del comedor con un café y sin prisa.
+Duarte llegó a la casa de Laureles el lunes siete de noviembre con la agenda de las seis semanas ya armada —el tipo de agenda que en cualquier otro mes del año Santi habría revisado entre entrenamientos, pero que en noviembre, sin nada más que hacer, podía revisar con calma, sentado en la mesa del comedor con un café y sin prisa.
 
 — Catorce compromisos —dijo Duarte, abriendo la carpeta—. Repartidos entre Medellín, Bogotá, y dos ciudades del eje cafetero. Ningún viaje internacional hasta enero.
 

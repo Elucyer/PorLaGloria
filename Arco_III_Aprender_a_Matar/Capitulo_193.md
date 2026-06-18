@@ -22,7 +22,7 @@ Se abrazaron. Hernando, con el cuidado específico que llevaba aplicando desde j
 
 ---
 
-El apartamento de Laureles, en noviembre, tenía el olor específico que Santi asociaba con el fin de cada temporada europea: café recién hecho, el aguacate del patio interior que en esa época del año caía con más frecuencia, y algo en la cocina que Carmen llevaba horas preparando.
+La casa de Laureles, en noviembre, tenía el olor específico que Santi asociaba con el fin de cada temporada europea: café recién hecho, el aguacate del patio interior que en esa época del año caía con más frecuencia, y algo en la cocina que Carmen llevaba horas preparando.
 
 — Sancocho —dijo Carmen, cuando Santi entró—. No me digas que Rusconi te tiene prohibido el sancocho.
 
@@ -56,7 +56,7 @@ La frase se quedó en la mesa un momento, sin que nadie la llenara con nada más
 
 Los primeros días en Medellín, Santi no hizo nada que se pareciera a una obligación.
 
-Durmió hasta tarde —algo que en trece años de calendario profesional casi nunca había podido hacer sin que un entrenamiento lo interrumpiera. Caminó por Laureles sin rumbo, con una gorra que lo disimulaba parcialmente pero que en su propio barrio servía de poco, porque la gente de Laureles lo conocía desde antes de que fuera nadie y lo seguía tratando, en general, con la misma naturalidad de siempre.
+Durmió hasta tarde —algo que en cuatro años de calendario profesional casi nunca había podido hacer sin que un entrenamiento lo interrumpiera. Caminó por Laureles sin rumbo, con una gorra que lo disimulaba parcialmente pero que en su propio barrio servía de poco, porque la gente de Laureles lo conocía desde antes de que fuera nadie y lo seguía tratando, en general, con la misma naturalidad de siempre.
 
 — ¿Cómo va el hombro, Santi? —le preguntó el señor de la tienda de la esquina, el mismo que llevaba quince años vendiéndole gaseosas y mecato cuando era niño.
 

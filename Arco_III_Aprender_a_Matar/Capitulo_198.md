@@ -66,7 +66,7 @@ Mariana respondió a la mañana siguiente, el dos de diciembre, después de pens
 
 *No sabía quién eras cuando la tomé. Por eso quedó bien.*
 
-Santi leyó el mensaje dos veces, en el apartamento de Laureles, con el teléfono en la mano y una sensación que no supo nombrar del todo —algo entre la curiosidad y un reconocimiento difuso de que esa frase, simple como era, decía algo verdadero sobre por qué la foto le gustaba tanto.
+Santi leyó el mensaje dos veces, en la casa de Laureles, con el teléfono en la mano y una sensación que no supo nombrar del todo —algo entre la curiosidad y un reconocimiento difuso de que esa frase, simple como era, decía algo verdadero sobre por qué la foto le gustaba tanto.
 
 Respondió:
 
