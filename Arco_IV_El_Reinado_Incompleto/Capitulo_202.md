@@ -8,11 +8,11 @@
 
 ---
 
-El túnel de viento no se parecía a nada que Santi hubiera usado antes. No era el cuarto improvisado del gimnasio del equipo en Girona, con ventiladores de obra colocados a un metro de distancia y una cámara casera filmando desde un costado. Era una instalación de verdad, contratada por Rusconi a un precio que Salcedo había comentado, sin demasiado entusiasmo, en la última reunión financiera: una sala blanca, fría, con el zumbido constante de los ventiladores industriales y una bicicleta montada sobre un rodillo conectado a una balanza de fuerza que medía, en tiempo real, cada watt que el aire le robaba al cuerpo.
+Santi ya conocía la rutina de un túnel de viento —dos semanas en Sion, en enero de 2022, afinando la posición que terminaría perdiendo el Tour por apenas catorce segundos— pero la instalación de Ginebra, contratada esta vez por Rusconi con un presupuesto ampliado tras el cambio de nombre del equipo a MercadoLibre-FCV y la renovación de patrocinio, no se parecía a aquella en casi nada salvo el principio físico que medía: una sala blanca, más grande, con el zumbido constante de ventiladores industriales más potentes que los de Sion, y una bicicleta montada sobre un rodillo conectado a una balanza de fuerza que medía, en tiempo real, cada watt que el aire le robaba al cuerpo. El cambio no era solo de lugar. Rusconi había reservado el doble de horas que en 2022, repartidas en sesiones más largas y más exhaustivas que cualquiera de las de Sion.
 
 Rusconi y dos ingenieros de aerodinámica observaban desde una cabina de vidrio, rodeados de monitores con curvas que subían y bajaban según los ajustes de posición.
 
-— Posición uno —dijo uno de los ingenieros, un suizo de acento marcado que Santi todavía no conocía bien, por el altavoz—. Codos a diez centímetros, cabeza baja, mirada al frente.
+— Posición uno —dijo uno de los ingenieros, un suizo de acento marcado que Santi todavía no conocía, distinto al equipo de Sion, por el altavoz—. Codos a diez centímetros, cabeza baja, mirada al frente.
 
 Santi ajustó el manillar y bajó la cabeza hasta donde el casco casi tocaba el manubrio, sintiendo el tirón familiar en la zona lumbar que esa posición siempre producía después de los primeros minutos.
 
@@ -62,7 +62,7 @@ Por la noche, en el hotel cerca del lago de Ginebra, Santi llamó a Hernando com
 
 — ¿Eso es bueno?
 
-— Según él, sí. Según yo, no sé. Llevo días sintiendo que estoy entrenando para algo que no se parece a andar en bicicleta de la forma en que yo aprendí a andar en bicicleta.
+— Según él, sí. Según yo, no sé. Ya habíamos hecho algo así en Sion hace dos años, pero esta vez es una instalación nueva, en Ginebra, con el doble de horas contratadas, el doble de ajustes, el doble de todo. Llevo días sintiendo que estoy entrenando para algo que no se parece a andar en bicicleta de la forma en que yo aprendí a andar en bicicleta.
 
 Hernando se quedó un momento callado, del otro lado de la línea, con el sonido de fondo de la cocina de Laureles —Carmen lavando platos, probablemente, o preparando algo para el día siguiente.
 

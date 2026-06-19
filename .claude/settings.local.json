@@ -21,7 +21,9 @@
       "Bash(sort -t_ -k2 -n)",
       "Bash(git mv *)",
       "Bash(cd \"/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_III_Aprender_a_Matar\" && wc -w Capitulo_192.md)",
-      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_III_Aprender_a_Matar/**)"
+      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_III_Aprender_a_Matar/**)",
+      "Bash(sed -i 's/Montmeló/Sion/g' Capitulo_202.md)",
+      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_IV_El_Reinado_Incompleto/**)"
     ]
   }
 }

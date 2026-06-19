@@ -136,14 +136,81 @@ Año sin competir. Ejes:
 
 ---
 
-## PENDIENTES POR DEFINIR
+## ESTADO DE CAPÍTULOS — BLOQUE 2 (2024)
 
-- [ ] Puerto/etapa exacta donde Santi pierde el Giro 2024 frente a Pogačar.
-- [ ] Detalle de la escena de la falla mecánica en la Flèche Wallonne 2023.
-- [ ] Momentos específicos de 2025: primera crisis puntual, primera vez de vuelta en la bicicleta, escenas con Hernando.
-- [ ] Cómo se reescribe la sección del Arco IV en `BIBLIA_PorLaGloria.md` (la actual quedó obsoleta).
-- [ ] Ajuste del Arco V derivado del año adicional fuera de competencia (a planear cuando se llegue a ese arco).
+**Escritos (caps. 236–255):**
+
+| Cap | Título | Contenido |
+|-----|--------|-----------|
+| 236 | El año de los dos Grand Tours | Decisión de volver a correr Giro + Tour |
+| 237 | Lo nuevo | Mariana y Santi navegando la relación ya oficial en privado |
+| 238 | El plan de los dos picos | Preparación de Rusconi para doble objetivo |
+| 239 | La primavera condensada | Strade (1.º), Tirreno (1.º), Lieja (2.º, -18" ante Pogačar) |
+| 240 | Turín | Arranque del Giro, crono inicial, incertidumbre de Santi |
+| 241 | Los Apeninos | Primera semana, crono Foligno-Perugia (+16" sobre Pogačar) |
+| 242 | Los Dolomitas | Ataques cruzados, primera señal de fatiga en Tre Cime |
+| 243 | Monte Grappa | Pogačar ataca y le saca 1:42 — Santi pierde el maglia rosa |
+| 244 | Lo que queda | Crono final en Roma (+22", insuficiente) — Giro 2.º a 1:11 |
+| 245 | La semana en Laureles | Regreso a casa, relación con Mariana se hace pública |
+| 246 | El margen reducido | Preparación pre-Tour con menos margen que 2023 |
+| 247 | Florencia | Arranque del Tour 2024, Mariana promete ir a Pirineos/París |
+| 248 | Los Apeninos y los primeros Alpes | Pogačar con ventaja mínima, Vingegaard aparece fuerte |
+| 249 | El Col de la Madeleine | Vingegaard gana etapa y toma el liderato |
+| 250 | La crono de Gruyère | Santi +28" sobre Vingegaard — recupera el amarillo |
+| 251 | Antes del Tourmalet | Llegada de Mariana, Hernando y Carmen a Francia |
+| 252 | El Tourmalet | **El accidente** — caída en la bajada, evacuado en helicóptero |
+| 253 | El hospital de Tarbes | Diagnóstico: clavícula, costillas, fractura vertebral (T7) — 12-18 meses fuera |
+| 254 | París sin él | Pogačar gana el Tour y le dedica la victoria; traslado a Ginebra |
+| 255 | Lo que queda del año | Cirugía, regreso a Colombia, corsé, cierre de 2024 |
+
+**Calendario de carreras 2024:** Strade Bianche (1.º), Tirreno-Adriatico (1.º), Liège-Bastogne-Liège (2.º), Giro de Italia (2.º, a 1:11 de Pogačar), Tour de Francia (abandono por accidente en la etapa 19, Tourmalet — Pogačar campeón, Vingegaard 2.º).
+
+**El accidente (cap. 252):** 20 de julio de 2024, etapa 19 del Tour, bajada del Tourmalet, durante un mano a mano de los tres (Santi de amarillo, Pogačar y Vingegaard). Caída en una curva con asfalto húmedo. Diagnóstico agravado respecto al plan original: clavícula + costillas + **fractura vertebral T7**, que justifica 12-18 meses fuera de competencia (no solo unas semanas). Mariana, Hernando y Carmen estaban presentes en la subida, viviendo el accidente en persona. Gesto de Pogačar dedicándole la victoria del Tour.
 
 ---
 
-*Documento creado: 2026-06-18.*
+## ESTADO DE CAPÍTULOS — BLOQUE 3 (2025, "el año oscuro") Y CIERRE
+
+**Escritos (caps. 256–265):**
+
+| Cap | Título | Contenido |
+|-----|--------|-----------|
+| 256 | El año oscuro empieza | Enero 2025, corsé extendido, primera crisis real |
+| 257 | Pequeños progresos | Feb-marzo, retiro del corsé, fisioterapia, primera vez en bici estática |
+| 258 | El Alto de Minas | Abril, primera salida real en bicicleta con Hernando |
+| 259 | Lo que llena el espacio | Mayo, podcast nuevo, gira por la Fundación, Mariana se muda a Laureles |
+| 260 | La noche del Tour | 29 junio, crisis más oscura del año (Tour 2025 arranca sin él) |
+| 261 | Un año después | 20 julio, aniversario del accidente, paz en la piedra del abuelo |
+| 262 | Los primeros vatios | Agosto-sept., alta médica completa, primer entrenamiento estructurado |
+| 263 | El susto de octubre | Contractura (no la vértebra) — ajuste a ritmo más conservador |
+| 264 | El cierre de un año sin carreras | 20 dic. 2025, reunión anual sin resultados deportivos, Fundación creció más que nunca |
+| 265 | El reinado incompleto | Enero 2026, cierre simbólico del arco completo, plan de regreso a mediados de 2026 |
+
+**Cierre del Arco IV:** Santi termina 2025 con la vértebra completamente sanada, una relación consolidada con Mariana (instalada en Laureles), la Fundación en su mejor momento (11 municipios), y un plan de regreso gradual a competencia hacia mediados de 2026, sin fecha de resultados, solo de reaparición en carrera. El título "El Reinado Incompleto" queda explícitamente nombrado dentro de la propia narración en el cap. 265.
+
+---
+
+## ESPECIALES DEL PODCAST "APRENDER A MATAR" — ARCO IV
+
+| Cap | Ep. | Título | Contenido |
+|-----|-----|--------|-----------|
+| 229_especial_1 | 26 | El año que apostamos todo | Grabado 5 ago. 2023, post-Tour. Santi reflexiona sobre la apuesta de enero, el túnel de viento, la Flèche, la etapa de Pinot. Se convierte en el episodio más escuchado hasta ese momento. |
+| 259_especial_1 | 54 | Marco Hidalgo — "El año sin carreras" Ep. 1 | Grabado 8 may. 2025. Primer episodio de la serie sobre recuperación de lesiones graves en otros deportes (expiloto de F1). |
+| 264_especial_1 | 58 | La noche más oscura | Grabado 3 jul. 2025, publicado 28 nov. 2025. La crisis del 29 de junio, contada sin editar. El episodio más compartido de la serie. |
+| 265_especial_1 | 60 | El Reinado Incompleto, la historia completa | Grabado 9 ene. 2026. **Episodio de cierre, ~5000 palabras.** Casi 3 horas, con Hernando, Carmen y Mariana presentes e interviniendo. Santi revela, por primera vez, las partes que nunca contó: el llanto en el túnel de viento, el ataque de pánico en el Tour 2023, el favor deliberado a Pinot, el resentimiento hacia Pogačar/Vingegaard durante 2025, el pensamiento más oscuro de la noche en Tarbes. Mensajes de voz de Rusconi, Koen, Restrepo y Rodrigo. Cierra con mensajes de Pogačar y Vingegaard tras escucharlo. |
+
+---
+
+## PENDIENTES POR DEFINIR
+
+- [x] Puerto/etapa exacta donde Santi pierde el Giro 2024 frente a Pogačar — **Monte Grappa, etapa 20** (cap. 243).
+- [x] Detalle de la escena de la falla mecánica en la Flèche Wallonne 2023 — cap. 210.
+- [x] Momentos específicos de 2025 — cubiertos en caps. 256-264.
+- [ ] Cómo se reescribe la sección del Arco IV en `BIBLIA_PorLaGloria.md` (la actual quedó obsoleta, sigue pendiente).
+- [ ] Ajuste del Arco V: el regreso de Santi ocurre a mediados de 2026, no en 2026 completo como sugería el plan original — replantear calendario de victorias de Arco V (la "segunda victoria en el Tour 2026" probablemente se mueve a 2027).
+- [ ] Decidir el nivel de Santi en su primera carrera de regreso (mediados de 2026): ¿competitivo de entrada o claramente disminuido?
+- [ ] Revisar si Ferretti, Rusconi, Koen y Luca Arnheim continúan con el mismo rol en el Arco V o si hay cambios de equipo tras el ciclo de contrato 2023-2026.
+
+---
+
+*Documento creado: 2026-06-18. Arco IV completado: caps. 201-265 + especial 227_especial_1 (Pinot). Total: 65 capítulos + 1 especial.*
