@@ -56,6 +56,22 @@ Julián, repasando el cuaderno de notas que había preparado para el episodio, c
 
 ---
 
+— Antes de eso, quiero que hablemos de Combloux —dijo Julián—. Cuarenta y nueve segundos contra Vingegaard, en una sola contrarreloj. Eso pudo haber sido el final de todo.
+
+— Esa noche fue la más difícil del Tour, sin discusión —dijo Santi—. Más difícil que cualquier subida. Porque en una subida, si te ataca alguien, podés responder de inmediato, ver al rival, medir tus propias fuerzas. En una crono, te enterás del resultado cuando ya no hay nada que hacer. Esa sensación de impotencia, esa noche, fue distinta a todo lo que había sentido antes en una bicicleta.
+
+— ¿Pensaste que habías perdido el Tour ahí mismo?
+
+— Por un momento, sí —admitió Santi—. Llamé a mi papá esa noche y se lo dije directamente: "no sé si esto se puede remontar". Y él me dijo algo que no esperaba escuchar: que no hacía falta saberlo todavía, que solo hacía falta intentarlo al día siguiente, en la Croix de Fer.
+
+— ¿Y qué cambió, exactamente, entre esa noche y la Croix de Fer?
+
+— Algo que aprendí de mi papá hace muchos años, en una ladera de Antioquia —dijo Santi—. No pensar en la cima, sino en el siguiente metro. Esa noche pasé de pensar en cincuenta y un segundos, una cifra enorme e imposible, a pensar simplemente en la primera rampa del día siguiente. Eso fue lo que cambió todo.
+
+— Vingegaard, en la rueda de prensa final, dijo que esa crono fue probablemente la mejor actuación individual de su carrera. ¿Cómo conviven esas dos cosas, su mejor crono y tu peor noche del Tour?
+
+— Conviven exactamente así, sin contradicción —dijo Santi—. Las dos cosas son ciertas al mismo tiempo. Él hizo algo extraordinario, y yo viví, en paralelo, el momento más oscuro de mi temporada. El deporte permite eso, dos verdades opuestas en la misma tarde, sin que ninguna anule a la otra.
+
 — Quiero preguntarte por algo que pasó en julio, en la etapa veinte —dijo Julián, refiriéndose a la fuga de Pinot—. Vos, Pogačar y Vingegaard, persiguiendo juntos durante cuarenta kilómetros, sin lograr atraparlo.
 
 Santi sonrió, recordando ese día con un afecto particular.
@@ -78,6 +94,14 @@ Santi se quedó callado un momento, sabiendo exactamente hacia dónde se dirigí
 
 — Completamente nuevo —admitió Santi—. Durante años pensé que cualquier distracción del objetivo deportivo era, automáticamente, una debilidad. Este año entendí que no es así. Algunas de las cosas que parecen distracciones son, en realidad, lo que sostiene todo lo demás.
 
+— ¿Tu papá sabe de esta persona? —preguntó Julián, con cierta picardía en la voz.
+
+— Mi papá sabe todo, siempre lo supo todo —dijo Santi, riendo—. Antes que yo mismo, probablemente. No me sorprendería que ya tuviera una opinión formada al respecto, anotada en algún rincón del cuaderno.
+
+— ¿Y la vamos a conocer en algún momento, los que seguimos el podcast?
+
+— Si las cosas avanzan como espero, sí —dijo Santi—. Pero eso depende de mucho más que de mí solo. Por ahora, prefiero dejarlo crecer en silencio, sin la presión de que medio país esté pendiente de cada mensaje.
+
 ---
 
 — Última pregunta, antes de cerrar —dijo Julián—. ¿Qué le dirías al Santi de enero, el que decidió apostar todo a un solo Tour, sin saber todavía cómo iba a terminar el año?
@@ -86,8 +110,16 @@ Santi lo pensó largamente, mirando hacia la ventana de la casa de Laureles, don
 
 — Le diría que tenía razón en confiar, aunque no tuviera ninguna garantía —dijo, finalmente—. Que el riesgo, cuando se toma con la cabeza y con el corazón al mismo tiempo, casi siempre vale la pena, aunque el resultado final no esté garantizado de antemano. Y le diría también que se permita disfrutar más el proceso, no solo el resultado. Porque el proceso, este año, fue tan valioso como la victoria misma.
 
+— Última cosa, antes de cerrar de verdad —dijo Julián—. ¿Ya pensaste en lo que viene? ¿Hay un plan para el año que viene, o todavía es muy pronto?
+
+— Todavía es pronto para los detalles —dijo Santi—. Pero te puedo decir una cosa: después de un año así, entendí que apostar todo a un solo objetivo puede funcionar. La pregunta que me queda dando vueltas en la cabeza es si quiero volver a hacerlo de la misma forma, o si ya es momento de buscar algo distinto, dentro o fuera de la bicicleta.
+
+— Eso suena a que el año que viene va a dar para otro episodio entero —dijo Julián, riendo.
+
+— Probablemente —dijo Santi—. Como siempre, en este deporte, nunca se sabe del todo hasta que pasa.
+
 ---
 
-*Cierre del episodio 26. Según el propio Julián, en sus notas de producción, este episodio se convertiría en el más escuchado de toda la historia del podcast hasta ese momento, superando incluso al episodio con Eddy Merckx de 2020.*
+*Cierre del episodio 26. Según el propio Julián, en sus notas de producción, este episodio se convertiría en el más escuchado de toda la historia del podcast hasta ese momento, superando incluso al episodio con Eddy Merckx de 2020, en buena parte gracias a la mención, breve pero suficiente, de una persona todavía sin nombre que ya empezaba a despertar la curiosidad de buena parte de los oyentes habituales.*
 
 ---

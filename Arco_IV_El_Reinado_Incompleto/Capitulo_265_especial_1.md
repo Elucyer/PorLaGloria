@@ -72,7 +72,7 @@ Mariana, escuchando desde el sofá, no pudo evitar intervenir.
 
 — Vamos al Tour de 2023 —dijo Julián—. La victoria más completa de tu carrera. ¿Qué no contaste de esos veintiún días?
 
-— No conté que, durante el día de descanso, tuve un ataque de pánico —dijo Santi, generando otro silencio inmediato en la sala—. Nunca lo hice público. Fue después de la crono de Combloux, cuando finalmente tomé el liderato. Esa misma noche, en lugar de sentir alivio completo, sentí un miedo enorme a perderlo todo en los días siguientes. Me costó respirar durante varios minutos, solo en la habitación del hotel.
+— No conté que tuve un ataque de pánico, en la habitación del hotel de Gérardmer —dijo Santi, generando otro silencio inmediato en la sala—. Nunca lo hice público. Fue la noche que recuperé el liderato en el Petit Ballon, después de haber perdido cincuenta y un segundos contra Vingegaard en Combloux apenas tres días antes. En lugar de sentir el alivio completo que esperaba, sentí un miedo enorme a perderlo todo otra vez, en una sola etapa, como ya había pasado una vez esa misma semana. Me costó respirar durante varios minutos, solo, sin llamar a nadie todavía.
 
 — ¿Qué hiciste?
 

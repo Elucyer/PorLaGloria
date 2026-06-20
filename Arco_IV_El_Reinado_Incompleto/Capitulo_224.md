@@ -28,11 +28,35 @@ Santi cerró el hueco con un esfuerzo visible, algo que las cámaras de televisi
 
 Los tres llegaron juntos a la cima del Tourmalet, con Vingegaard liderando el grupo reducido, pero sin haber logrado la diferencia que probablemente buscaba con ese primer ataque.
 
+En la cima, mientras los gregarios de cada equipo les pasaban botellas de agua y chaquetas cortavientos para el descenso, Pogačar se acercó a Santi un instante, lo suficiente para hablar sin que los micrófonos de las motos cercanas pudieran captar nada.
+
+— Ça va? T'as eu l'air un peu tendu, sur la première attaque.
+*(¿Estás bien? Te vi un poco tenso, en el primer ataque.)*
+
+— Ça va, Tadej. Juste un mauvais moment, ça arrive.
+*(Estoy bien, Tadej. Solo un mal momento, pasa.)*
+
+— Si tu le dis —dijo Pogačar, sin convencerse del todo, antes de alejarse hacia su propio coche de equipo para el cambio de ropa previo al descenso.
+*(Si tú lo decís.)*
+
+Santi se quedó un momento más en la cima, ajustándose la chaqueta, sintiendo que esa breve duda, por mínima que fuera, ya había sido vista por al menos uno de sus dos rivales directos, algo que en cualquier otro punto del Tour no le hubiera preocupado, pero que en ese momento específico, con la crono de Combloux todavía a tres días de distancia, se sintió como una grieta que no podía permitirse mostrar otra vez.
+
 Luca Arnheim, que había gastado buena parte de sus energías en el tramo intermedio de la subida tratando de controlar un amago de fuga de un grupo de corredores secundarios, llegó a la cima casi tres minutos después de los favoritos, exhausto, pero satisfecho con haber cumplido la parte de su trabajo que le correspondía ese día.
 
 — ¿Cómo viste a Vingegaard? —le preguntó Ferretti a Rusconi, en el coche del equipo, mientras esperaban a Luca en la zona de avituallamiento de la cima.
 
 — Más fuerte que en cualquier otra etapa hasta ahora —dijo Rusconi—. Algo cambió en él entre el día de descanso y hoy. O simplemente estaba esperando el Tourmalet para mostrarse.
+
+En la cabina francesa, instalada esa tarde con el Pic du Midi como telón de fondo, Laurent y Philippe analizaban el ataque de Vingegaard con una intensidad creciente.
+
+— Vingegaard attaque le premier, Philippe! C'est nouveau, ça. D'habitude, c'est Pogačar qui ouvre le bal.
+*(¡Vingegaard ataca primero, Philippe! Eso es nuevo. Habitualmente es Pogačar el que abre el baile.)*
+
+— Il a dû sentir quelque chose chez Reyes, une petite hésitation peut-être. Les meilleurs sentent ça avant que les caméras ne le voient.
+*(Debe haber sentido algo en Reyes, una pequeña vacilación quizás. Los mejores sienten eso antes de que las cámaras lo vean.)*
+
+— Et Pogačar qui répond plus vite que Reyes, pour la première fois du Tour. C'est un détail, mais dans ce genre de course, les détails décident tout.
+*(Y Pogačar que responde más rápido que Reyes, por primera vez en el Tour. Es un detalle, pero en este tipo de carrera, los detalles lo decidan todo.)*
 
 ---
 
@@ -74,10 +98,30 @@ Llamó a Hernando esa noche, más tarde de lo habitual, después de una sesión 
 
 — No sé todavía —dijo Santi, con sinceridad—. Quizás solo es cansancio acumulado. Quizás es algo más. Lo voy a saber en los próximos días.
 
+En la cabina francesa, mientras los corredores ya descendían hacia Saint-Lary-Soulan, Laurent aprovechó la pausa de la transmisión para resumir, con la perspectiva de quien llevaba décadas siguiendo el Tour, lo que acababa de ver.
+
+— Tu sais, Philippe, j'ai vu beaucoup de favoris perdre quatre secondes dans ma carrière. Mais perdre quatre secondes ET montrer une hésitation visible, le même jour? Ça, c'est rare.
+*(¿Sabés, Philippe? Vi a muchos favoritos perder cuatro segundos en mi carrera. ¿Pero perder cuatro segundos Y mostrar una vacilación visible, el mismo día? Eso es raro.)*
+
+— On verra demain si c'était juste un mauvais jour, ou le début de quelque chose de plus grand.
+*(Vamos a ver mañana si fue solo un mal día, o el comienzo de algo más grande.)*
+
 — Hay algo que aprendí en mis años corriendo —dijo Hernando, después de un silencio—. La duda de un segundo no define una carrera de tres semanas. Lo que la define es lo que hacés con esa duda al día siguiente.
 
 — ¿Y qué hago?
 
 — Lo que siempre hacés —dijo Hernando—. Te levantás, entrenás, y volvés a la carretera. El cuerpo tiene memoria. Va a recordar las semanas de Sierra Nevada antes que un mal momento en el Tourmalet.
+
+— Pogačar lo notó —dijo Santi, después de un momento—. En la cima, me preguntó si estaba bien. No de mala forma, pero lo notó.
+
+— ¿Y eso te preocupa más que el momento en sí? —preguntó Hernando.
+
+— Un poco —admitió Santi—. Una cosa es sentir la duda. Otra es que el rival sepa que existe.
+
+— Entonces mañana, en Luz Ardiden, asegurate de que la única cosa que note sea otra duda, pero esta vez la suya —dijo Hernando—. Es la mejor forma de borrar lo de hoy: no con palabras, sino con la próxima subida.
+
+— Eso es exactamente lo que voy a intentar —dijo Santi, sintiendo, por primera vez esa noche, algo parecido a la determinación reemplazando la inquietud de las últimas horas.
+
+Colgó el teléfono y se quedó un momento mirando el techo de la habitación, repasando mentalmente cada metro del ascenso a Luz Ardiden que había memorizado meses atrás durante el reconocimiento de primavera, buscando, sin encontrarlo todavía del todo, el punto exacto donde pensaba devolver, al día siguiente, la pregunta que Pogačar le había dejado flotando en la cima del Tourmalet.
 
 ---

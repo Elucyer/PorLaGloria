@@ -38,6 +38,22 @@ Santi escuchó la advertencia, pero el ritmo de los otros dos no le dejaba marge
 
 No fue una caída espectacular, de las que generan gritos inmediatos en la transmisión de televisión. Fue, casi, silenciosa: la bicicleta se deslizó hacia un costado, Santi giró sobre el asfalto y terminó saliendo de la carretera, cayendo varios metros por un terraplén lateral que la carretera del Tourmalet tenía en ese tramo específico, antes de quedar inmóvil entre la vegetación baja de la ladera.
 
+En la cabina de France Télévisions, Laurent y Philippe, que llevaban tres semanas narrando cada movimiento del trío de favoritos, vivieron el instante exacto de la caída con una mezcla de incredulidad y un silencio que duró varios segundos antes de que ninguno de los dos pudiera encontrar las palabras.
+
+— Il... il est tombé. Reyes est tombé.
+*(Se... se cayó. Reyes se cayó.)*
+
+— Il sort de la route, Laurent. Il sort de la route.
+*(Sale de la carretera, Laurent. Sale de la carretera.)*
+
+— Mon Dieu. On ne le voit plus. La caméra ne le trouve plus.
+*(Dios mío. Ya no lo vemos. La cámara no lo encuentra.)*
+
+— Restez calmes, s'il vous plaît, en attendant des informations officielles. On ne sait rien encore sur son état.
+*(Mantengamos la calma, por favor, mientras esperamos información oficial. Todavía no sabemos nada sobre su estado.)*
+
+El silencio que siguió en la cabina, roto solo por el sonido ambiente de la transmisión y los gritos confusos del público en la carretera, se extendió durante casi un minuto completo antes de que la producción cortara a una imagen del pelotón principal, todavía ajeno a lo ocurrido varios kilómetros más adelante.
+
 Mariana, Hernando y Carmen, que habían visto pasar a los tres juntos minutos antes en la subida, escucharon la noticia primero por los gritos de la gente alrededor, que miraba sus teléfonos con la transmisión en directo, antes de que ningún canal oficial confirmara nada.
 
 — Hubo una caída —dijo alguien, cerca de ellos, en francés—. Uno de los tres líderes. No se ve bien quién.
@@ -87,5 +103,13 @@ Hernando, con una calma que no sentía por dentro pero que sabía que su esposa 
 En el helicóptero, mientras el paisaje de los Pirineos se alejaba debajo de él, Santi, todavía consciente a pesar del dolor que cada respiración le provocaba, pensó, con una claridad extraña en medio del shock, en la frase que Hernando le había escrito la noche anterior: *pase lo que pase mañana, ya ganamos algo esta semana, solo con estar acá juntos.*
 
 No sabía todavía, en ese momento, la magnitud completa de lo que esa caída significaba para el resto de su año. Solo sabía que el dolor era real, que el Tour que había llevado puesto el maillot amarillo apenas unas horas antes ya no le pertenecía, y que, en algún lugar de los Pirineos, las personas que más quería en el mundo estaban corriendo hacia él sin saber todavía qué iban a encontrar al llegar.
+
+En la cabina francesa, mucho después, cuando la transmisión finalmente confirmó que Santi estaba consciente y siendo evacuado por helicóptero, Laurent rompió el silencio incómodo que había mantenido la cabina durante buena parte de la última hora.
+
+— Quoi qu'il arrive avec ce Tour à partir de maintenant, Philippe, ce qu'on vient de voir restera comme l'un des moments les plus durs de notre carrière de commentateurs.
+*(Pase lo que pase con este Tour de ahora en adelante, Philippe, lo que acabamos de ver va a quedar como uno de los momentos más duros de nuestra carrera como comentaristas.)*
+
+— On a vu trois ans de rivalité magnifique se transformer en quelques secondes en quelque chose de bien plus grave qu'une course de vélo.
+*(Vimos tres años de una rivalidad magnífica transformarse en pocos segundos en algo mucho más grave que una carrera de bicicletas.)*
 
 ---

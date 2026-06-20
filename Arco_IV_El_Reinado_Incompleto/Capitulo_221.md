@@ -28,6 +28,20 @@ En la quinta etapa, sin embargo, un incidente menor mantuvo a todo el equipo en 
 
 — Un poco, siempre asusta ver algo así tan de cerca —admitió Santi—. Pero ya aprendí a no pensarlo de más. Si lo pienso de más, empiezo a correr con miedo, y correr con miedo es peor que cualquier caída.
 
+En la cabina de France Télévisions, Laurent y Philippe repasaban las imágenes de la caída con la seriedad que el tema merecía, antes de volver, casi sin transición, al tono más liviano habitual de las etapas llanas.
+
+— Quinze coureurs au sol, Philippe. Une bouteille d'eau, rien de plus. C'est fou comme ce sport peut basculer en une seconde.
+*(Quince corredores en el suelo, Philippe. Una botella de agua, nada más. Es una locura cómo este deporte puede cambiar en un segundo.)*
+
+— Heureusement, aucun des trois favoris n'était impliqué. Reyes était à gauche du peloton, loin de la chute.
+*(Por suerte, ninguno de los tres favoritos estuvo involucrado. Reyes estaba a la izquierda del pelotón, lejos de la caída.)*
+
+— C'est aussi une question de position dans le peloton, pas seulement de chance. Son équipe le protège très bien cette année.
+*(También es una cuestión de posición en el pelotón, no solo de suerte. Su equipo lo protege muy bien este año.)*
+
+— On dirait que tout est calculé, chez eux. Même la place où il roule au kilomètre quatre-vingt.
+*(Parece que todo está calculado, en su equipo. Incluso el lugar donde rueda en el kilómetro ochenta.)*
+
 ---
 
 La sexta etapa, con final en alto en el Puy de Sancy, en el Macizo Central, fue la primera prueba real de montaña del Tour, aunque de una dificultad menor comparada con lo que esperaba en los Alpes y los Pirineos en las semanas siguientes.
@@ -47,6 +61,20 @@ Rusconi, revisando los datos acumulados de la primera semana completa, mostró u
 — Entonces es una ventaja silenciosa.
 
 — La mejor clase de ventaja que se puede tener —dijo Rusconi—. La que el rival no puede medir, solo sentir cuando ya es demasiado tarde para hacer algo al respecto.
+
+En el autobús, esa misma noche, Evenepoel, que corría ese Tour con opciones limitadas pero con el carácter directo que lo caracterizaba, se cruzó con Santi en el pasillo del hotel y aprovechó el encuentro casual para hacerle una pregunta que llevaba días queriendo hacer.
+
+— Dis-moi une chose, Santi. Comment fait-on pour rester aussi calme, jour après jour, sans jamais montrer de fatigue à la caméra?
+*(Decime una cosa, Santi. ¿Cómo se hace para estar tan tranquilo, día tras día, sin nunca mostrar cansancio frente a la cámara?)*
+
+— On ne reste pas calme, Remco. On apprend juste à le cacher un peu mieux que les autres.
+*(No se está tranquilo, Remco. Solo se aprende a esconderlo un poco mejor que los demás.)*
+
+— Ça, au moins, c'est honnête —dijo Evenepoel, riendo—. Merci pour la réponse.
+*(Eso, al menos, es honesto. Gracias por la respuesta.)*
+
+— De rien. On se reparle dans les Alpes, quand la fatigue sera plus difficile à cacher pour tout le monde.
+*(De nada. Hablamos de nuevo en los Alpes, cuando el cansancio sea más difícil de esconder para todos.)*
 
 ---
 
@@ -92,8 +120,10 @@ Antes de dormir, Carmen también lo llamó, algo que no hacía siempre durante e
 
 — Eso me alegra —dijo Carmen—. Descansá. Mañana sigue el camino hacia los Alpes.
 
-— Así es —dijo Santi—. Gracias por llamar, mamá.
+— Así es —dijo Santi—. Gracias por llamar, mamá. Decile a papá que mañana lo llamo apenas terminemos la primera etapa de los Alpes, sin falta.
 
-Colgó el teléfono, apagó la luz de la habitación, y se quedó dormido pensando en las montañas que lo esperaban en los próximos días, con la sensación, todavía frágil pero real, de que el trabajo de todo el año empezaba finalmente a dar sus frutos.
+— Se lo digo —dijo Carmen—. Aunque no hace falta que se lo recuerde. Ya tiene el cuaderno abierto sobre la mesa, esperando.
+
+Colgó el teléfono, apagó la luz de la habitación, y se quedó dormido pensando en las montañas que lo esperaban en los próximos días, con la sensación, todavía frágil pero real, de que el trabajo de todo el año empezaba finalmente a dar sus frutos, mientras afuera, en los pasillos del mismo hotel de Limoges, el resto del pelotón hacía sus propias cuentas silenciosas sobre lo que faltaba antes de que la verdadera batalla, la de los Alpes y los Pirineos, finalmente empezara, sin que nadie, ni siquiera los comentaristas más experimentados, pudiera anticipar todavía la magnitud exacta de lo que esas montañas tenían reservado.
 
 ---

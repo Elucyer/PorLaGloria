@@ -40,6 +40,20 @@ La conversación se desvió, durante un rato, hacia otros temas —los proyectos
 
 — Eso espero que sea cierto —dijo Mariana.
 
+Camilo, después de un silencio breve, agregó algo que llevaba tiempo queriendo decir, desde aquella llamada de agosto después de la victoria en San Sebastián.
+
+— ¿Sabés qué pienso, en serio? —dijo—. Pienso que ese tipo, con todo lo que tiene encima, con cámaras y periodistas y números de potencia todo el día, eligió contarte justo a vos lo de la promesa de pensarlo en serio. No a un periodista, no en una rueda de prensa. A vos, por mensaje, de noche. Eso tiene que significar algo.
+
+— Eso mismo pensé yo, al principio —dijo Mariana—. Pero después llega el día siguiente, y vuelve la duda.
+
+— La duda es normal —dijo Daniela—. Lo que no sería normal es no sentirla, después de un año así, esperando algo que todavía no tiene nombre.
+
+— Tienen razón las dos, supongo —dijo Mariana, suspirando—. Es solo que nunca pensé que mi vida amorosa iba a depender, en parte, del calendario de un Tour de Francia.
+
+— Bienvenida al club de las que se enamoran de alguien con un trabajo raro —dijo Camilo, riendo, levantando su copa en un brindis improvisado—. Por octubre, entonces. Por que finalmente pase algo.
+
+— Por octubre —repitieron Mariana y Daniela, chocando las copas con una risa que aligeró, al menos por esa noche, el peso de la conversación anterior.
+
 Daniela, sirviendo más vino, cambió ligeramente el tono de la conversación, con una pregunta que llevaba tiempo queriendo hacer.
 
 — ¿Alguna vez pensaste en cómo sería tu vida si esto avanzara de verdad? —preguntó—. Quiero decir, en serio. Viajando con él, viviendo entre Europa y Colombia, lidiando con la prensa, con los fans, con todo lo que implica estar con alguien así.
@@ -60,6 +74,8 @@ Entre las carpetas del computador, encontró la que había creado meses atrás, 
 
 Pensó en lo que le había dicho a Camilo y Daniela esa noche —que ella seguía siendo la misma persona de antes, mientras la vida de Santi cambiaba a una velocidad que ella apenas podía seguir desde la distancia— y se preguntó, sin encontrar una respuesta clara, si esa diferencia de velocidades entre las dos vidas era algo que, eventualmente, terminaría por separarlos del todo, o si era exactamente lo que hacía que la conexión, frágil pero persistente, siguiera teniendo sentido después de casi un año.
 
+Cerró la carpeta sin borrar nada, como hacía siempre, y abrió en su lugar la serie de los mercados campesinos, perdiéndose durante una hora en la edición de esas fotos, agradecida, en cierto modo, de tener un trabajo propio que la sostenía independientemente de cómo terminara resolviéndose, o no, la historia con Santi.
+
 ---
 
 Antes de dormir, le escribió un mensaje breve a Santi, simplemente para saber cómo iba el resto de la temporada.
@@ -76,6 +92,12 @@ Antes de dormir, le escribió un mensaje breve a Santi, simplemente para saber c
 
 *Santi: Eso suena justo.*
 
+*Mariana: ¿Lombardia sigue en pie para octubre?*
+
+*Santi: Sigue en pie. Siete de octubre. Después de eso, tengo casi dos semanas completamente libres.*
+
+*Mariana: Las voy a tener marcadas en el calendario, entonces.*
+
 No hubo mucho más esa noche, pero Mariana se durmió pensando que, a pesar de todas las dudas que había compartido esa noche con sus amigos, todavía sentía, en algún lugar que no terminaba de controlar del todo, que valía la pena seguir esperando un poco más, hasta que llegara octubre y se supiera, finalmente, si esa espera tenía algún sentido real.
 
 Al día siguiente, mientras revisaba los encargos pendientes para las próximas semanas, recibió una llamada de su madre, que vivía en Bucaramanga y con quien hablaba cada domingo, sin falta, desde que se había mudado a Bogotá para estudiar.
@@ -90,6 +112,18 @@ Al día siguiente, mientras revisaba los encargos pendientes para las próximas 
 
 — Eso espero, mija —dijo su madre—. Aunque un año ya es bastante tiempo, para cualquier cosa.
 
-Mariana no respondió de inmediato, pero la frase de su madre se quedó con ella el resto del día, sumándose a las preguntas similares de Camilo y Daniela la noche anterior, como un coro creciente de voces que, sin ser exactamente una presión, le recordaban que el tiempo de espera, eventualmente, tendría que llegar a algún tipo de resolución.
+— ¿Vos qué harías, en mi lugar? —preguntó Mariana, sorprendiéndose a sí misma por hacer la pregunta en voz alta.
+
+Su madre se quedó callada un momento, del otro lado de la línea, antes de responder con la calma de quien ya había vivido suficientes años como para no apurar las respuestas importantes.
+
+— Yo esperé seis años a tu papá, antes de que él se decidiera a pedirme matrimonio —dijo finalmente—. No te lo cuento para que hagas lo mismo. Te lo cuento porque, mirando para atrás, no me arrepiento de haber esperado, pero sí me arrepiento de no haberle puesto, en algún momento, un límite claro a esa espera. Eso es lo único que te diría: esperá si querés, pero poné un límite, aunque sea solo para vos misma.
+
+— ¿Y si ese límite llega y no pasa nada?
+
+— Entonces seguís con tu vida, mija, con la cabeza en alto —dijo su madre—. Una vida completa no depende de que un solo hombre se decida a tiempo. Pero mientras todavía tengas esperanza real, no hay nada de malo en darle el espacio que pide.
+
+Mariana le agradeció el consejo, colgó el teléfono, y se quedó pensando, durante el resto de la tarde, en el plazo silencioso que ya empezaba a formarse en su cabeza, sin fecha exacta todavía, pero cada vez más cerca de tener una.
+
+Mariana no respondió de inmediato, pero la frase de su madre se quedó con ella el resto del día, sumándose a las preguntas similares de Camilo y Daniela la noche anterior, como un coro creciente de voces que, sin ser exactamente una presión, le recordaban que el tiempo de espera, eventualmente, tendría que llegar a algún tipo de resolución, con o sin fecha exacta todavía escrita en ningún calendario.
 
 ---

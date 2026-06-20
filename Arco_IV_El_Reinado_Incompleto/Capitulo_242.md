@@ -18,6 +18,17 @@ Santi respondió de inmediato, sin la duda que en algún momento del año anteri
 
 — Seguí así —dijo Rusconi—. El trabajo está respondiendo exactamente cuando más lo necesitás.
 
+En la cabina de la RAI, Bettini y Cassani narraban el ataque del Fedaia con la pasión característica de la transmisión local, sobre uno de los puertos más temidos de todo el Giro.
+
+— Il Fedaia non perdona, Davide. Diciotto per cento su un fondo irregolare, dopo sedici tappe nelle gambe.
+*(El Fedaia no perdona, Davide. Dieciocho por ciento sobre un terreno irregular, después de dieciséis etapas en las piernas.)*
+
+— E Reyes chiude il buco senza esitazione, questa volta. È diverso dal Tourmalet dell'anno scorso, sembra.
+*(Y Reyes cierra el hueco sin vacilar, esta vez. Parece distinto del Tourmalet del año pasado.)*
+
+— Per ora, Paolo. Vediamo come arriva alle Tre Cime, due giorni dopo. La vera domanda è quanto dura questa resistenza.
+*(Por ahora, Paolo. Vamos a ver cómo llega a las Tres Cimas, dos días después. La verdadera pregunta es cuánto dura esta resistencia.)*
+
 ---
 
 Los dos llegaron juntos a la meta del Passo Fedaia, sin que ninguno lograra una ventaja real, en lo que ya se había convertido, etapa tras etapa, en el patrón dominante de ese Giro: ataques de Pogačar, respuestas inmediatas de Santi, sin que la clasificación general sufriera cambios significativos desde la crono de Perugia.
@@ -44,6 +55,17 @@ Esa noche, en el hotel, Rusconi revisó los datos completos de la etapa con una 
 
 — Es pasado mañana —dijo Rusconi—. Vamos a llegar con menos margen del que queríamos. Pero todavía hay margen.
 
+Pogačar, en la zona de meta de Tre Cime, se acercó a Santi un momento, con una mirada que reflejaba más cálculo que cualquier otro día del Giro hasta entonces.
+
+— J'ai vu cette hésitation —dijo el esloveno, sin rodeos—. La même qu'au Tourmalet l'année dernière, non?
+*(Vi esa vacilación. La misma del Tourmalet el año pasado, ¿no?)*
+
+— Peut-être —dijo Santi, sin negarlo del todo—. On verra au Grappa.
+*(Quizás. Vamos a ver en el Grappa.)*
+
+— On verra, oui —confirmó Pogačar—. J'ai attendu toute la saison pour cette montagne.
+*(Vamos a ver, sí. Esperé toda la temporada por esta montaña.)*
+
 ---
 
 El día de descanso, entre la etapa 18 y la 19, le dio al equipo una pausa breve para revisar en detalle el perfil del Monte Grappa: 18 kilómetros desde Romano d'Ezzelino, con una pendiente media del ocho coma dos por ciento y rampas que superaban el catorce por ciento en los últimos tres kilómetros, un terreno que Koen describió, después de estudiarlo en la tablet, como "el tipo de puerto que no perdona ni un gramo de fatiga acumulada".
@@ -59,6 +81,16 @@ Luca Arnheim, que había soportado buena parte del desgaste de las etapas alpina
 — Necesito que me lleves lo más lejos posible en la subida, como siempre —dijo Santi—. Y si te queda algo en las piernas después de eso, que sigas ahí, aunque sea para que Pogačar vea que no estoy solo.
 
 — Voy a llegar lo más lejos que el cuerpo me permita —dijo Luca, con la determinación silenciosa que lo caracterizaba—. No voy a fallarte en la etapa que más importa.
+
+Caruso, que también escuchaba parte de la conversación desde una mesa cercana del comedor del hotel, donde los equipos italianos y colombianos compartían a veces el mismo salón en los hoteles más pequeños de montaña, se acercó al final de la reunión con un comentario que reflejaba la perspectiva distinta de un corredor más veterano.
+
+— El Grappa es un puerto que conozco bien, desde que era joven —dijo Caruso—. No es solo la pendiente. Es el viento que sube desde el valle del Piave en las últimas curvas. Eso afecta más de lo que cualquier número de potencia puede predecir.
+
+— Gracias por el dato —dijo Santi, genuinamente agradecido por la información—. No lo tenía en cuenta.
+
+— Avisale a tu director que lo revise con el equipo meteorológico —dijo Caruso—. Un viento de costado en esas curvas finales puede cambiar toda la dinámica de un ataque.
+
+Ferretti anotó la advertencia de inmediato, agradeciendo la generosidad poco habitual de un rival compartiendo información valiosa en un momento tan decisivo del Giro.
 
 ---
 
@@ -86,6 +118,12 @@ Antes de apagar la luz, revisó un último mensaje de Mariana, que había seguid
 
 *Santi: Gracias. Esta etapa la voy a necesitar más que ninguna otra hasta ahora.*
 
+*Mariana: Vas a estar bien. Confío en eso, aunque no entienda la mitad de los números.*
+
+*Santi: Eso ayuda más de lo que te imaginás.*
+
 Guardó el teléfono y se quedó dormido pensando en pendientes del catorce por ciento, en la sensación de vacilación que había sentido esa tarde, y en la esperanza silenciosa de que el cuerpo respondiera, una vez más, cuando más lo necesitara.
+
+Pensó también en el comentario de Caruso sobre el viento del valle del Piave, un detalle que ningún archivo de Rusconi había mencionado todavía, y se preguntó cuántas otras pequeñas ventajas, invisibles para cualquier análisis de datos, seguían escondidas en la memoria de los corredores más veteranos del pelotón, esperando ser compartidas en el momento justo.
 
 ---

@@ -32,6 +32,17 @@ Carapaz, que había logrado mantenerse cerca del grupo de favoritos durante buen
 
 — Esos tres ya no corren contra el resto de nosotros —dijo Carapaz, en la zona de meta, con un respeto resignado en la voz—. Corren entre ellos. El resto solo estamos viendo el espectáculo desde unos metros más atrás.
 
+En la cabina francesa, instalada esa jornada en un punto elevado con vista directa al monumento de Desgrange, Laurent y Philippe narraban el ascenso con la solemnidad que el escenario exigía.
+
+— Le Galibier, Philippe. La montagne la plus chargée d'histoire de tout le Tour, et ces trois-là la traitent comme un simple col de quatrième catégorie.
+*(El Galibier, Philippe. La montaña más cargada de historia de todo el Tour, y estos tres la tratan como un simple puerto de cuarta categoría.)*
+
+— Ce n'est pas du mépris, Laurent. C'est juste leur niveau actuel. Desgrange, de là-haut, doit regarder ça avec une certaine fierté, je pense.
+*(No es desprecio, Laurent. Es simplemente su nivel actual. Desgrange, desde allá arriba, debe estar mirando esto con cierto orgullo, creo.)*
+
+— Et Carapaz qui craque à mille mètres de l'arrivée... même les meilleurs grimpeurs du peloton ne peuvent plus suivre ce rythme.
+*(Y Carapaz que se rompe a mil metros de la llegada... ni los mejores escaladores del pelotón pueden seguir ya ese ritmo.)*
+
 ---
 
 El descenso hacia Saint-Jean-de-Maurienne, técnico y rápido, con curvas cerradas que exigían una concentración total después del esfuerzo de la subida, fue donde Pogačar intentó su última carta del día: un ataque en plena bajada, aprovechando su habilidad reconocida como uno de los mejores descensores del pelotón.
@@ -51,6 +62,20 @@ Los tres cruzaron la meta con la misma diferencia de tiempo que habían empezado
 — ¿Eso cambia su estrategia para el resto del Tour?
 
 — Cambia mi respeto por él, que ya era alto —dijo Pogačar—. La estrategia, vamos a verla en los Pirineos.
+
+David Gaudu, el escalador francés que había terminado la etapa varios minutos detrás de los tres favoritos pero que seguía siendo, para el público local, la mejor esperanza nacional de un podio, se acercó a Santi en la zona de antidopaje, todavía con la decepción de un Catorce de Julio sin gloria francesa visible en la cara.
+
+— Désolé de ne pas vous avoir donné un peu plus de fil à retordre aujourd'hui, jour de fête nationale en plus.
+*(Perdón por no haberles dado un poco más de batalla hoy, encima en día de fiesta nacional.)*
+
+— Vous avez fait une belle étape, David. On vous a vu jusqu'au pied du Galibier, ce n'est pas rien.
+*(Hiciste una linda etapa, David. Te vimos hasta el pie del Galibier, no es poca cosa.)*
+
+— Peut-être l'année prochaine, avec un peu plus de réussite —dijo Gaudu, sonriendo con resignación—. Pour l'instant, profitez du feu d'artifice, vous trois. Le pays entier regarde, même si ce n'est pas un Français qui gagne.
+*(Quizás el año que viene, con un poco más de suerte. Por ahora, disfruten los fuegos artificiales, ustedes tres. El país entero está mirando, aunque no sea un francés el que gane.)*
+
+— On les entend depuis la route, ces feux d'artifice —dijo Santi, riendo—. C'est difficile de les ignorer, même en pleine montée.
+*(Los escuchamos desde la carretera, esos fuegos artificiales. Es difícil ignorarlos, incluso en plena subida.)*
 
 Ferretti, escuchando la rueda de prensa desde un costado de la sala, le comentó a Rusconi en voz baja, después de que Pogačar terminara su intervención.
 
@@ -76,6 +101,10 @@ Esa noche, en el hotel, Santi tuvo una breve videollamada con Hernando, algo poc
 
 Hernando sonrió, anotando en el cuaderno la frase completa, palabra por palabra, antes de despedirse y dejar que su hijo descansara para la etapa pirenaica que todavía quedaba por delante.
 
+— Le conté lo que dijiste a Gaudu, sobre los fuegos artificiales —agregó Hernando, antes de colgar—. Me hizo gracia que hasta en plena subida del Galibier te llegara el ruido de la fiesta nacional francesa.
+
+— Fue surreal, la verdad —dijo Santi—. Subiendo al límite, y de fondo, fuegos artificiales por todo el valle. Solo en este deporte pasa algo así.
+
 — Una cosa más —dijo Hernando, antes de colgar—. Pogačar dijo algo en la rueda de prensa, ¿lo escuchaste?
 
 — No, todavía no la vi completa.
@@ -85,5 +114,7 @@ Hernando sonrió, anotando en el cuaderno la frase completa, palabra por palabra
 — Lo voy a ver después, entonces —dijo Santi, sonriendo—. Buenas noches, viejo.
 
 — Buenas noches —dijo Hernando—. Descansá. Pirineos en dos días.
+
+Colgó el teléfono y se quedó un momento mirando hacia la ventana del hotel, donde todavía se veían, a lo lejos, los últimos destellos de los fuegos artificiales sobre el valle, un recordatorio extraño de que, incluso en medio de la batalla deportiva más intensa de su carrera, el resto del mundo seguía celebrando sus propias cosas, ajeno por completo a los catorce segundos que dos años atrás habían cambiado su vida, y a los que todavía faltaban por decidirse en esa misma montaña francesa.
 
 ---

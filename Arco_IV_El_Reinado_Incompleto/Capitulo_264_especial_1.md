@@ -34,6 +34,14 @@ Santi se quedó callado un momento largo, algo poco habitual en cualquier episod
 
 — Nada, al principio —admitió Santi—. Me quedé sentado, solo, con la televisión encendida, hasta que Mariana me encontró así.
 
+— ¿Cuánto tiempo estuviste así, solo, antes de que ella llegara? —preguntó Julián.
+
+— No sé exactamente —dijo Santi—. Quizás una hora, quizás más. El tiempo, esa noche, no se sentía como se siente normalmente. Solo sé que cuando ella entró a la sala, yo seguía en el mismo sillón, en la misma posición, con la pantalla todavía encendida mostrando highlights de la presentación de equipos.
+
+— ¿Qué notó ella, al verte así?
+
+— Dijo después que mi cara no se parecía a nada que hubiera visto antes en mí, ni siquiera en el hospital de Tarbes —dijo Santi—. Que en el hospital había dolor, pero también había gente alrededor, un plan médico, algo a qué aferrarse. Esa noche, dijo, lo que vio fue vacío puro, sin ningún plan adentro.
+
 ---
 
 — Contame esa parte, si podés —dijo Julián—. Qué pasó cuando ella te encontró.
@@ -89,6 +97,14 @@ Santi tardó en responder, sopesando cuánto quería revelar de esa parte espec�
 — ¿Te arrepentís de algo, de lo que contaste hoy?
 
 — No —dijo Santi, sin dudarlo—. Me costó decirlo. Pero no me arrepiento de ninguna palabra.
+
+— ¿Y Hernando? —preguntó Julián—. Sé que él también escuchó esta grabación antes de que decidieras publicarla.
+
+— La escuchó completa, en silencio, y al final solo me dijo que estaba orgulloso de que contara esa parte también, no solo las victorias —dijo Santi—. Después anotó algo en su cuaderno, como siempre. No me dejó leerlo todavía. Dice que es para más adelante.
+
+— ¿Mariana sabe que esto se publica hoy? —preguntó Julián.
+
+— Lo sabe, y lo leyó antes de que decidiéramos publicarlo —dijo Santi—. Le pregunté si estaba de acuerdo con que su parte de esa noche también fuera pública. Me dijo que sí, sin dudarlo, porque si esto podía ayudar a alguien más, valía la pena que la gente supiera que ese tipo de apoyo, el de decir la verdad incómoda en lugar de mentiras reconfortantes, también existe y también funciona.
 
 ---
 

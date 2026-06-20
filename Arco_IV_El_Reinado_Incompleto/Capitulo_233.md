@@ -30,6 +30,20 @@ En el Civiglio, a catorce kilómetros de la meta, Santi y Pogačar se quedaron s
 
 El público italiano, apostado a ambos lados de la carretera desde el Ghisallo hasta Como, en una tradición que se repetía cada año desde hacía décadas, observaba con un entusiasmo particular ese duelo final entre los dos corredores que habían dominado la temporada europea, conscientes de estar viendo el cierre de un año que probablemente sería recordado durante mucho tiempo en la historia reciente del ciclismo.
 
+En la cabina de la RAI, instalada junto a la Madonna del Ghisallo con vista al santuario de los ciclistas, los comentaristas italianos Paolo Bettini hijo —heredero del apellido de un campeón del mundo— y Davide Cassani narraban el ascenso con la pasión característica de la transmisión local.
+
+— Guarda questi due, Davide! Dopo tutta la stagione che hanno fatto, eccoli di nuovo qui, da soli, sul Sormano.
+*(¡Mirá a estos dos, Davide! Después de toda la temporada que tuvieron, acá están de nuevo, solos, en el Sormano.)*
+
+— È la stagione più bella che ricordo, Paolo. E pensare che finisce qui, sul lago, dove tutto ha un sapore diverso.
+*(Es la temporada más linda que recuerdo, Paolo. Y pensar que termina acá, en el lago, donde todo tiene un sabor distinto.)*
+
+— Pogačar sembra stanco, dopo il Mondiale. Reyes, invece, sembra che la stagione non lo abbia toccato per niente.
+*(Pogačar parece cansado, después del Mundial. Reyes, en cambio, parece que la temporada no lo tocó para nada.)*
+
+— Vedremo a San Fermo della Battaglia, l'ultima salita prima della discesa finale. Lì si decide tutto, come sempre.
+*(Vamos a ver en San Fermo della Battaglia, la última subida antes del descenso final. Ahí se decide todo, como siempre.)*
+
 ---
 
 En San Fermo della Battaglia, el último repecho antes del descenso final hacia Como, Santi atacó con una decisión que reflejaba toda la confianza acumulada durante una temporada extraordinaria, abriendo una diferencia de varios metros que Pogačar, ya con las piernas pesadas de una temporada que incluía Mundial, Lombardia y meses de competencia ininterrumpida, no logró cerrar del todo.
@@ -41,6 +55,22 @@ Llegaron juntos al sprint final en Como, con Santi ganando por ocho segundos, en
 — Fue una temporada difícil para los dos —dijo Santi—. Nos vemos el año que viene, otra vez, en algún punto del calendario.
 
 — El año que viene, otra vez —confirmó Pogačar, sonriendo, con el cansancio visible de una temporada completa terminando finalmente en ese lago lombardo.
+
+Vingegaard, que no corría esa carrera pero seguía la transmisión desde Dinamarca según contó después en sus propias redes sociales, le escribió a Santi esa misma noche un mensaje breve que Santi recibió con sorpresa.
+
+*Jonas Vingegaard: Vi la llegada. Tercer Lombardia, increíble temporada la tuya. Ya estoy pensando en el año que viene.*
+
+*Santi: Gracias, Jonas. Yo también. Nos vemos en algún punto del calendario, seguro.*
+
+*Jonas Vingegaard: Seguro que sí. Descansá bien el invierno. Te lo ganaste, este año más que cualquier otro.*
+
+En la cabina italiana, antes de cerrar la transmisión, Bettini hizo una última reflexión que resumía bien el sentimiento general de la temporada.
+
+— Paolo, dimmi una cosa —dijo Cassani—. In vent'anni di carriera in questo sport, hai mai visto una stagione così, con tre corridori a questo livello, allo stesso tempo?
+*(Paolo, decime una cosa. En veinte años de carrera en este deporte, ¿alguna vez viste una temporada así, con tres corredores a este nivel, al mismo tiempo?)*
+
+— Mai, Davide. E dubito che la rivedremo presto. Goditi quello che abbiamo visto quest'anno, perché potrebbe non capitare più.
+*(Nunca, Davide. Y dudo que la volvamos a ver pronto. Disfrutá lo que vimos este año, porque podría no repetirse.)*
 
 ---
 
@@ -75,5 +105,19 @@ Hernando se quedó callado un momento, sopesando la importancia de esa frase má
 — Suena más simple de lo que se siente.
 
 — Casi todo lo importante es así —dijo Hernando—. Simple de decir, difícil de hacer. Pero vos ya hiciste cosas mucho más difíciles este año.
+
+Antes de despedirse, Hernando agregó una última reflexión, mientras cerraba el cuaderno con la entrada final de la temporada europea ya escrita.
+
+— Una cosa más —dijo Hernando—. No le digas lo que vos creés que ella quiere escuchar. Decile lo que realmente sentís, aunque no sea perfecto, aunque te tiemble la voz. Eso es lo único que de verdad importa en esta conversación.
+
+— ¿Cómo lo hiciste vos, con mamá? —preguntó Santi.
+
+— Mal, al principio —admitió Hernando, riendo—. Tardé dos años, como ya te contó ella seguramente. Pero cuando finalmente hablé, no usé ningún discurso preparado. Solo dije la verdad, por miedo a perderla si seguía esperando un momento perfecto que nunca iba a llegar.
+
+— ¿Y funcionó?
+
+— Treinta años después, seguimos juntos —dijo Hernando—. Así que sí, funcionó.
+
+Santi se despidió de su padre con esa última frase resonando en su cabeza, sintiendo, por primera vez en mucho tiempo, que el desafío que tenía por delante no se parecía a ningún puerto de montaña ni a ninguna crono, sino a algo completamente nuevo, para lo que ningún entrenamiento de Rusconi podía prepararlo del todo, mientras afuera, sobre el lago de Como, las luces de la ciudad empezaban a reflejarse en el agua, marcando el cierre silencioso de la mejor temporada de toda su carrera.
 
 ---

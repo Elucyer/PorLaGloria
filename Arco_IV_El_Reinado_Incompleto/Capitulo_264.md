@@ -14,7 +14,55 @@ Noviembre transcurrió con la calma propia de un proceso que finalmente había e
 
 — Esa sensación de seguridad es exactamente lo que buscábamos recuperar después del susto —dijo Rusconi—. El cuerpo necesita confiar en el proceso tanto como la cabeza.
 
-Mariana, mientras tanto, organizó su propio calendario de noviembre alrededor de dos proyectos paralelos: continuar el reportaje fotográfico sobre la recuperación de Santi para la revista española, y empezar a planear, con Daniela y Camilo, una posible exposición conjunta en Bogotá para principios de 2026, que le permitiría reconectar con su círculo profesional de la capital sin tener que mudarse de vuelta.
+Mariana, mientras tanto, organizó su propio calendario de noviembre alrededor de dos proyectos paralelos: continuar el reportaje fotográfico sobre la recuperación de Santi para la revista española, y empezar a planear, con Daniela y Camilo, una posible exposición conjunta en Bogotá para principios de 2026.
+
+---
+
+El veinte de noviembre, en el control médico mensual que ya se había convertido en rutina, el especialista en columna que seguía el caso desde Tarbes entregó, por videollamada desde Francia, el resultado más alegre de todo el año.
+
+— La consolidación ósea está completa, sin ninguna duda —dijo el médico, mostrando las imágenes de la última resonancia—. Los músculos de soporte ya alcanzaron un noventa y cinco por ciento de la fuerza que tenían antes del accidente, según las pruebas de Rusconi. Para cualquier propósito práctico, este cuerpo ya está listo para retomar un entrenamiento de alto rendimiento sin restricciones especiales.
+
+— ¿Noventa y cinco por ciento? —repitió Santi, necesitando escuchar el número una segunda vez para terminar de creerlo.
+
+— El cinco por ciento restante se termina de cerrar con el propio trabajo específico que viene —dijo el médico—. Pero la fractura, la lesión que nos preocupó durante catorce meses, ya no es un factor limitante. Es historia.
+
+Esa noche, Santi llamó a Hernando antes que a nadie, con una emoción que no había sentido desde la victoria de París en 2023.
+
+— Noventa y cinco por ciento, papá —dijo Santi, con la voz quebrada—. Casi al cien.
+
+— Lo sabía —dijo Hernando, también con la voz temblando—. Lo sentía en cómo hablabas las últimas semanas. Esto era solo la confirmación.
+
+---
+
+Rusconi, dos días después, llamó a Santi para una conversación que llevaba semanas posponiendo, esperando justamente ese resultado médico antes de plantearla con seriedad.
+
+— Ahora que el cuerpo ya respondió, tenemos que hablar del último tramo antes del regreso —dijo Rusconi—. Y para eso, necesito decirte algo directamente, sin rodeos: entrenar a distancia, con videollamadas semanales y viajes ocasionales a Girona, funcionó para sobrevivir el año más difícil. No va a funcionar para construir la forma específica que vas a necesitar en mayo y junio.
+
+— ¿Qué estás proponiendo? —preguntó Santi, aunque ya sospechaba la respuesta.
+
+— Que te instales en Girona, cerca del equipo, de la fisioterapia, del túnel de viento en Ginebra, de todo lo que hace falta para los últimos meses antes de la vuelta —dijo Rusconi—. No un viaje de unas semanas, como los que ya hiciste. Una mudanza real, hasta que estés compitiendo otra vez.
+
+Santi se quedó en silencio un momento largo, sintiendo el peso completo de lo que esa propuesta significaba: no solo para él, sino para Mariana, para Hernando y Carmen, para toda la vida que había construido en Laureles durante ese año de recuperación.
+
+— Necesito hablarlo con Mariana antes de decir cualquier cosa —dijo Santi, finalmente—. Pero en lo que a mí respecta, sé que tenés razón.
+
+---
+
+Esa misma noche, en el patio bajo el níspero, Santi le planteó la idea a Mariana con la misma honestidad directa que Rusconi había usado con él.
+
+— Rusconi quiere que me mude a Girona —dijo Santi, sin rodeos—. No un viaje más. Una mudanza real, hasta el regreso a competencia. Probablemente varios meses, quizás más de un año si las cosas se extienden.
+
+Mariana se quedó callada un momento, sopesando la noticia con la misma seriedad con que había enfrentado cada decisión importante de ese año.
+
+— ¿Y qué querés vos, más allá de lo que dice Rusconi? —preguntó Mariana, directamente.
+
+— Quiero volver a competir de la mejor forma posible —dijo Santi—. Y sé, sin ninguna duda, que eso significa estar allá. Pero no quiero pedirte que dejes tu vida acá sin que lo decidamos juntos, de verdad, no que yo asuma que vas a seguirme sin preguntarte.
+
+— Ya lo decidí, en realidad, antes de que terminaras de explicarlo —dijo Mariana, con una sonrisa que sorprendió a Santi por su rapidez—. Hace meses que sabía que este momento iba a llegar, de una forma u otra. La revista española me puede seguir contratando desde cualquier lugar de Europa, probablemente con más facilidad todavía. Y la exposición de Bogotá ya está casi lista; la podemos inaugurar antes de irnos, o yo puedo volver esa semana específica, si hace falta.
+
+— ¿Estás segura? —insistió Santi—. Dejar Medellín, tu familia, todo lo que construiste acá este año.
+
+— Estoy segura —dijo Mariana, sin dudarlo—. Lo que construí este año no fue una ciudad. Fue una vida con vos, con tu familia. Esa vida se puede mudar. Lo único que no se puede mudar es lo que sentimos, y eso ya decidió quedarse, sin importar el código postal.
 
 ---
 
@@ -78,7 +126,9 @@ Uno de los padres presentes, un hombre que Santi no conocía personalmente, se a
 
 ---
 
-La Nochebuena, celebrada en la casa de Laureles con la tradición de siempre —natilla, buñuelos, la misa de gallo a la que Hernando y Carmen nunca faltaban—, tuvo este año un invitado adicional que rompía, por primera vez, la rutina exclusivamente familiar de esa noche: Mariana, ya completamente integrada a cada ritual de la familia, ayudó a Carmen a preparar la natilla desde temprano en la tarde, aprendiendo la receta exacta que se había transmitido en esa familia por generaciones.
+La Nochebuena, celebrada en la casa de Laureles con la tradición de siempre —natilla, buñuelos, la misa de gallo a la que Hernando y Carmen nunca faltaban—, tuvo este año un peso distinto al de cualquier otra: todos sabían, sin necesidad de decirlo en cada frase, que era la última que Santi y Mariana iban a pasar en Laureles antes de instalarse en Girona, una vez que la exposición de Bogotá quedara inaugurada y los preparativos del viaje estuvieran listos, probablemente a mediados de enero.
+
+Mariana, ya completamente integrada a cada ritual de la familia, ayudó a Carmen a preparar la natilla desde temprano en la tarde, aprendiendo la receta exacta que se había transmitido en esa familia por generaciones, con una atención todavía más cuidadosa que la de cualquier año anterior, sabiendo que la próxima Navidad la iba a celebrar, probablemente, a miles de kilómetros de esa misma cocina.
 
 — Tenés que revolver constantemente, sin parar, o se pega en el fondo —le explicó Carmen, mientras las dos trabajaban juntas en la cocina—. Mi mamá me enseñó así, y yo te enseño a vos ahora.
 
@@ -99,6 +149,14 @@ Esa noche, después de la misa, los cuatro se sentaron en el patio bajo el nísp
 — Porque algún día quiero que tu hijo, si llegás a tenerlo, aprenda a andar en esa misma bicicleta —dijo Hernando, con una ternura que tomó a todos por sorpresa.
 
 Mariana y Santi se miraron, sin decir nada, pero con una sonrisa que comunicaba más que cualquier palabra sobre lo que ese comentario implicaba para el futuro que ambos, sin haberlo discutido todavía explícitamente, ya empezaban a imaginar juntos.
+
+— Esa bicicleta se queda acá, eso sí —dijo Santi, después de un momento—. Aunque nosotros nos vayamos a Girona, este garaje sigue siendo la casa de esa bicicleta. Y la nuestra, cada vez que volvamos.
+
+— Por supuesto que se queda acá —dijo Hernando—. Esta sigue siendo su casa, sin importar cuántos países tengan que cruzar este año para entrenar.
+
+Carmen, escuchando la conversación desde el otro lado de la mesa, no pudo evitar que se le llenaran los ojos de lágrimas, una mezcla de orgullo y de la tristeza anticipada de saber que, por primera vez en la vida adulta de su hijo, la distancia iba a ser permanente, no solo la de un calendario de carreras que siempre terminaba con un regreso a casa.
+
+— Va a estar bien —le dijo Hernando a Carmen, en voz baja, tomándole la mano—. Lo vamos a visitar. Y esta vez, sin necesitar ningún accidente para tener la excusa de ir a verlo correr en persona.
 
 ---
 
@@ -131,6 +189,14 @@ Antes de cerrar la reunión, Duarte mencionó algo que llevaba semanas queriendo
 Santi lo pensó un momento, recordando todo lo que había aprendido durante el año sobre el peligro de las expectativas prematuras.
 
 — Demos una fecha aproximada, sin comprometernos a un resultado —dijo Santi—. Mediados de 2026, según Rusconi. Sin prometer victorias, solo prometiendo que voy a estar de vuelta en una carrera, compitiendo otra vez.
+
+— Hay algo más que quiero que sepan, antes de que lo anuncien de cualquier forma —agregó Santi—. Me voy a instalar en Girona, cerca del equipo, hasta el regreso. Ya no más entrenamiento a distancia desde Medellín.
+
+— ¿Cuándo? —preguntó Duarte, ya tomando notas para la logística.
+
+— A mediados de enero, después de la exposición de Mariana en Bogotá —dijo Santi—. Necesito coordinar la mudanza, el apartamento, todo lo que haga falta allá.
+
+— Eso simplifica varias cosas, en realidad —dijo Duarte—. Vamos a comunicarlo junto con la fecha aproximada de regreso: que te instalás en Europa para encarar la última etapa de la preparación con el equipo, de cerca. Es una buena noticia, dicha así. Refleja seriedad, no desesperación.
 
 Rusconi, en la última llamada de seguimiento del año, repasó con Santi el plan completo para los primeros meses de 2026: fortalecimiento muscular específico en enero y febrero, incremento gradual de volumen aeróbico en marzo y abril, y las primeras pruebas de potencia específica en mayo, antes de un posible regreso a competencia de bajo nivel a mediados de año.
 
@@ -194,9 +260,9 @@ Cuando Julián terminó de grabar todos los mensajes, le entregó el archivo com
 
 Hernando, esa noche, escribió en el cuaderno la última línea del año, cerrando, simbólicamente, el capítulo más oscuro de toda la historia que había documentado durante años en esas páginas:
 
-*31 de diciembre de 2025. Un año entero sin competir. La vértebra sanó. Los músculos se reconstruyen. La Fundación creció más que nunca. Mariana es parte de esta familia, de verdad, desde hace meses, y sus padres también se volvieron parte de algo más grande esta Navidad. Santi está en paz, de una forma que no estaba ni siquiera en sus mejores años de victorias. Rodrigo, Julián, Restrepo: la familia que se construyó, sin planearla, alrededor de este año difícil.*
+*31 de diciembre de 2025. Un año entero sin competir. La vértebra sanó, al noventa y cinco por ciento según los médicos, casi al cien según cómo lo veo yo, que lo conozco mejor que ninguna resonancia. Los músculos se reconstruyen. La Fundación creció más que nunca. Mariana es parte de esta familia, de verdad, desde hace meses, y sus padres también se volvieron parte de algo más grande esta Navidad. Santi está en paz, de una forma que no estaba ni siquiera en sus mejores años de victorias. Rodrigo, Julián, Restrepo: la familia que se construyó, sin planearla, alrededor de este año difícil.*
 
-*Mediados de 2026: el regreso. No sabemos todavía a qué nivel. Pero sabemos que va a volver, y eso, después de este año, es más que suficiente para cerrar el cuaderno de 2025 con gratitud, no con lamento.*
+*Y ahora, una noticia nueva, todavía fresca: a mediados de enero, Santi y Mariana se mudan a Girona. No es un viaje de entrenamiento más. Es la decisión de estar cerca del equipo, de Rusconi, de todo lo que hace falta para volver de la mejor forma posible. Esta va a ser la última Navidad en esta casa por un buen tiempo. Me cuesta escribir esto sin que se me apriete el pecho, pero también sé que es lo correcto. Mediados de 2026: el regreso. No sabemos todavía a qué nivel. Pero sabemos que va a volver, y que esta vez lo va a hacer desde más cerca de donde tiene que estar. Eso, después de este año, es más que suficiente para cerrar el cuaderno de 2025 con gratitud, no con lamento.*
 
 Antes de cerrar el cuaderno esa noche, Hernando agregó una última línea, casi como una nota personal que no estaba seguro de que Santi llegara a leer nunca.
 

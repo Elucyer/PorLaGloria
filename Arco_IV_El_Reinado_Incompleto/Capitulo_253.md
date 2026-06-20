@@ -40,6 +40,14 @@ El médico jefe del equipo de trauma, un especialista en columna que había sido
 
 — Significa que el impacto comprimió parte del cuerpo vertebral —explicó el médico—. No hay daño neurológico evidente en los estudios iniciales, lo cual es la mejor noticia posible dentro de una situación grave. Pero una fractura de ese tipo, incluso sin daño neurológico, requiere una inmovilización prolongada y una rehabilitación extremadamente cuidadosa. Cualquier movimiento brusco durante el proceso de consolidación podría comprometer la médula espinal.
 
+— ¿Necesita cirugía en la columna? —preguntó Mariana, traduciendo su propia pregunta casi de forma automática antes de que Hernando pudiera formularla.
+
+— Probablemente no —dijo el médico—. La mayoría de las fracturas por compresión de este tipo se manejan con un corsé rígido y reposo absoluto durante las primeras semanas, evitando la cirugía si la estabilidad de la columna se mantiene en los controles posteriores. Vamos a saberlo con más certeza en los próximos días, con estudios de seguimiento.
+
+— ¿Y la clavícula? —preguntó Hernando.
+
+— Esa sí va a necesitar cirugía, probablemente mañana mismo —dijo el médico—. Es el procedimiento menos preocupante de los dos, comparativamente. Pero no podemos operarla hasta confirmar que la columna está completamente estable para el traslado al quirófano.
+
 ---
 
 — ¿Cuánto tiempo hablamos? —preguntó Ferretti, directamente, sabiendo que esa pregunta era, en ese momento, más importante que cualquier otra.
@@ -76,6 +84,14 @@ Santi cerró los ojos un momento, procesando la información con un silencio que
 
 Mariana, sentada en silencio al pie de la cama, simplemente sostuvo el pie de Santi por encima de la sábana, sin decir nada, dejando que el gesto hablara por ella en un momento donde las palabras, de cualquier idioma, no alcanzaban para nada.
 
+— Mariana —dijo Santi, después de un rato, con la voz todavía débil—. No tenés que quedarte. Esto va a ser largo, y vos tenés tu propia vida, tu trabajo en Bogotá.
+
+— No voy a ningún lado —dijo Mariana, sin dudarlo un segundo—. Ya hablé con mis clientes esta misma noche, mientras esperábamos. Pospuse todo lo que pude posponer. Me quedo el tiempo que haga falta.
+
+— ¿Estás segura? —insistió Santi—. No quiero que sientas que tenés que hacer esto por obligación.
+
+— No es obligación —dijo Mariana, con una firmeza que sorprendió a todos los presentes en la habitación—. Es justo lo contrario. Es exactamente donde quiero estar.
+
 Rusconi, esperando afuera de la habitación junto a Ferretti, recibió la noticia completa cuando Hernando salió un momento a buscar café para todos.
 
 — Una vértebra —repitió Rusconi, con la voz quebrada—. Doce a dieciocho meses.
@@ -85,5 +101,15 @@ Rusconi, esperando afuera de la habitación junto a Ferretti, recibió la notici
 — Esta noche solo importa que esté vivo —dijo Rusconi, repitiendo, casi sin darse cuenta, las mismas palabras que Hernando ya había dicho dentro de la habitación—. El resto se reorganiza. Una vida no se reorganiza si algo sale peor de lo que salió hoy.
 
 Ferretti asintió, en silencio, mientras los dos se sentaban a esperar el amanecer en los pasillos de un hospital francés, lejos de cualquier número de potencia o proyección de CdA que hubiera importado, hasta esa tarde, más que cualquier otra cosa en sus vidas profesionales.
+
+Pogačar y Vingegaard, que se enteraron de la gravedad completa del diagnóstico ya pasada la medianoche, a través de un comunicado breve que el equipo MercadoLibre-FCV emitió antes de que cualquier rumor sin confirmar circulara libremente, le escribieron a Santi mensajes casi simultáneos que Ferretti le mostró al día siguiente, una vez que el dolor le permitió leer algo en el teléfono.
+
+*Tadej Pogačar: Vi el comunicado. Lo siento muchísimo. Esto es mucho más grande que cualquier rivalidad. Recuperate, sin apuro. Vamos a estar ahí cuando vuelvas, sea cuando sea.*
+
+*Jonas Vingegaard: Pensé en vos toda la noche. Lo que pasó hoy no se lo deseo a nadie, mucho menos a alguien que respeto tanto. Fuerza, de verdad.*
+
+Santi, leyendo ambos mensajes con el cuerpo todavía inmovilizado y el dolor apenas controlado por la medicación, sintió, por primera vez desde la caída, algo parecido a las lágrimas que había estado conteniendo desde que despertó en esa habitación.
+
+Hernando, viéndolo llorar en silencio, no dijo nada, simplemente acercó una silla junto a la cama y se quedó ahí, como había hecho tantas veces en su vida, dispuesto a esperar tanto tiempo como hiciera falta, sin necesidad de palabras que en ese momento, de cualquier idioma, no podían arreglar nada.
 
 ---

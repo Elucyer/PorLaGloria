@@ -24,6 +24,20 @@ Luca Arnheim visitó a Santi en el hospital de Ginebra antes de que volviera a C
 
 — Entonces voy a estar ahí cuando sea —dijo Luca, sin dudarlo—. Esto no cambia nada de lo que sos para este equipo.
 
+Antes de irse, Luca se quedó un momento más en la puerta de la habitación, con una pregunta que llevaba días queriendo hacer.
+
+— ¿Te puedo preguntar algo, sin que suene raro? —dijo Luca.
+
+— Decime.
+
+— ¿Vale la pena, después de todo esto? —preguntó el alemán—. Digo, ¿seguís queriendo volver a una bicicleta, después de lo que pasó?
+
+Santi lo pensó un momento, mirando hacia la ventana del hospital, donde se veían los Alpes suizos cubiertos de nubes bajas.
+
+— No lo sé todavía, con certeza absoluta —admitió Santi, con una honestidad que sorprendió incluso a Luca—. Pero la idea de no volver me asusta más que la idea de volver y que duela. Eso, por ahora, es la respuesta más clara que tengo.
+
+— Es una buena respuesta —dijo Luca, asintiendo, antes de finalmente despedirse.
+
 ---
 
 El regreso a Colombia, a mediados de agosto, tuvo un carácter completamente distinto a cualquier regreso anterior: sin recepción en el aeropuerto, sin periodistas esperando, con Duarte gestionando deliberadamente un perfil bajo que el propio Santi había pedido.
@@ -45,6 +59,14 @@ Septiembre y octubre transcurrieron con una rutina lenta y repetitiva: controles
 Hernando, que escuchaba parte de esas conversaciones desde la sala, empezó a notar en su hijo un cambio de humor que documentó, esa misma semana, en el cuaderno:
 
 *Septiembre 2024. Santi más callado de lo habitual. No es tristeza exactamente. Es algo más parecido a la impaciencia de un cuerpo que no sabe estar quieto, encontrándose, por primera vez, obligado a hacerlo.*
+
+Mariana, que notaba lo mismo desde más cerca todavía, intentó, esas semanas, encontrar pequeñas formas de romper la monotonía del balcón y los controles médicos: tardes enteras enseñándole a jugar ajedrez, algo que Santi nunca había tenido tiempo de aprender en una vida dedicada por completo al ciclismo, y caminatas cortas y lentas por el barrio cuando el médico finalmente autorizó algo de movimiento, siempre con el corsé puesto y sin apurar el paso.
+
+— Esto es lo más lento que caminé en mi vida —dijo Santi, una tarde, sonriendo con una mezcla de frustración y resignación, mientras avanzaban media cuadra en lo que antes le hubiera tomado segundos en bicicleta.
+
+— Es lo más lento que vas a caminar en mucho tiempo, probablemente —dijo Mariana—. Pero es caminar, igual. Eso ya es más de lo que podías hacer hace un mes.
+
+— Tenés razón —admitió Santi—. Supongo que esa es la única forma de medir el progreso ahora: no en watts, sino en cuadras.
 
 ---
 
@@ -81,5 +103,15 @@ Más tarde esa noche, ya solos en el cuarto, Mariana encontró a Santi despierto
 — Asustado, todavía —admitió Santi—. Pero menos que en julio. Supongo que ese es el progreso real de estos meses, más que cualquier cosa que muestre una radiografía.
 
 — Ese progreso cuenta tanto como el otro —dijo Mariana, apagando la luz—. Quizás más.
+
+— ¿Te puedo pedir algo, para este año que empieza? —preguntó Santi, en la oscuridad, antes de cerrar los ojos del todo.
+
+— Lo que sea —dijo Mariana.
+
+— Paciencia —dijo Santi—. Sé que va a haber días difíciles, días donde no voy a ser fácil de aguantar. Te pido paciencia para esos días, aunque sea solo eso.
+
+— Ya la tuve todo este año —dijo Mariana, acomodándose contra su hombro sano—. No veo por qué se me iba a acabar justo ahora.
+
+Santi sonrió, en la oscuridad, sintiendo, por primera vez en mucho tiempo, que el año que se abría por delante, incierto y probablemente largo, todavía tenía algo firme sosteniéndolo desde el principio.
 
 ---

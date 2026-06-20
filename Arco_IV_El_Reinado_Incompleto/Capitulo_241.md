@@ -26,6 +26,17 @@ Luca Arnheim, que había marcado el ritmo del grupo principal hasta el pie de la
 
 — Buen trabajo —dijo Ferretti—. Recuperate bien esta noche. El Giro recién empieza.
 
+En la cabina de la RAI, Bettini y Cassani narraban el doble ataque con la intensidad habitual de cada cita de montaña.
+
+— Pogačar attacca presto, Davide! A tre chilometri, non a uno come al solito.
+*(¡Pogačar ataca temprano, Davide! A tres kilómetros, no a uno como de costumbre.)*
+
+— Sta cambiando il suo modo di correre, Paolo. Vuole logorare Reyes prima, non solo nell'ultimo strappo.
+*(Está cambiando su forma de correr, Paolo. Quiere desgastar a Reyes antes, no solo en el último tramo.)*
+
+— E Reyes risponde subito, senza perdere terreno. Sembra il Reyes della crono di Perugia che vedremo dopo, non quello della Liegi.
+*(Y Reyes responde de inmediato, sin perder terreno. Parece el Reyes de la crono de Perugia que vamos a ver después, no el de la Lieja.)*
+
 ---
 
 Santi cerró el hueco en menos de cuatrocientos metros, y los dos llegaron juntos a la meta, sin que ninguno lograra una ventaja real sobre el otro, en lo que la prensa italiana interpretó como un primer empate simbólico después de las señales preocupantes de la Lieja.
@@ -56,6 +67,20 @@ Pogačar, en su propia rueda de prensa, restó importancia al resultado sin dese
 
 — Eso lo va a saber en la tercera semana, no antes —dijo Pogačar, con una sonrisa que no revelaba nada más.
 
+Más tarde, en la zona de antidopaje, Pogačar se cruzó con Santi y aprovechó el momento, lejos de cualquier micrófono, para una conversación más directa que la de la rueda de prensa.
+
+— Seize secondes, c'est plus que je ne pensais —admitió el esloveno, sin la fachada despreocupada de minutos atrás.
+*(Dieciséis segundos es más de lo que pensaba.)*
+
+— L'hiver à Genève a payé, on dirait —dijo Santi.
+*(El invierno en Ginebra dio frutos, parece.)*
+
+— On dirait que oui —dijo Pogačar—. Mais j'ai mes propres plans pour la troisième semaine. Ne te réjouis pas trop vite.
+*(Parece que sí. Pero tengo mis propios planes para la tercera semana. No te alegres demasiado rápido.)*
+
+— Je ne me réjouis jamais trop vite avec toi, Tadej —dijo Santi, sonriendo—. C'est une des choses que j'ai apprises depuis 2021.
+*(Nunca me alegro demasiado rápido con vos, Tadej. Es una de las cosas que aprendí desde 2021.)*
+
 Ferretti, escuchando la rueda de prensa desde un costado de la sala, le comentó a Rusconi en voz baja, ya de camino al autobús del equipo.
 
 — Dijo "tercera semana" muy seguro de sí mismo —dijo Ferretti—. Como si ya supiera exactamente dónde quiere atacar.
@@ -63,6 +88,14 @@ Ferretti, escuchando la rueda de prensa desde un costado de la sala, le comentó
 — Probablemente lo sepa —dijo Rusconi—. Su equipo lleva meses estudiando el recorrido de las etapas alpinas finales. Nosotros también deberíamos tener ya un plan para esos días, no improvisarlo cuando lleguemos.
 
 — Lo tenemos, parcialmente —dijo Ferretti—. El Monte Grappa es el punto que más nos preocupa. Vamos a revisarlo en detalle esta semana, antes del día de descanso.
+
+Koen, que viajaba con el equipo técnico revisando cada bicicleta después de las etapas de los Apeninos, terreno conocido por su asfalto irregular en varios tramos, confirmó esa misma noche que no había encontrado ninguna anomalía mecánica preocupante.
+
+— Todo en orden, otra vez —dijo Koen, durante la cena del equipo—. El protocolo reforzado sigue sin fallar, ya hace más de un año.
+
+— Mejor así —dijo Santi—. No quiero ninguna sorpresa mecánica este año, con todo lo que está en juego.
+
+— No la vas a tener, de mi parte —dijo Koen, con la seriedad de siempre—. Eso te lo puedo garantizar, aunque no pueda garantizar nada de lo que pase en la carretera.
 
 ---
 
@@ -73,6 +106,14 @@ Esa noche, en el hotel de Perugia, Santi llamó a Mariana antes de la llamada ha
 — Eso es bueno, ¿no? Mejor que la Lieja, por lo menos.
 
 — Mucho mejor —dijo Santi—. Primera vez en este Giro que siento que el trabajo del invierno está funcionando de verdad, no solo en teoría.
+
+— ¿Y Pogačar, cómo se lo tomó? —preguntó Mariana.
+
+— Lo tomó con calma, como siempre —dijo Santi—. Me dijo, lejos de los micrófonos, que tiene sus propios planes para la tercera semana. No sé todavía qué significa eso exactamente, pero no suena a que se vaya a rendir fácil.
+
+— Nunca pensé que diría esto sobre un rival deportivo, pero empiezo a tenerle simpatía a Pogačar —dijo Mariana, riendo—. Por lo que me contás, parece un buen tipo, fuera de la competencia.
+
+— Lo es —confirmó Santi—. Eso es parte de lo que hace que esta rivalidad sea distinta a cualquier otra que tuve antes.
 
 — Me alegra escucharte así —dijo Mariana—. Sonabas preocupado la semana pasada.
 
@@ -101,5 +142,7 @@ Antes de colgar, Hernando preguntó algo que llevaba toda la llamada queriendo p
 — Avisame cuando lo estudien —dijo Hernando—. Quiero anotarlo en el cuaderno con tiempo, no a último momento.
 
 — Te aviso —dijo Santi, sin saber todavía, esa noche en Perugia, que ese puerto que apenas mencionaba de paso terminaría siendo el nombre que más iba a pesar en el resto de esa temporada.
+
+Antes de dormir, Santi revisó una vez más el perfil del Monte Grappa que Rusconi le había compartido esa tarde, intentando memorizar los porcentajes de pendiente de cada tramo, como hacía con cada puerto decisivo desde que era un corredor joven en las categorías menores de Antioquia. No sabía todavía que ese puerto específico, que estudiaba con la misma disciplina de siempre, terminaría definiendo mucho más de su temporada que cualquier otra subida del calendario de ese año.
 
 ---

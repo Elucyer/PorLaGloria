@@ -8,7 +8,7 @@
 
 ---
 
-La crono de Combloux, más corta que la legendaria crono de Libourne que había decidido el Tour de 2021 por apenas catorce segundos, pero con un perfil más exigente: los primeros catorce kilómetros prácticamente llanos junto al valle del Arve, seguidos de un repecho final de ocho kilómetros al seis por ciento de media hacia la localidad de montaña que le daba nombre a la etapa, combinando exactamente los dos tipos de esfuerzo que Rusconi había trabajado durante todo el año: la posición aerodinámica pura del llano, y la potencia sostenida de un falso llano de montaña.
+La crono de Combloux, más corta que la legendaria crono de Libourne que había decidido el Tour de 2021 por apenas catorce segundos, pero con un perfil igual de exigente: los primeros catorce kilómetros prácticamente llanos junto al valle del Arve, seguidos de un repecho final de ocho kilómetros al seis por ciento de media hacia la localidad de montaña que le daba nombre a la etapa, combinando exactamente los dos tipos de esfuerzo que Rusconi había trabajado durante todo el año: la posición aerodinámica pura del llano, y la potencia sostenida de un falso llano de montaña.
 
 Santi se despertó esa mañana con una calma que él mismo describió, más tarde, como "la más extraña de toda mi carrera, considerando lo que estaba en juego". Desayunó con el equipo, repasó mentalmente cada metro del recorrido que había estudiado durante meses, y llegó a la zona de salida con el tiempo justo, evitando deliberadamente cualquier exceso de espera que pudiera generar ansiedad innecesaria.
 
@@ -24,54 +24,83 @@ Hernando, desde Laureles, había organizado una pequeña reunión con Carmen y u
 
 ---
 
-Vingegaard, que salía quince minutos antes que Santi por el orden de la clasificación general, hizo un tiempo en el primer punto de control, a los catorce kilómetros, que lo colocaba en el mejor tiempo provisional del día, con un margen de cuatro segundos sobre el corredor que hasta entonces ocupaba el primer lugar.
+Vingegaard, que salía quince minutos antes que Santi por el orden de la clasificación general, hizo un tiempo en el primer punto de control, a los catorce kilómetros, que ya generó murmullos de incredulidad entre los técnicos que seguían la carrera desde los coches: veintidós segundos por delante de cualquier otro corredor que hubiera pasado por ese mismo punto hasta entonces, en un llano donde, según todos los cálculos previos, las diferencias debían medirse en segundos sueltos, no en bloques de veinte.
 
-Santi pasó ese mismo punto de control con un tiempo seis segundos mejor que el de Vingegaard, una diferencia que Rusconi, siguiendo los datos desde el coche del equipo, calificó de "exactamente lo proyectado, ni más ni menos".
+— Eso no es normal —dijo Rusconi por radio, con una tensión que no intentó disimular—. Nadie saca ese tiempo en un terreno así. Mantené tu ritmo, no persigas un número que todavía no podemos explicar.
 
-— Mantené el ritmo —dijo Rusconi por radio—. El repecho final es donde realmente se va a decidir esto. No hay que gastar de más en el llano.
+En la cabina francesa, instalada junto al primer punto de control, Laurent y Philippe ya no podían disimular el asombro genuino frente a los números que recibían.
 
-Pogačar, que salía pocos minutos después de Santi, pasó el primer control con un tiempo intermedio entre los otros dos, ligeramente por detrás de Santi pero por delante de Vingegaard, manteniendo viva la posibilidad de un resultado de tres bandas en la clasificación de la etapa.
+— Vingt-deux secondes, Philippe! Au premier pointage! C'est impensable sur un terrain plat comme celui-là.
+*(¡Veintidós segundos, Philippe! ¡En el primer control! Es impensable en un terreno llano como este.)*
 
-El recorrido llano junto al valle del Arve, con el río corriendo paralelo a la carretera y las montañas alpinas enmarcando el paisaje a ambos lados, era exactamente el tipo de terreno donde meses de trabajo en el túnel de viento de Ginebra debían traducirse en segundos reales, no en proyecciones teóricas. Santi sentía, en cada metro, la diferencia de la posición nueva: el aire cortando con menos resistencia, el cuerpo encontrando un equilibrio entre potencia y aerodinámica que en años anteriores nunca había logrado sostener durante tanto tiempo seguido.
+— J'ai vu beaucoup de contre-la-montre dans ma vie, Laurent, mais jamais un écart pareil sur du plat. Soit le vent a tourné en sa faveur, soit on est en train de voir quelque chose d'historique.
+*(Vi muchas contrarrelojes en mi vida, Laurent, pero nunca una diferencia así en terreno llano. O el viento giró a su favor, o estamos viendo algo histórico.)*
 
----
+— Et Reyes? Treize secondes derrière le meilleur temps, ce qui en temps normal serait excellent...
+*(¿Y Reyes? Trece segundos detrás del mejor tiempo, lo que en condiciones normales sería excelente...)*
 
-El repecho final de ocho kilómetros, donde Combloux se elevaba sobre el valle con vistas al macizo del Mont Blanc en los días claros, fue donde Santi sintió, por primera vez en todo el Tour, la confirmación física de todo lo que los números habían proyectado desde el invierno: las piernas respondiendo sin la sensación de estar luchando contra una pared invisible, la posición aerodinámica sosteniéndose incluso en la fatiga acumulada de dieciséis etapas, y una potencia que, según le confirmó Rusconi después, se mantuvo dentro del cinco por ciento superior de toda su carrera en ese tipo de esfuerzo.
+— ...mais qui aujourd'hui semble presque anecdotique face à ce que fait le Danois. C'est cruel, le sport, parfois.
+*(...pero que hoy parece casi anecdótico frente a lo que está haciendo el danés. El deporte es cruel, a veces.)*
 
-Cruzó la meta de Combloux con el mejor tiempo del día, dieciocho segundos por delante de Vingegaard, veintidós por delante de Pogačar —una diferencia que, sumada a los segundos acumulados en los Pirineos, lo colocaba al frente de la clasificación general por primera vez en todo el Tour, con una ventaja de diecisiete segundos sobre Vingegaard y veintiséis sobre Pogačar.
+Santi pasó ese mismo punto de control trece segundos por detrás del mejor tiempo de la jornada hasta ese momento —un resultado sólido, en línea con las proyecciones de Rusconi, pero ya visiblemente insuficiente frente a lo que estaba haciendo Vingegaard más adelante en la carretera—. Pogačar, saliendo pocos minutos después de Santi, pasó el mismo control casi medio minuto por detrás del danés, con una cara, captada por las cámaras de televisión, que ya empezaba a mostrar signos de preocupación genuina.
 
----
-
-— Dieciocho segundos —repitió Rusconi, por radio, con la voz quebrada de una emoción que normalmente mantenía bajo control absoluto—. Eso es más del doble de lo que perdiste en 2021. El trabajo del invierno funcionó exactamente como lo proyectamos, en el peor momento de fatiga del Tour, no en una crono de junio sin desgaste acumulado.
-
-Santi, todavía recuperando el aliento en la zona de meta, levantó la vista hacia el Mont Blanc, visible a la distancia bajo un cielo despejado de julio, y se permitió, por primera vez en meses, un momento de pura satisfacción sin la sombra de la duda que lo había acompañado desde enero. Pensó, fugazmente, en el túnel de viento de Ginebra, en las cuatro horas ajustando centímetros, en la sensación de estar siendo medido como una pieza de motor más que como un ciclista, y entendió, en ese instante, que cada una de esas horas incómodas había desembocado exactamente en ese momento.
-
-— ¿Qué significa este resultado para el resto del Tour? —le preguntó un periodista, en la rueda de prensa posterior.
-
-— Significa que tengo el liderato, con cinco etapas todavía por delante —dijo Santi, con cuidado de no sonar triunfalista antes de tiempo—. No significa que el Tour esté ganado. Faltan los Alpes finales, y cualquier cosa puede pasar en cinco días de carrera.
+El recorrido llano junto al valle del Arve, con el río corriendo paralelo a la carretera y las montañas alpinas enmarcando el paisaje a ambos lados, era exactamente el tipo de terreno donde meses de trabajo en el túnel de viento de Ginebra debían traducirse en segundos reales. Santi sentía, en cada metro, la diferencia de la posición nueva: el aire cortando con menos resistencia, el cuerpo encontrando un equilibrio entre potencia y aerodinámica que en años anteriores nunca había logrado sostener durante tanto tiempo seguido. Pero incluso sintiendo que estaba haciendo, posiblemente, la mejor crono de su carrera, los números que llegaban por radio sobre el rendimiento de Vingegaard no dejaban margen para la ilusión.
 
 ---
 
-Esa noche, llamó a Hernando con una emoción que no intentó disimular.
+El repecho final de ocho kilómetros, donde Combloux se elevaba sobre el valle con vistas al macizo del Mont Blanc en los días claros, confirmó lo que ya se intuía desde el primer control: Vingegaard no solo mantuvo la diferencia construida en el llano, sino que la amplió todavía más, subiendo el repecho final con una potencia que los analistas de la transmisión calificarían, esa misma noche, como "posiblemente la mejor actuación individual contra el crono en la historia reciente del Tour de Francia".
 
-— Dieciocho segundos —dijo Santi, apenas Hernando contestó.
+Santi cruzó la meta de Combloux con el segundo mejor tiempo del día, cuarenta y nueve segundos por detrás de Vingegaard —una diferencia abismal para los parámetros de toda la temporada, pero que, vista en contexto, representaba en realidad una de las mejores cronos de su propia carrera, ampliamente superior a la de Pogačar, que cruzó la meta un minuto y treinta y ocho segundos por detrás del danés, con el rostro descompuesto por un esfuerzo que claramente no había alcanzado.
 
-Hernando se quedó en silencio un momento, procesando el número con la misma intensidad con que había procesado, dos años antes, los catorce segundos perdidos en la crono de 2021.
+---
 
-— Dieciocho segundos —repitió, finalmente, con la voz temblando—. Es exactamente lo contrario de lo que pasó en 2021. El mismo tipo de carrera, el resultado opuesto.
+— Cuarenta y nueve segundos —repitió Rusconi, por radio, con una mezcla de shock y una especie de admiración profesional involuntaria—. Eso no es un mal resultado tuyo. Es un resultado extraordinario de él. No hay ningún ajuste que hubiéramos podido hacer este invierno para neutralizar lo que acabamos de ver.
 
-— Es lo que vinimos a buscar todo el año —dijo Santi.
+Santi, todavía recuperando el aliento en la zona de meta, sintió una mezcla de frustración y, extrañamente, respeto deportivo puro, algo que no esperaba sentir en el peor momento de su Tour hasta esa fecha.
 
-— Lo sé —dijo Hernando—. Y todavía no terminó. Pero esta noche, déjame disfrutar este número antes de pensar en lo que falta.
+— Nunca vi a nadie hacer algo así —admitió Santi, en la rueda de prensa posterior, sin intentar disimular la magnitud de lo ocurrido—. No tengo ninguna excusa que ofrecer. Hizo, simplemente, la mejor crono que vi en mi vida, y yo hice, en paralelo, una de las mejores de la mía. Las dos cosas son ciertas al mismo tiempo.
 
-Anotó en el cuaderno, con la letra más firme que había usado en semanas, una sola línea que resumía meses de trabajo invisible:
+— ¿Qué significa este resultado para el resto del Tour? —le preguntó un periodista.
 
-*Combloux. Primero. +18" sobre Vingegaard. El invierno, finalmente, dio sus frutos.*
+— Significa que él lidera ahora, con un margen real —dijo Santi, sin sonar derrotado—. Significa también que quedan cinco etapas, tres de ellas en los Alpes, y que esto está lejos de terminado.
 
-En Laureles, mientras Hernando escribía esa línea, Carmen y los vecinos seguían celebrando frente a la televisión, con el resumen de la etapa repitiendo una y otra vez la imagen de Santi cruzando la meta de Combloux con los brazos en alto, el Mont Blanc de fondo, y el comentarista repitiendo el mismo número que ya recorría las redes sociales colombianas: dieciocho segundos, la cifra que después de seis meses de trabajo invisible finalmente tenía sentido para todo un país que llevaba años siguiendo, paso a paso, la carrera de ese muchacho de San José de la Montaña.
+Vingegaard, todavía celebrando con su equipo junto al autobús, se acercó a Santi antes de que ambos subieran a sus respectivos vehículos rumbo al hotel.
 
-— Esto hay que celebrarlo bien —dijo uno de los vecinos, levantando una cerveza—. Dieciocho segundos. Quién hubiera dicho.
+— Je t'avais dit qu'il y aurait des jours où le talent suffit —dijo el danés, sin arrogancia, casi con una especie de asombro compartido por lo que él mismo acababa de hacer.
+*(Te dije que habría días en los que el talento alcanza.)*
 
-Hernando, sin embargo, ya estaba pensando en lo que faltaba: cinco etapas más, dos de ellas todavía en los Alpes, antes de que esos dieciocho segundos se convirtieran, finalmente, en algo irreversible camino a París.
+— Je n'ai jamais vu personne faire ça, Jonas. Ni en course, ni à l'entraînement, ni nulle part.
+*(Nunca vi a nadie hacer eso, Jonas. Ni en carrera, ni en entrenamiento, ni en ningún lado.)*
+
+— Honnêtement, moi non plus —admitió Vingegaard, con una sinceridad que sorprendió a Santi más que la propia hazaña del día—. Je ne sais pas exactement ce qui s'est passé aujourd'hui. Mais je ne pense pas pouvoir le refaire.
+*(Honestamente, yo tampoco. No sé exactamente qué pasó hoy. Pero no creo que pueda repetirlo.)*
+
+— Alors j'ai trois étapes de montagne pour le découvrir —dijo Santi, con una sonrisa cansada pero genuina.
+*(Entonces tengo tres etapas de montaña para descubrirlo.)*
+
+— Bonne chance —dijo Vingegaard, dándole la mano antes de alejarse hacia su propio autobús—. Tu vas en avoir besoin, et moi aussi, pour défendre ça.
+*(Buena suerte. La vas a necesitar, y yo también, para defender esto.)*
+
+---
+
+El nuevo orden de la clasificación general, confirmado esa noche, colocaba a Vingegaard al frente con una ventaja de cincuenta y un segundos sobre Santi, y de un minuto cuarenta y dos segundos sobre Pogačar —una diferencia que, de la noche a la mañana, había transformado por completo la dinámica psicológica de las tres semanas anteriores.
+
+— Cincuenta y un segundos —dijo Hernando, esa noche, por teléfono, con una voz que intentaba sonar serena sin lograrlo del todo—. Es mucho, pero no es imposible. Vos remontaste diferencias más grandes en montañas más cortas que las que todavía quedan.
+
+— Lo sé —dijo Santi—. Pero nunca remonté contra alguien que viene de hacer algo así. No sé todavía qué tiene guardado para las montañas, después de una exhibición de ese nivel en el llano.
+
+— Vamos a saberlo en los próximos días —dijo Hernando—. Lo único que podés controlar es lo que hagas vos, no lo que él ya hizo.
+
+Hernando anotó en el cuaderno esa noche, con una letra más pesada que la de cualquier otra entrada reciente:
+
+*Combloux. Segundo, a 49" de Vingegaard. La mejor crono de Santi en años, insuficiente frente a algo que ni Rusconi puede explicar del todo. Nueva clasificación: Vingegaard líder, +51" sobre Santi, +1:42 sobre Pogačar. Quedan tres etapas de montaña. Todo por decidir, otra vez.*
+
+En Laureles, Carmen y los vecinos se quedaron en silencio frente a la televisión durante buena parte de la noche, viendo una y otra vez las imágenes de Vingegaard cruzando la meta con un tiempo que ya empezaba a compararse, en la prensa internacional, con las mejores actuaciones individuales en la historia del ciclismo moderno.
+
+— Cincuenta y un segundos en tres etapas de montaña —dijo uno de los vecinos, rompiendo el silencio de la sala—. ¿Se puede remontar eso, Hernando?
+
+— Se puede —dijo Hernando, sin la certeza absoluta que hubiera querido transmitir, pero con la fe suficiente como para que sonara convincente—. Lo he visto hacer cosas más difíciles que esa, toda su vida.
+
+Carmen, sirviendo café para los presentes, no dijo nada, pero se quedó mirando la pantalla un rato más, pensando en su hijo, en algún hotel de Combloux, enfrentando probablemente la noche más difícil de todo el Tour hasta ese momento.
 
 ---

@@ -36,6 +36,17 @@ El público pirenaico, que ya había mostrado en el Tourmalet su capacidad de ge
 
 — ¡La revancha de Luz Ardiden! —gritó un comentarista español desde la moto de televisión, con una emoción que contagiaba incluso a través de la transmisión—. ¡Santi vuelve al lugar de su gloria de 2021, y esta vez con todo en juego!
 
+En la cabina francesa, Laurent casi perdió la voz de la emoción al narrar el primer ataque.
+
+— C'est lui qui attaque, Philippe! Reyes! Après le doute d'hier, c'est lui qui ouvre les hostilités!
+*(¡Es él el que ataca, Philippe! ¡Reyes! Después de la duda de ayer, ¡es él quien abre las hostilidades!)*
+
+— Quelle réponse, si jamais il y en avait une à donner! Huit secondes sur Vingegaard, douze sur Pogačar. C'est court, mais symboliquement, c'est énorme.
+*(¡Qué respuesta, si alguna vez hubo que dar una! Ocho segundos sobre Vingegaard, doce sobre Pogačar. Es poco, pero simbólicamente, es enorme.)*
+
+— Et demain, le chrono de Combloux. Si Reyes garde cette énergie, ça va être un sacré contre-la-montre.
+*(Y mañana, la crono de Combloux. Si Reyes mantiene esta energía, va a ser una contrarreloj de aquellas.)*
+
 ---
 
 No logró mantener esa ventaja hasta la cima —Vingegaard, con la fuerza que ya había mostrado en el Tourmalet, recortó la diferencia a tres segundos en el último kilómetro— pero el mensaje quedó claro para todo el pelotón y para la prensa que cubría la carrera: la inquietud del Tourmalet no era el inicio de un declive, sino un momento puntual de fatiga que Santi había sabido superar con una respuesta contundente al día siguiente.
@@ -53,6 +64,21 @@ Vingegaard, todavía con el maillot amarillo simbólico de la clasificación gen
 — ¿Está preocupado por la crono? —le preguntó un periodista, directamente.
 
 — Estoy preparado para la crono —dijo Vingegaard, sin responder del todo a la pregunta—. Eso es todo lo que puedo decir hasta que termine.
+
+En el área de los autobuses, mientras esperaban el traslado al hotel, Vingegaard se acercó a Santi un momento, sin la presencia de micrófonos ni cámaras cerca.
+
+— Demain, c'est mon jour —dijo el danés, sin agresividad, casi como una simple constatación de hecho—. Tu le sais aussi bien que moi.
+*(Mañana es mi día. Lo sabés tan bien como yo.)*
+
+— On verra —dijo Santi—. J'ai bien travaillé cet hiver, moi aussi.
+*(Ya veremos. Yo también trabajé bien este invierno.)*
+
+— Je n'en doute pas —dijo Vingegaard—. Mais il y a des jours où le travail ne suffit pas face au talent pur. Demain pourrait être un de ces jours, pour moi.
+*(No lo dudo. Pero hay días en los que el trabajo no alcanza frente al talento puro. Mañana podría ser uno de esos días, para mí.)*
+
+Santi no respondió de inmediato, sorprendido por la franqueza poco habitual del danés, generalmente más reservado en sus intercambios directos con los rivales.
+
+— Que gane el mejor, entonces —dijo finalmente, en español, y Vingegaard, entendiendo el gesto aunque no cada palabra exacta, asintió con una media sonrisa antes de subir a su autobús.
 
 ---
 
@@ -85,5 +111,21 @@ Antes de colgar, revisó el teléfono y encontró un mensaje de Mariana, enviado
 *Mariana Castañeda: Te dije que no está tan lejos como pensás.*
 
 Santi guardó el teléfono sin responder nada más esa noche, pensando en esa frase repetida —"no está tan lejos como pensás"— mientras se acomodaba para dormir, con la cabeza ya puesta, casi por completo, en los treinta y cinco kilómetros que lo esperaban al día siguiente en Combloux.
+
+Antes de apagar la luz, recordó la frase de Vingegaard en el área de los autobuses —"hay días en los que el trabajo no alcanza frente al talento puro"— y se quedó pensando en ella más tiempo del que hubiera querido admitir, intentando descifrar si era una simple jugada psicológica, una advertencia sincera, o algo de ambas cosas a la vez.
+
+Rusconi, que había escuchado el comentario de pasada al subir al autobús, lo abordó esa misma noche en la reunión técnica final antes de la crono.
+
+— No le hagas caso a esa frase —dijo Rusconi, viendo la inquietud en la cara de Santi—. Vingegaard sabe exactamente lo que está haciendo cuando dice algo así la noche antes de una crono decisiva. Quiere que pienses en eso en lugar de pensar en tu propia preparación.
+
+— ¿Y si tiene razón? —preguntó Santi—. ¿Si mañana simplemente es mejor que yo, sin que ningún número de potencia pueda cambiarlo?
+
+— Entonces vas a perder unos segundos, no el Tour —dijo Rusconi, con una calma que contagió parcialmente a Santi—. Pero tus números de los últimos seis meses dicen otra cosa. Confiá en eso más que en una frase suelta dicha para desestabilizarte.
+
+Ferretti, que escuchaba la conversación desde la puerta de la habitación, agregó una última reflexión antes de dejar a Santi descansar.
+
+— Mañana no hay que ganarle a Vingegaard —dijo Ferretti—. Hay que hacer tu mejor crono posible. Si eso alcanza para ganarle, perfecto. Si no alcanza, todavía queda Tour por correr, y ya demostraste hoy mismo que sabés responder cuando hace falta.
+
+— Lo voy a intentar —dijo Santi, sintiendo, mientras los dos se despedían y la habitación quedaba en silencio, una mezcla extraña de confianza y la inquietud persistente de la frase del danés, todavía dando vueltas en algún rincón de su cabeza.
 
 ---

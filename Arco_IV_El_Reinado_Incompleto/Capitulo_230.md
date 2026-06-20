@@ -50,6 +50,26 @@ Se encontraron, dos días después, en un café de Marinilla cerca de la plaza d
 
 Hablaron durante casi dos horas, de la temporada completa, de los detalles que Mariana había seguido a través de los mensajes y las transmisiones, de la fundación, de los planes de Mariana para el resto del año. La conversación tenía una fluidez distinta a la del café de abril, una familiaridad construida durante meses de mensajes espaciados que, sin que ninguno lo hubiera planeado del todo, habían terminado tejiendo algo parecido a una amistad real, profunda, a pesar de la distancia.
 
+— Contame algo que no saliera en ninguna entrevista —pidió Mariana, apoyando la taza de café sobre la mesa—. Algo chiquito, sin importancia para la prensa, pero que vos recuerdes con cariño.
+
+Santi lo pensó un momento, repasando mentalmente los tres meses de carrera.
+
+— El día de la crono en Combloux, cuando estaba perdiendo por casi un minuto, un nene en la cuneta, debía tener unos ocho años, me gritó en español, con acento francés, "¡Vamos, Colombia!" —dijo Santi—. No sé de dónde había sacado el español, ni por qué gritaba justo eso, en ese momento exacto. Pero me acuerdo de esa frase más que de cualquier número de Rusconi de ese día.
+
+— Eso es hermoso —dijo Mariana, genuinamente conmovida—. ¿Le dijiste algo, devolviste el saludo?
+
+— No tuve tiempo, iba a toda velocidad —dijo Santi—. Pero esa noche, en el hotel, pensé en él más de lo que pensé en Vingegaard. Cosas así son las que de verdad importan, al final, más que cualquier resultado.
+
+El camarero del café, un hombre mayor que llevaba toda la vida en Marinilla, se acercó a la mesa con dos cafés adicionales que ninguno de los dos había pedido.
+
+— Cortesía de la casa, para el campeón —dijo, sin más explicación, antes de retirarse con una sonrisa discreta hacia la barra.
+
+— Esto va a pasar todo el tiempo, ¿no? —preguntó Mariana, divertida.
+
+— Probablemente —admitió Santi—. Es parte del paquete completo, lamentablemente.
+
+— No suena tan terrible, la verdad —dijo Mariana, riendo, antes de que ambos volvieran a la conversación que tenían pendiente desde hacía meses.
+
 ---
 
 Al despedirse, caminando hacia los carros estacionados cerca de la plaza, hubo, otra vez, un momento de cercanía que ninguno de los dos evitó del todo esta vez —las manos rozándose, una pausa más larga de lo habitual antes de la despedida— pero que Santi, una vez más, decidió no convertir en algo más explícito.
@@ -90,6 +110,14 @@ Hernando se quedó pensando la frase, masticando despacio el último bocado de l
 
 Santi no respondió de inmediato, dándole vueltas a la pregunta de su padre durante el resto de la noche, sin llegar a ninguna conclusión clara antes de irse a dormir, con la sensación, cada vez más difícil de ignorar, de que ese año, a pesar de todos sus éxitos deportivos, todavía tenía una cuenta pendiente que no sabía bien cómo resolver.
 
+Carmen, que había escuchado buena parte de la conversación desde la cocina sin intervenir, se acercó a la mesa antes de levantar los platos.
+
+— Yo no me voy a meter en esto como se metió tu papá —dijo Carmen, con una sonrisa pequeña—. Pero te voy a decir una sola cosa, y después me callo: a tu edad, yo también tuve a alguien esperando una respuesta que tardé demasiado en dar. Y cuando finalmente la di, fue la mejor decisión de mi vida. No siempre el tiempo perdido se puede recuperar después.
+
+— ¿Te referís a papá? —preguntó Santi, sorprendido por la confesión repentina.
+
+— Me refiero a tu papá, sí —dijo Carmen, sonriendo con cierta nostalgia—. Le tomó casi dos años decidirse. Yo ya estaba lista para irme de San José cuando finalmente habló. No te cuento esto para presionarte, hijo. Te lo cuento porque sé lo que se siente esperar, de los dos lados de esa espera.
+
 Antes de dormir, revisó el teléfono una última vez. Mariana le había mandado un mensaje breve, ya de noche.
 
 *Mariana Castañeda: Gracias por el café de hoy. Y por escuchar, aunque no tengas respuesta todavía.*
@@ -98,6 +126,20 @@ Antes de dormir, revisó el teléfono una última vez. Mariana le había mandado
 
 *Mariana Castañeda: Eso es todo lo que pido, por ahora.*
 
+*Santi: ¿Vas a estar en Marinilla todavía mañana, antes de que vuelva a viajar?*
+
+*Mariana Castañeda: Hasta el mediodía. Después regreso a Bogotá.*
+
+*Santi: Voy a tratar de pasar antes de eso. Aunque sea un rato corto.*
+
+*Mariana Castañeda: Me gustaría mucho. Sin presión, eh. Solo si tenés ganas.*
+
+*Santi: Tengo ganas. Eso, al menos, ya lo tengo claro.*
+
+Apagó la luz, finalmente, con esa pequeña certeza sosteniéndolo mejor que cualquier otra cosa que hubiera pensado esa noche: no sabía todavía cómo iba a resolver la pregunta más grande, la del espacio y el tiempo y las próximas carreras, pero sabía, con una claridad que no necesitaba ningún cuaderno de Rusconi para confirmarla, que quería ver a Mariana otra vez al día siguiente, antes de que ella volviera a Bogotá, aunque fuera solo media hora, aunque fuera lo único que el calendario le permitiera ese año.
+
 Apagó la luz, y se quedó dormido con la frase de su padre todavía resonando: *"¿Estás dispuesto a restar algo, por primera vez en tu vida, por algo que no sea una bicicleta?"* No tenía respuesta esa noche. Pero, por primera vez desde diciembre, sintió que la pregunta merecía una de verdad, no solo silencio.
+
+Pensó también, antes de quedarse dormido del todo, en la frase de Carmen sobre los dos años de espera de Hernando, y en lo extraño que era descubrir, a esa edad, que la indecisión también era parte de la herencia familiar, tanto como las piernas para subir montañas o la paciencia para escribir un cuaderno cada noche durante meses enteros.
 
 ---

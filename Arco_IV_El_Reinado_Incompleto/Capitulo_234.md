@@ -103,6 +103,20 @@ Salcedo tomó la palabra desde la pantalla.
 
 — Lo voy a pensar, como cada año —dijo Santi—. Pero por ahora, quiero disfrutar este cierre sin pensar en contratos nuevos.
 
+— Una pregunta más, antes de que te vayas —dijo Duarte, cerrando su propia carpeta—. ¿Cómo va el calendario de enero? Necesito empezar a coordinar la presentación de equipo y los primeros compromisos de prensa.
+
+— Todavía no tengo el plan exacto de carreras —dijo Santi—. Eso lo voy a definir con Ferretti y Rusconi en la reunión de planificación, como cada año.
+
+— ¿Doble objetivo otra vez, o seguís con la fórmula de un solo Tour? —preguntó Patiño, con genuina curiosidad profesional.
+
+— Todavía no lo sé —admitió Santi—. Esta vez, antes de decidir el calendario deportivo, tengo otra cosa que resolver primero.
+
+Duarte y Patiño se miraron un instante, sin necesidad de preguntar más, ambos conscientes, después de años trabajando con Santi, de que esa frase no se refería a ninguna carrera del calendario WorldTour.
+
+— Lo que sea que estés resolviendo —dijo Duarte, con una sonrisa breve—, espero que salga bien. Te lo merecés, después de un año así.
+
+— Gracias —dijo Santi, levantándose de la mesa—. Eso espero yo también.
+
 ---
 
 La reunión terminó pasada la una. Santi condujo hacia Laureles, donde Hernando lo esperaba en la cocina, con Carmen terminando de preparar la cena de fin de año.
@@ -115,6 +129,24 @@ La reunión terminó pasada la una. Santi condujo hacia Laureles, donde Hernando
 
 — En lo demás, todavía tengo una conversación pendiente —dijo Santi—. Pero ya sé cuándo y cómo voy a tenerla.
 
+— ¿Cuándo? —preguntó Hernando, sin disimular el interés.
+
+— Primera semana de enero —dijo Santi—. Voy a viajar a Bogotá antes de empezar la pretemporada en Europa.
+
+— ¿Y cómo, exactamente? —insistió Hernando, recordando la conversación de Como, semanas atrás.
+
+— Sin guion —dijo Santi—. Como me dijiste. Solo la verdad, sin pensarlo como una crono.
+
+Hernando sonrió, satisfecho de ver que el consejo había quedado guardado, no solo escuchado de pasada.
+
+— Eso es exactamente lo que tenés que hacer —dijo—. Y sea lo que sea que pase, vas a estar bien. Lo importante es que por fin lo vas a decir.
+
 Carmen sirvió la cena, y los tres se sentaron a la mesa de siempre, con la ventana abierta y el sonido de Laureles entrando en la noche de diciembre —un año que había empezado con la decisión más arriesgada de la carrera de Santi y que terminaba, de la manera más completa posible, con el mejor resultado deportivo de su vida, y con una pregunta personal todavía esperando respuesta, guardada con cuidado para los primeros días del año que estaba por empezar.
+
+Carmen, sirviendo el postre al final de la cena, le tocó el hombro a su hijo con un gesto breve, casi imperceptible, antes de volver a la cocina.
+
+— Lo que sea que decidas en enero —dijo, sin necesidad de mayor explicación—, ya estoy orgullosa de vos por animarte, finalmente, a decirlo.
+
+Santi le agradeció el gesto con una sonrisa, y los tres terminaron la cena en un silencio cómodo, mientras afuera, en las calles de Laureles, los primeros fuegos artificiales de diciembre empezaban a anunciar el cierre de un año que, en más de un sentido, había cambiado por completo el rumbo de su vida.
 
 ---

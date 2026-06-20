@@ -32,7 +32,19 @@ A dos kilómetros de la cima, en el tramo más duro de todo el carril de bicicle
 
 El público, apretado a ambos lados del estrecho carril de bicicletas que serpenteaba por encima de la línea de árboles, gritaba en una mezcla de francés, inglés y eslavo, agitando banderas de los tres países representados por los favoritos, en un ambiente que los comentaristas de televisión describieron como "el más intenso de todo el Tour hasta ahora".
 
-— Esto ya no es una carrera de bicicletas normal —dijo uno de los comentaristas franceses, con la voz quebrada por la emoción del momento—. Esto es una final de boxeo, etapa tras etapa, con los mismos tres peleadores subiendo al ring cada vez.
+En la cabina de France Télévisions, Laurent y Philippe ya no intentaban disimular la emoción genuina que la etapa les estaba generando.
+
+— Ce n'est plus une course de vélo normale, Philippe! C'est une finale de boxe, étape après étape, avec les trois mêmes boxeurs qui montent sur le ring chaque jour.
+*(¡Esto ya no es una carrera de bicicletas normal, Philippe! Es una final de boxeo, etapa tras etapa, con los mismos tres boxeadores subiendo al ring cada día.)*
+
+— Et regarde Pogačar, après son deuxième coup de force. Il a vraiment cru que ça suffirait.
+*(Y mirá a Pogačar, después de su segundo golpe de fuerza. Realmente creyó que iba a alcanzar.)*
+
+— Reyes ne lui a laissé aucun espace. Aucun. C'est presque inquiétant, pour les autres, de voir une telle solidité après dix étapes.
+*(Reyes no le dejó ningún espacio. Ninguno. Es casi inquietante, para los demás, ver tanta solidez después de diez etapas.)*
+
+— Tu sais ce qui m'inquiète encore plus? Qu'on n'a même pas encore vu les Pyrénées.
+*(¿Sabés qué me inquieta todavía más? Que ni siquiera vimos todavía los Pirineos.)*
 
 ---
 
@@ -51,6 +63,16 @@ Vingegaard, recibiendo el ramo de ganador de etapa con la misma expresión conte
 — ¿Y cómo ve a Santi, después de hoy? —le preguntó un periodista.
 
 — Lo veo distinto a 2021 y a 2022 —dijo Vingegaard, sin rodeos—. Más sólido. No sé todavía si eso alcanza para ganar el Tour completo, pero definitivamente alcanza para complicarnos la vida a los dos durante las próximas dos semanas.
+
+Carapaz, que había cedido casi un minuto en el tramo final, alcanzó a Santi en la zona de antidopaje, donde ambos esperaban su turno de control bajo la mirada atenta de un comisario de la UCI.
+
+— Te vi seguir a esos dos como si fuera un día cualquiera de entrenamiento —le dijo Carapaz, en español, con el respeto de quien ya conocía bien la sensación de estar al límite absoluto—. Yo sentí que se me iba el cuerpo a cinco kilómetros, y todavía no entiendo cómo aguantaste el segundo ataque de Pogačar.
+
+— No sé si lo entiendo yo tampoco del todo —admitió Santi—. Algo cambió este invierno. No sé exactamente qué, pero se siente distinto.
+
+— Lo que sea que hicieron, funcionó —dijo Carapaz, sonriendo con cansancio—. Avisame si necesitan gregario para el año que viene, porque a este ritmo, terminamos todos trabajando para vos.
+
+Los dos rieron, con la camaradería específica que solo el sufrimiento compartido de una etapa así podía generar entre rivales.
 
 ---
 
@@ -81,5 +103,15 @@ Llamó a Hernando antes de dormir, como cada noche, con la voz todavía cargada 
 — No te confíes con esa sensación —dijo Hernando—. El Tour siempre guarda algo para el final, bueno o malo.
 
 Colgaron poco después, y Santi se quedó dormido esa noche pensando en los Pirineos que lo esperaban, con la satisfacción de haber superado el primer examen verdadero de las montañas, pero sin la ingenuidad de creer que lo más difícil ya había pasado.
+
+En la cabina francesa, antes de cerrar la transmisión del día, Philippe hizo una última reflexión que quedaría grabada en la memoria de buena parte de la audiencia que seguía esa edición del Tour.
+
+— Tu sais, Laurent, dans vingt ans, on va raconter cette étape comme le jour où on a compris que ce Tour serait différent de tous les autres.
+*(¿Sabés, Laurent? En veinte años, vamos a contar esta etapa como el día en que entendimos que este Tour iba a ser distinto a todos los demás.)*
+
+— Je l'espère, Philippe. Parce que si la Loze n'était que l'entrée, j'ai peur d'imaginer ce que les Pyrénées nous réservent.
+*(Eso espero, Philippe. Porque si la Loze fue solo la entrada, me da miedo imaginar lo que nos reservan los Pirineos.)*
+
+Ninguno de los dos comentaristas, esa noche, podía imaginar todavía cuánta razón tenían, ni la forma exacta en que esos Pirineos, todavía a varios días de distancia, terminarían marcando, para siempre, la historia de ese Tour.
 
 ---

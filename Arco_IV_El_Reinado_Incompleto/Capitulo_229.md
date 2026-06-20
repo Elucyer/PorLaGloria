@@ -40,6 +40,30 @@ Santi se agachó a su altura y firmó la bicicleta de juguete con el marcador qu
 
 Hernando, de pie junto a la piedra del abuelo donde le había enseñado a su hijo a andar en bicicleta tantos años atrás, observaba la escena con una expresión que mezclaba orgullo absoluto y una nostalgia profunda por todo el camino recorrido desde esos primeros pedaleos torpes hasta ese podio en París.
 
+Rodrigo Torres, ya recuperado por completo de la operación de pulmón de 2017, se acercó a Hernando durante la recepción, los dos viejos amigos observando juntos la escena desde un costado de la plaza.
+
+— Quién hubiera dicho, hace seis años, que íbamos a estar acá viendo esto —dijo Rodrigo, con la voz todavía marcada por los años pero firme—. Yo en el hospital, vos preocupado por mí, y el pibe todavía corriendo categorías menores en Antioquia.
+
+— La vida da vueltas raras —dijo Hernando—. Pero acá estamos los dos, vivos, viendo esto.
+
+— Acá estamos —confirmó Rodrigo, dándole una palmada en el hombro a su viejo amigo, antes de que ambos volvieran a concentrarse en la ceremonia que continuaba frente a ellos.
+
+Más tarde esa misma tarde, mientras el pueblo empezaba a desarmar las sillas y carpas improvisadas de la plaza, un periodista local de un canal regional pidió unas palabras a Santi sobre lo que significaba ese recibimiento específico, distinto de cualquier rueda de prensa europea de las últimas semanas.
+
+— En Europa me preguntan por números, por estrategia, por rivales —dijo Santi—. Acá me preguntan por la gente que conozco de toda la vida. Es un tipo de pregunta completamente distinto, y la verdad, es el que más me importa responder bien.
+
+David Arroyave, que corría ya su quinta temporada como profesional en un equipo europeo de categoría continental, le había escrito esa misma mañana, antes de la recepción en la plaza, un mensaje que Santi leyó recién esa noche, ya de vuelta en Laureles.
+
+*David Arroyave: Te vi ganar el Tour desde un hotel en Bélgica, con el resto de mi equipo. Pensé en el Porvenir 2017, en esos cuatro segundos que me ganaste entonces. Quién hubiera dicho que ibas a llegar tan lejos.*
+
+*Santi: Esos cuatro segundos del Porvenir me enseñaron más que cualquier otra carrera de esa época. En parte, te los debo a vos.*
+
+*David Arroyave: No me debés nada. Pero si alguna vez armás un equipo colombiano de verdad, contá conmigo como gregario. Ya hice las paces con esa idea hace tiempo.*
+
+*Santi: Lo voy a tener en cuenta. En serio.*
+
+Esa conversación, breve pero cargada de historia compartida, le recordó a Santi cuánto camino habían recorrido ambos desde aquellas categorías menores de Antioquia, cuando David representaba el rival a vencer y el podio de Porvenir 2017 parecía, en ese entonces, la cima más alta posible de imaginar.
+
 ---
 
 Esa noche, en la cena familiar en Laureles, con Hernando, Carmen y Santi reunidos alrededor de la mesa de siempre, la conversación se desvió, inevitablemente, hacia el resto del calendario que todavía quedaba por delante.
@@ -83,5 +107,21 @@ Santi se quedó callado un momento, sopesando si responder esa pregunta frente a
 — Entendido —dijo Julián, respetando el límite sin insistir—. Pero algún día me vas a tener que contar esa historia completa, fuera de micrófono.
 
 — Algún día —dijo Santi—. Todavía no es ese día.
+
+Esa misma noche, ya en su cuarto de siempre en la casa de Laureles, Santi llamó a Camilo, que seguía instalado en Marinilla con el taller de bicicletas que de a poco crecía con cada temporada.
+
+— Vi todo desde la tienda, en un televisor viejo que conseguí prestado para la ocasión —dijo Camilo—. Cerramos el taller esa tarde, todos los que trabajamos ahí, para ver la última etapa juntos.
+
+— ¿Y Mariana? —preguntó Santi, con una curiosidad que no intentó disimular del todo—. ¿La viste por ahí esos días?
+
+— La vi de vez en cuando, pasando por Marinilla a hacer encargos de fotos —dijo Camilo—. Pero te lo digo en confianza, hermano: esa mujer no dejó de hablar del Tour en todo julio. Cualquiera diría que llevaba siguiendo ciclismo toda la vida.
+
+— Me lo dijo ella misma, de hecho —dijo Santi, sonriendo solo, en la oscuridad de su cuarto—. Que lo siguió de cerca, más de lo que yo imaginaba.
+
+— Entonces ya sabés lo que tenés que hacer, ¿no? —dijo Camilo, con la franqueza directa que lo caracterizaba—. No te quedés esperando que las cosas se resuelvan solas, a la distancia.
+
+— Lo estoy pensando —admitió Santi—. Todavía no sé bien cómo, pero lo estoy pensando en serio.
+
+Colgaron poco después, y Santi se quedó un rato más despierto, mirando el techo de su cuarto de siempre, pensando en la frase de Camilo, en la de Mariana sobre la distancia, y en los diez días de descanso que todavía tenía por delante antes de volver a subirse a un avión rumbo a Europa.
 
 ---

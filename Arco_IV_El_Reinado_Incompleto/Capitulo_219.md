@@ -28,6 +28,23 @@ Mariana nunca había sido aficionada al ciclismo, ni siquiera en los meses poste
 
 Daniela le mandó un emoji de risa, y Mariana volvió a concentrarse en la transmisión, donde los comentaristas explicaban, con un entusiasmo que a ella todavía le costaba entender del todo, la importancia táctica de una contrarreloj por equipos al inicio de un Tour de tres semanas.
 
+La señal que Mariana había encontrado, después de probar varias plataformas distintas, era la transmisión oficial francesa, sin ningún doblaje al español, lo que la obligaba a apoyarse en el traductor del teléfono cada vez que la velocidad de los comentaristas superaba lo que podía seguir de oído.
+
+— Regardez cette équipe colombienne, comme ils roulent ensemble, presque comme un seul corps.
+*(Miren a este equipo colombiano, cómo ruedan juntos, casi como un solo cuerpo.)*
+
+— C'est le travail de tout l'hiver, Thierry. Rusconi a une réputation maintenant, même en dehors du monde du cyclisme.
+*(Es el trabajo de todo el invierno, Thierry. Rusconi ya tiene una reputación, incluso fuera del mundo del ciclismo.)*
+
+— Et Reyes, là, en deuxième position dans le peloton... il a l'air différent cette année. Plus calme, peut-être.
+*(Y Reyes, ahí, en segunda posición en el pelotón... se ve distinto este año. Más tranquilo, quizás.)*
+
+Mariana escribió la frase completa en el traductor, palabra por palabra, sonriendo cuando finalmente entendió lo que el comentarista había dicho sobre Santi.
+
+*Mariana: Acaban de decir que se ve más tranquilo este año. No sé si eso es un cumplido o una crítica, en el tono que lo dijeron.*
+
+*Daniela: En francés, todo suena a crítica, hasta cuando es un cumplido. No te preocupes por eso.*
+
 ---
 
 Camilo, que también había empezado a seguir el Tour por insistencia de Mariana en las últimas semanas, le escribió a media mañana, después de ver los resultados oficiales de la etapa.
@@ -61,6 +78,13 @@ La cámara, en un momento, se detuvo brevemente en el rostro de Santi mientras d
 *Daniela: Porque no es un personaje. Es otra versión real de él, la que usa la mayor parte del año. Vos solo conociste la versión de vacaciones.*
 
 *Mariana: Quizás tengas razón.*
+
+La transmisión, antes de cortar a publicidad, mostró una breve entrevista con Vingegaard, todavía con el casco de su propio equipo bajo el brazo, respondiendo en un francés correcto pero con marcado acento danés a la misma pregunta que le habían hecho a Santi minutos antes.
+
+— Une équipe solide, mais on a vu les watts de Reyes pendant le contre-la-montre. Il n'a rien gaspillé. Ce sera un Tour très serré, je pense.
+*(Un equipo sólido, pero vimos los vatios de Reyes durante la contrarreloj. No desperdició nada. Va a ser un Tour muy ajustado, creo.)*
+
+Mariana anotó esa frase también, sin saber todavía, esa primera tarde de julio, cuánta razón terminaría teniendo el danés sobre lo ajustado que sería ese Tour específico.
 
 ---
 
@@ -101,5 +125,7 @@ Esa tarde, mientras editaba las fotos del encargo comercial, dejó la transmisi�
 Apagó el computador, se acostó, y se quedó un rato despierta pensando en el resto del mes que tenía por delante —los encargos de fotografía pendientes, el proyecto de Marinilla que todavía no había cerrado del todo, y, en algún rincón de su cabeza que no terminaba de controlar del todo, veinte etapas más de un Tour de Francia que, sin haberlo planeado, se había convertido en parte importante de su rutina diaria.
 
 Antes de dormirse del todo, revisó el teléfono una última vez. No había mensajes nuevos de Santi —sabía que a esa hora, en Europa, ya estaría descansando de cara a la siguiente etapa— pero igual sintió una calma extraña al pensar que, en algún hotel del País Vasco, esa misma persona con la que había compartido un café incómodo en Laureles estaba, en ese mismo instante, soñando probablemente con curvas de montaña y números de potencia, mientras ella se dormía pensando en él desde el otro lado del océano.
+
+Antes de cerrar los ojos del todo, recordó la frase de Vingegaard, traducida con esfuerzo, sobre lo ajustado que sería ese Tour, y pensó que, sin entender todavía la mitad del vocabulario técnico que escuchaba cada mañana, ya empezaba a intuir, por el tono de los comentaristas más que por las palabras exactas, que algo grande se estaba preparando entre esos tres corredores, algo que iba mucho más allá de cualquier resultado de una sola etapa de contrarreloj por equipos, algo que ella, sin saberlo todavía, iba a terminar viviendo en primera persona antes de que ese mismo Tour llegara a su fin.
 
 ---

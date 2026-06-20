@@ -38,6 +38,19 @@ Luca Arnheim, sentado junto a Santi durante la cena, repasó en voz baja el plan
 
 — Voy a darlo todo igual —dijo Luca, con la determinación de siempre—. Esta etapa la entrenamos juntos desde enero. No voy a fallar en el día que más importa.
 
+Pogačar, que cenaba en una mesa cercana del mismo hotel con su propio equipo, se acercó un momento antes de retirarse a su habitación, con la cordialidad que ya era costumbre entre los dos.
+
+— J'ai vu ta famille arriver aujourd'hui —dijo el esloveno—. C'est important, ça, après toutes ces années.
+*(Vi a tu familia llegar hoy. Eso es importante, después de todos estos años.)*
+
+— Très important —confirmó Santi—. Demain, je veux courir pour eux autant que pour le maillot.
+*(Muy importante. Mañana quiero correr para ellos tanto como por el maillot.)*
+
+— Alors bonne course demain —dijo Pogačar—. Que le meilleur gagne, et que tout le monde rentre en sécurité.
+*(Entonces buena carrera mañana. Que gane el mejor, y que todos lleguen seguros a casa.)*
+
+Esa última frase, dicha casi como una cortesía de despedida, quedaría, con el tiempo, como una de las más extrañas que Santi recordaría de toda esa semana.
+
 ---
 
 Después de la cena, Santi caminó con Mariana por las calles de Tarbes, alejados del resto del grupo, en un momento de calma poco habitual en medio de la tensión de la tercera semana de Tour.
@@ -56,6 +69,22 @@ Mariana lo tomó de la mano, caminando en silencio durante unos metros, antes de
 
 — Va a ayudar más de lo que te imaginás —dijo Santi—. Saber que están ahí, en persona, por primera vez, ya es distinto a cualquier otra etapa que haya corrido.
 
+— ¿A qué hora exacta vamos a estar ahí, en la cima? —preguntó Mariana—. Koen nos dio un horario, pero quiero estar segura de no perderme el momento en que pasás.
+
+— Calculan que los favoritos pasen por la cima entre las dos y las tres de la tarde —dijo Santi—. Va a depender del ritmo de la etapa, pero esa es la ventana que estiman.
+
+— Vamos a estar ahí desde el mediodía, entonces, para no arriesgarnos a perdértelo —dijo Mariana—. Tu papá ya quiere salir desde temprano, antes de que se llene de gente.
+
+— Conociéndolo, va a llegar antes que la organización misma —dijo Santi, riendo.
+
+— ¿Y vos? —preguntó Mariana—. ¿Cómo te imaginás ese momento, pasando por la cima y viéndonos ahí?
+
+— No sé si voy a poder verlos con claridad, en medio del esfuerzo y la multitud —admitió Santi—. Pero voy a saber que están ahí, y eso ya cambia cómo voy a sentir esa subida, aunque no los distinga entre la gente.
+
+— Vamos a hacer un cartel grande, entonces, para que no haya forma de perdernos —dijo Mariana, sonriendo—. Tu papá ya está pensando en el diseño, de hecho.
+
+— Eso sí que quiero verlo —dijo Santi, riendo—. Conociéndolo, va a ser algo elaborado, con cálculos de visibilidad y todo.
+
 ---
 
 Esa noche, ya en la habitación del hotel, Santi llamó a Rusconi para la última revisión técnica antes de dormir.
@@ -67,6 +96,12 @@ Esa noche, ya en la habitación del hotel, Santi llamó a Rusconi para la últim
 — Lo de siempre —dijo Rusconi—. Subida controlada, sin gastar de más antes del punto decisivo. Y en la bajada, cuidado extremo, sobre todo si las condiciones cambian. No hay ningún segundo en una bajada que valga el riesgo de una caída.
 
 — Entendido —dijo Santi—. Voy a tenerlo presente.
+
+— Una cosa más —agregó Rusconi, antes de cortar la llamada—. Mañana, en la cima, va a estar tu familia. Sé que vas a querer buscarlos con la mirada al pasar. Hacelo, pero sin perder la concentración del esfuerzo. Un segundo de distracción en ese punto del puerto puede costar caro.
+
+— Lo voy a tener en cuenta —dijo Santi—. Aunque va a ser difícil no buscarlos, sabiendo que están ahí.
+
+— Lo entiendo —dijo Rusconi—. Solo no dejes que la emoción te gane el control del cuerpo, ni un segundo.
 
 Antes de dormir, revisó el teléfono una última vez. Hernando le había mandado un mensaje breve, después de la cena.
 
@@ -83,5 +118,21 @@ Carmen, en la habitación contigua, no podía dormir. Hernando la encontró desp
 — En cierto sentido, lo es —dijo Hernando—. La primera que vemos juntos, en persona, los tres.
 
 Carmen sonrió, apoyando la cabeza en el hombro de su esposo, mientras afuera las montañas seguían ahí, indiferentes y enormes, esperando el día siguiente sin saber nada de lo que estaba por suceder en sus laderas.
+
+— ¿Vos crees que va a poder vernos, ahí en la cima, entre toda la gente? —preguntó Carmen, después de un rato de silencio.
+
+— Va a buscarnos, seguro —dijo Hernando—. Aunque sea un segundo, en medio del esfuerzo. Lo conozco. Siempre busca a la gente que quiere, en cualquier multitud.
+
+— Espero que ese segundo no le cueste nada —dijo Carmen, con una preocupación que no terminaba de tener forma clara todavía—. No sé por qué, pero esta noche tengo una sensación rara, que no había tenido en ninguna otra carrera.
+
+— Es solo el nerviosismo de la primera vez, viéndolo en persona —dijo Hernando, intentando calmarla—. Va a estar bien. Siempre está bien.
+
+Carmen asintió, sin del todo convencida, antes de finalmente cerrar los ojos, mientras Hernando se quedaba un rato más despierto, mirando hacia la oscuridad de los Pirineos, sin poder explicar tampoco por qué esa noche específica se sentía distinta a cualquier otra víspera de carrera de los últimos treinta años.
+
+Sacó el cuaderno de la chaqueta, en silencio, para no despertar a Carmen, y escribió una última línea antes de finalmente apagar también su propia luz.
+
+*19 de julio de 2024. Tarbes. Mañana, el Tourmalet, en persona, después de treinta años de verlo solo por televisión. Cinco segundos de ventaja. Carmen tiene una sensación rara esta noche, que no supo explicar. Espero que sea solo nervios.*
+
+Cerró el cuaderno, lo guardó de vuelta en el bolsillo, y se quedó mirando el techo de la habitación durante un rato más, antes de que el cansancio del viaje finalmente lo alcanzara.
 
 ---

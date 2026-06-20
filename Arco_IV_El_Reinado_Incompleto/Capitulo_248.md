@@ -16,6 +16,17 @@ Pogačar ganó la subida al santuario, atacando a quinientos metros de la meta c
 
 — Lo sé —dijo Santi—. Lo sentí en las piernas, en el ataque final. No fue como el año pasado.
 
+En la cabina de la RAI, transmitiendo desde Bolonia, Bettini y Cassani analizaban el ataque con el entusiasmo redoblado de ver al ciclismo italiano protagonizar también esa parte del recorrido.
+
+— Quattro secondi, Davide, ma con un'accelerazione che non avevo visto da Pogačar dal Grappa.
+*(Cuatro segundos, Davide, pero con una aceleración que no le veía a Pogačar desde el Grappa.)*
+
+— Sembra che il Giro lo abbia lasciato in condizioni migliori di quanto pensassimo, Paolo. E Reyes, al contrario, sembra ancora pagare il prezzo.
+*(Parece que el Giro lo dejó en mejores condiciones de lo que pensábamos, Paolo. Y Reyes, al contrario, parece seguir pagando el precio.)*
+
+— Quattro secondi oggi, ma se questo pattern continua tutta la settimana, a fine luglio potrebbe essere un problema serio.
+*(Cuatro segundos hoy, pero si este patrón continúa toda la semana, a fines de julio podría ser un problema serio.)*
+
 ---
 
 Las etapas siguientes, a través de los Alpes franceses por el lado italiano y francés, mantuvieron un patrón similar: pequeñas diferencias a favor de Pogačar en cada repecho exigente, sin que ninguna fuera lo suficientemente grande como para comprometer las opciones de Santi en la clasificación general, pero suficientes para generar, etapa tras etapa, una sensación creciente de que el esloveno llegaba a esta edición del Tour en una condición física superior.
@@ -32,9 +43,21 @@ Luca Arnheim, observando de cerca la dinámica de esas primeras etapas, notó un
 
 — Es comprensible —dijo Ferretti—. El año pasado llegó a julio sabiendo exactamente qué tenía. Este año, después del Giro, no tiene esa certeza.
 
+— ¿Y eso se puede manejar, en términos de equipo? —preguntó Luca, genuinamente preocupado por el bienestar de su líder, más allá de cualquier resultado deportivo.
+
+— Se maneja con paciencia, y con no presionarlo de más en los días difíciles —dijo Ferretti—. El cuerpo del equipo entero tiene que adaptarse, este año, a una versión de Santi que no siempre va a tener la misma certeza tranquila del año pasado.
+
 — ¿Eso es un problema? —preguntó Luca.
 
 — Puede serlo, si se convierte en duda constante —dijo Ferretti—. Por eso es importante que el equipo entero proyecte calma, aunque internamente todos sintamos la misma preocupación.
+
+Koen, que también escuchaba la conversación mientras revisaba el inventario de repuestos para la etapa siguiente, agregó una observación distinta, más práctica que emocional.
+
+— Desde el punto de vista mecánico, todo sigue perfecto —dijo Koen—. Pero si la carrera se vuelve más táctica, con tres favoritos en lugar de dos, vamos a necesitar más flexibilidad en las bicicletas de repuesto, por si hace falta un cambio rápido en una situación de ataques múltiples.
+
+— Buena observación —dijo Ferretti—. Coordinalo con Rusconi para la próxima reunión técnica.
+
+— Ya lo tengo anotado —confirmó Koen, cerrando su propia libreta con la misma disciplina silenciosa de siempre.
 
 ---
 
@@ -43,6 +66,17 @@ La etapa séptima, con final en Gap después de un recorrido exigente por los pr
 — Treinta segundos —anunció Rusconi por radio, con preocupación genuina—. Vingegaard se está yendo, y ninguno de los dos puede responder con la misma fuerza de siempre.
 
 Santi y Pogačar, trabajando juntos de forma improvisada por primera vez en ese Tour, lograron cerrar parte de la diferencia en los últimos kilómetros, pero Vingegaard cruzó la meta con doce segundos de ventaja, una señal clara de que el danés, descansado y sin el desgaste de un doble objetivo, representaba una amenaza real para los dos.
+
+En la zona de meta, Pogačar se acercó a Santi, los dos todavía recuperando el aliento después del esfuerzo conjunto de los últimos kilómetros.
+
+— Tu vois ce que je voulais dire en mars —dijo el esloveno, entre respiraciones—. Il a attendu tout ce temps, et maintenant il a des jambes fraîches contre nos jambes fatiguées.
+*(¿Ves lo que quería decir en marzo? Esperó todo este tiempo, y ahora tiene piernas frescas contra nuestras piernas cansadas.)*
+
+— On va devoir travailler ensemble plus souvent, on dirait —dijo Santi.
+*(Vamos a tener que trabajar juntos más seguido, parece.)*
+
+— C'est étrange de dire ça d'un rival —dijo Pogačar, sonriendo con cansancio—. Mais oui. Contre lui, on est dans le même bateau, cette année.
+*(Es raro decir esto de un rival. Pero sí. Contra él, estamos en el mismo barco, este año.)*
 
 ---
 
@@ -84,6 +118,30 @@ Mariana, que seguía cada etapa desde Bogotá con la misma atención de siempre,
 
 *Mariana: Eso es lo único que importa, por ahora. Faltan dos semanas más para saber el resto.*
 
+*Santi: Pogačar me dijo algo gracioso hoy, en la zona de meta. Que contra Vingegaard estamos en el mismo barco, este año. Después de todo lo que peleamos los dos últimos años, se siente raro escuchar eso.*
+
+*Mariana: Quizás eso es lo más lindo de este deporte. Que hasta los rivales más feroces pueden encontrar un punto en común, cuando aparece una amenaza más grande para los dos.*
+
+*Santi: Tenés razón. Nunca lo había pensado así.*
+
 Santi guardó el teléfono, pensando que, fuera lo que fuera que esas dos semanas le tuvieran reservado, al menos no las iba a enfrentar sintiendo que nadie entendía la magnitud real de lo que estaba en juego.
+
+Antes de dormir, recordó la frase de Pogačar en la zona de meta —"estamos en el mismo barco, este año"— y pensó en lo extraño que era, después de dos temporadas completas de rivalidad feroz, encontrarse de pronto necesitando aliarse, aunque fuera de forma improvisada, con el mismo corredor al que había peleado centímetro a centímetro en cada montaña de los últimos dos años.
+
+Le escribió a Mariana antes de finalmente dormirse, contándole, de paso, esa misma reflexión.
+
+*Santi: Pogačar me dijo hoy algo gracioso. Que contra Vingegaard estamos en el mismo barco, este año. Después de pelear tanto los dos últimos años, se siente raro escucharlo.*
+
+*Mariana: Quizás eso es lo más lindo de este deporte. Que hasta los rivales más feroces encuentran un punto en común cuando aparece una amenaza más grande para los dos.*
+
+*Santi: Nunca lo había pensado así. Tenés razón.*
+
+*Mariana: ¿Cuántos días faltan para que lleguemos?*
+
+*Santi: Ocho días. Justo antes de los Pirineos.*
+
+*Mariana: Voy a estar contando, otra vez.*
+
+Santi sonrió, guardando el teléfono, agradecido, en medio de la incertidumbre creciente de esa carrera de tres favoritos, de tener algo tan simple y tan firme esperándolo al otro lado de esos ocho días.
 
 ---

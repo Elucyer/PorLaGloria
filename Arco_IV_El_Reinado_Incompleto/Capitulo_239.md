@@ -32,6 +32,17 @@ Vingegaard, que ese año había decidido concentrar su temporada únicamente en 
 
 La Lieja-Bastogne-Lieja, a finales de abril, fue donde la balanza se inclinó por primera vez hacia el lado de Pogačar. En la Roche aux Faucons, el punto donde Santi había ganado la edición de 2021, el esloveno atacó con una potencia que ningún entrenamiento de invierno parecía haber podido anticipar del todo, abriendo una diferencia de dieciocho segundos que Santi, ya con las primeras señales de fatiga acumulada por el calendario más cargado del año, no logró recortar en el resto de la carrera.
 
+En la cabina belga de la RTBF, instalada junto a la Roche aux Faucons, los comentaristas locales narraban el ataque de Pogačar con el fervor habitual de la afición belga por las clásicas de las Ardenas.
+
+— Regarde ça, Vincent! Pogačar attaque comme s'il n'avait jamais connu la fatigue de toute la saison!
+*(¡Mirá eso, Vincent! ¡Pogačar ataca como si nunca hubiera conocido el cansancio de toda la temporada!)*
+
+— Et Reyes qui ne peut pas répondre, pour la première fois depuis des mois. C'est un signal important, à onze jours du Giro.
+*(Y Reyes que no puede responder, por primera vez en meses. Es una señal importante, a once días del Giro.)*
+
+— Dix-huit secondes ici, ça peut sembler peu. Mais psychologiquement, c'est énorme, avant un mois de mai pareil.
+*(Dieciocho segundos acá pueden parecer poco. Pero psicológicamente, es enorme, antes de un mes de mayo así.)*
+
 — Segundo —le dijo Santi a Rusconi, esa noche, sin la frustración de otras derrotas anteriores, sino con una curiosidad analítica que reflejaba el carácter distinto de esa temporada—. ¿Esto es preocupante, de cara al Giro?
 
 — Es información, no es preocupante todavía —dijo Rusconi, revisando los datos de la carrera—. Pogačar viene mostrando un nivel que no mostró en ningún año anterior a esta altura de la temporada. Si esto se confirma en mayo, vamos a tener la batalla más dura de tu carrera en un Grand Tour.
@@ -51,6 +62,20 @@ Luca Arnheim, presente en la reunión como parte del equipo que viajaría al Gir
 — Pogačar no solo está más fuerte —dijo Luca—. Está más calculador. En la Lieja, esperó el momento exacto donde el grupo estaba más cansado, no el momento más espectacular. Eso es nuevo en él.
 
 — Eso es lo que hace que esto sea distinto a 2021 —confirmó Ferretti—. Ya no es solo el corredor más explosivo del pelotón. Está aprendiendo a correr con cabeza, como Santi.
+
+Pogačar, en la zona de meta de Lieja, se había acercado a Santi antes de que ambos subieran a sus respectivos autobuses, con una franqueza que reflejaba bien el respeto construido durante toda la temporada anterior.
+
+— Onze jours, Santi. C'est court pour récupérer de ça.
+*(Once días, Santi. Es poco tiempo para recuperarse de esto.)*
+
+— On verra en mai —dijo Santi—. Tu sembles plus fort que jamais, cette année.
+*(Vamos a ver en mayo. Parecés más fuerte que nunca, este año.)*
+
+— J'ai beaucoup réfléchi à 2023 cet hiver —admitió Pogačar—. À ce que j'ai mal fait, à ce que je dois changer. Peut-être que ça commence à se voir.
+*(Pensé mucho en 2023 este invierno. En lo que hice mal, en lo que tengo que cambiar. Quizás eso ya empieza a notarse.)*
+
+— Ça se voit, oui —dijo Santi, con honestidad—. On a un mois pour préparer la réponse.
+*(Se nota, sí. Tenemos un mes para preparar la respuesta.)*
 
 ---
 
@@ -89,5 +114,23 @@ Mariana, que había seguido la Lieja desde Bogotá con la misma atención que le
 Santi sonrió, leyendo el mensaje una última vez antes de dormir, agradecido, otra vez, de tener a alguien con quien compartir la cuenta de los días, además del cuaderno de Hernando y los números de Rusconi.
 
 Once días, pensó, antes de apagar la luz. Once días para que el plan de los dos picos enfrentara su primera prueba real, contra un rival que llegaba, según todos los indicios de esa primavera, en el mejor momento de toda su carrera.
+
+Llamó también a Mariana esa misma noche, ya cerca de la madrugada en Bogotá, después de colgar con Hernando.
+
+— Pensé que ya estarías dormida —dijo Santi, cuando ella contestó.
+
+— Te esperé despierta —dijo Mariana—. Quería saber cómo seguías, después del mensaje de hace un rato.
+
+— Mejor —dijo Santi—. Hablar con mi papá siempre ayuda. Y ahora hablar con vos también.
+
+— Once días —repitió Mariana—. ¿Vas a estar bien hasta entonces?
+
+— Voy a estar bien —dijo Santi—. Es raro, pero la idea de un desafío así, en lugar de asustarme, me genera algo parecido a las ganas que tenía en enero del año pasado, cuando todo era apostar a una sola cosa.
+
+— Entonces aprovechá esas ganas —dijo Mariana—. Yo voy a estar acá, contando los días con vos, aunque sea desde lejos.
+
+— Eso ya es más de lo que tenía el año pasado a esta altura —dijo Santi, sonriendo en la oscuridad de la habitación del hotel—. Buenas noches, Mariana.
+
+— Buenas noches, Santi. Que descanses, de verdad.
 
 ---

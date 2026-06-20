@@ -16,6 +16,14 @@ La reunión de planificación de 2024 tuvo, desde el principio, un tono distinto
 
 — Pienso que se puede, con un calendario distinto al de años anteriores —dijo Rusconi—. El Giro en mayo, sin descuidar la crono que trabajamos. El Tour en julio, con el margen que ya construimos. Si lo armamos bien, no tenés que elegir entre ser el corredor completo de antes y el especialista en crono que fuiste el año pasado. Podés ser las dos cosas.
 
+— ¿Y el cuerpo aguanta eso, después de un año tan exigente como el pasado? —preguntó Hernando, con la preocupación específica de un padre más que de un técnico.
+
+— El cuerpo de Santi, en este momento de su carrera, está en el mejor punto que vi en los años que llevo trabajando con él —dijo Rusconi—. Eso no significa que no haya riesgo. Significa que el riesgo es manejable, si respetamos cada bloque de descanso que vamos a planificar entre el Giro y el Tour.
+
+— ¿Cuántas semanas de descanso real entre los dos? —preguntó Santi.
+
+— Diez días después del Giro, antes de retomar el trabajo específico de crono para julio —dijo Rusconi—. Menos de lo que tuviste el año pasado entre el Dauphiné y el Tour, pero suficiente, si la carga de las semanas anteriores está bien calculada.
+
 ---
 
 — ¿Por qué volver al Giro este año? —preguntó Hernando, interviniendo desde el sillón—. El año pasado lo sacaron del calendario a propósito, y funcionó.
@@ -52,6 +60,12 @@ Santi sonrió, agradeciendo la intervención de su padre.
 
 — Entonces lo decidimos así —dijo, finalmente—. Los dos Grand Tours este año. Que sea el año más difícil. Vamos a estar preparados.
 
+— Una última cosa —agregó Rusconi, antes de despedirse—. Quiero ser honesto con algo que no dije todavía. Correr dos Grand Tours también significa más días en carretera, más probabilidad estadística de algún incidente: una caída, un virus, cualquier imprevisto que en un año de un solo objetivo hubiéramos podido evitar con más margen de descanso. No te lo digo para asustarte. Te lo digo porque prefiero que lo sepas de entrada, no que te sorprenda a mitad de año.
+
+— Lo entiendo —dijo Santi, sin que la advertencia lo afectara especialmente, acostumbrado ya a las explicaciones detalladas de Rusconi sobre cada riesgo calculado de la temporada—. Es parte del trato, supongo. Más ambición, más exposición.
+
+— Exactamente —confirmó Rusconi—. Pero también vas a tener, todo el año, el mejor equipo de apoyo que jamás tuviste. Eso compensa buena parte del riesgo adicional.
+
 ---
 
 Después de que Rusconi colgara, Hernando se quedó mirando a su hijo con la misma expresión de orgullo cauteloso que aparecía cada enero, desde hacía años, cuando la temporada todavía era solo un plan sobre el papel.
@@ -66,6 +80,20 @@ Después de que Rusconi colgara, Hernando se quedó mirando a su hijo con la mis
 
 — Esa es una ambición todavía más grande que ganar dos Grand Tours —dijo Hernando, riendo—. Pero si alguien puede intentarlo con la misma disciplina que le pone a una crono, sos vos.
 
+Más tarde esa noche, ya en su cuarto, Santi le contó a Mariana, por videollamada, el plan completo de la temporada.
+
+— ¿Dos Grand Tours, entonces? —preguntó Mariana, procesando la información con una calma que sorprendió a Santi—. Eso es más meses de Europa que el año pasado, ¿no?
+
+— Bastante más —admitió Santi—. Giro en mayo, Tour en julio. Vas a verme menos que en 2023, probablemente.
+
+— Lo voy a tomar como viene —dijo Mariana—. Ya lo hablamos en diciembre. Sabía que esto no iba a significar que de repente tenías todo el tiempo del mundo.
+
+— Lo sé —dijo Santi—. Pero igual quería decírtelo de frente, antes de que el calendario se confirme oficialmente.
+
+— Te lo agradezco —dijo Mariana—. Y para que lo sepas: si puedo, voy a viajar a ver alguna etapa del Giro este año. Quiero ver, de cerca, esa parte de tu vida que solo conocí por transmisión hasta ahora.
+
+— Me encantaría eso —dijo Santi, con una sonrisa que Mariana pudo ver claramente a través de la pantalla—. Más que cualquier otra cosa del calendario de este año.
+
 Santi se quedó pensando esa frase un momento, mirando hacia la ventana de la sala, donde la lluvia de enero caía suave sobre las calles de Laureles, sin saber todavía que ese año, el más ambicioso de su carrera en el papel, le tenía reservado algo que ningún plan de Rusconi podía anticipar.
 
 ---
@@ -75,5 +103,7 @@ Esa noche, antes de dormir, Hernando abrió el cuaderno y escribió, con la mism
 *Enero 2024. Decisión: los dos Grand Tours, Giro y Tour, como antes de 2023. El rival más grande: Pogačar, que viene por el mismo doblete. El año más difícil hasta ahora, dice Rusconi. Veremos.*
 
 Cerró el cuaderno y se quedó un momento más despierto, pensando en lo que Santi le había dicho sobre querer hacer espacio para Mariana al mismo tiempo que para dos Grand Tours. En sus propios años de corredor, esa idea —repartir la vida entre el ciclismo y otra cosa con la misma intensidad— nunca había sido una opción real para él. Pero el deporte había cambiado, pensó, y quizás también había cambiado lo que un corredor podía permitirse querer al mismo tiempo que ganar carreras.
+
+Pensó también, antes de finalmente quedarse dormido, en la promesa de Mariana de viajar a ver alguna etapa del Giro, y se preguntó si esa pequeña noticia, casi de paso en medio de tantos planes deportivos, no terminaría siendo, con el tiempo, la línea más importante de todo lo que había escrito esa noche en el cuaderno.
 
 ---

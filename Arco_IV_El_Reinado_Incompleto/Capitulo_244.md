@@ -32,6 +32,17 @@ Hizo el mejor tiempo del día, superando a Pogačar por veintidós segundos —s
 
 — Veintidós segundos —dijo Rusconi por radio, al cruzar la meta—. El mejor resultado de crono de todo el Giro. Pero no alcanza.
 
+En la cabina de la RAI, Bettini y Cassani cerraban la transmisión de la crono con un análisis que reflejaba bien la sensación general del Giro.
+
+— Ventidue secondi, Davide. Il miglior crono della sua carriera al Giro, e non basta comunque.
+*(Veintidós segundos, Davide. La mejor crono de su carrera en el Giro, y no alcanza igual.)*
+
+— È la prova di quanto sia stato dominante Pogačar quest'anno, Paolo. Non un singolo errore, in tre settimane.
+*(Es la prueba de cuán dominante fue Pogačar este año, Paolo. Ni un solo error, en tres semanas.)*
+
+— E ora tutti si chiedono la stessa cosa: che gambe avrà Reyes a luglio, dopo questo sforzo doppio?
+*(Y ahora todos se preguntan lo mismo: ¿qué piernas va a tener Reyes en julio, después de este esfuerzo doble?)*
+
 Santi cruzó la meta sabiendo, antes incluso de que se confirmaran los números oficiales, que el Giro de Italia 2024 terminaba con Pogačar como ganador y él en el segundo escalón del podio, a un minuto con once segundos en la clasificación general final.
 
 ---
@@ -43,6 +54,16 @@ En la ceremonia de podio en Roma, con la Fontana di Trevi iluminada de fondo en 
 — Viniste muy cerca —dijo Pogačar—. Un minuto once, después de tres semanas. Eso no es una derrota cualquiera.
 
 — Se sigue sintiendo como una derrota —dijo Santi, con sinceridad—. Pero una de las que se pueden aprender de verdad.
+
+Caruso, que finalmente había logrado el podio que llevaba toda la temporada buscando, completando el tercer escalón a casi tres minutos de Pogačar, se acercó a Santi antes de que ambos bajaran del escenario.
+
+— Lo conseguí, al final —dijo Caruso, con una emoción genuina que reflejaba años de espera—. Gracias por el respeto que me mostraste toda la carrera, incluso cuando pelearon entre ustedes por la general.
+
+— Te lo merecías —dijo Santi, con sinceridad—. Fuiste el corredor más inteligente de todo el Giro, sin discusión.
+
+— Espero verte pelear el Tour con la misma fuerza que peleaste este Giro —dijo Caruso—. Sería un cierre de carrera perfecto para mí, ver que el consejo del Grappa te sirvió de algo.
+
+— Sirvió, aunque hoy el resultado no lo refleje —dijo Santi—. Gracias, de verdad, por todo este mes.
 
 ---
 
@@ -56,6 +77,10 @@ En la rueda de prensa posterior, un periodista le preguntó directamente sobre e
 
 — Eso lo vamos a saber en julio —dijo Santi, sin prometer nada que no pudiera cumplir.
 
+— ¿Y va a correr el Tour con la misma estrategia de los dos picos, o algo va a cambiar después de este resultado? —insistió otro periodista.
+
+— El plan no cambia —dijo Santi—. Si algo, este resultado me confirma que vale la pena seguir intentando los dos Grand Tours, aunque esta vez no haya alcanzado. El año que viene, con un año más de experiencia en esto, vamos a estar todavía mejor preparados.
+
 ---
 
 Esa noche, en el hotel de Roma, Santi llamó a Hernando para el resumen final del Giro, con una mezcla de decepción y orgullo que reflejaba la complejidad del resultado.
@@ -67,6 +92,10 @@ Esa noche, en el hotel de Roma, Santi llamó a Hernando para el resumen final de
 — Lo sé —dijo Santi—. Pero igual duele.
 
 — Tiene que doler —dijo Hernando—. Si no doliera, significaría que ya no te importa lo suficiente. El dolor de hoy es la prueba de que seguís siendo el mismo competidor de siempre.
+
+— Gracias por decir eso —dijo Santi—. Lo necesitaba escuchar, más de lo que pensé esta tarde en la rueda de prensa.
+
+— Para eso estoy, siempre —dijo Hernando—. En las victorias y en las derrotas, igual.
 
 Hernando anotó en el cuaderno, esa noche, el resultado final del Giro:
 
@@ -103,5 +132,7 @@ Antes de dormir, le escribió un mensaje directamente a Mariana, sin esperar a q
 *Mariana: Te va a gustar más cuando lo digas en voz alta dentro de unos años, contando esta historia.*
 
 Santi sonrió, guardando el teléfono, con la certeza de que, aunque el Giro hubiera terminado en segundo lugar, todavía quedaba mucho de ese año por escribir, y que no lo iba a escribir solo.
+
+Pensó también, antes de finalmente dormirse, en la frase de Caruso sobre cerrar su carrera viendo a Santi pelear el Tour con la misma fuerza, y en lo extraño que era cerrar un Giro perdido sintiendo, al mismo tiempo, tanto cariño genuino por un rival, tanta gratitud hacia un padre que anotaba cada número en un cuaderno, y tanta ansiedad tranquila por volver a casa, donde alguien lo esperaba con algo que ningún resultado deportivo podía igualar.
 
 ---

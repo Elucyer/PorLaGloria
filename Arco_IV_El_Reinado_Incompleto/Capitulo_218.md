@@ -26,6 +26,23 @@ Pogačar y Vingegaard, presentados poco después en el mismo escenario, recibier
 
 — Tres países, tres corredores, un solo Tour —dijo el comentarista de la televisión local, en una frase que se repitió esa noche en todos los resúmenes deportivos de España—. El año en que el ciclismo masculino llegó a su punto más alto en una generación.
 
+En la cabina de France Télévisions, instalada en un balcón con vista directa al museo, Laurent Fignon hijo —comentarista desde hacía una década, heredero del apellido de una leyenda del ciclismo francés— y su compañero habitual, Philippe Mariot, observaban la escena con la mezcla de fascinación y escepticismo profesional que los caracterizaba en cada gran cita.
+
+— Tu vois cette ambiance, Philippe? Je n'ai jamais vu ça pour une présentation d'équipes, même pas à Paris.
+*(¿Ves este ambiente, Philippe? Nunca vi algo así para una presentación de equipos, ni siquiera en París.)*
+
+— C'est normal, Laurent. Le Pays Basque aime le vélo comme nulle part ailleurs en Europe. Mais ce qui m'étonne, c'est le silence autour de Reyes cette année. Pas un mot sur une stratégie de Giro, rien que le Tour.
+*(Es normal, Laurent. El País Vasco ama el ciclismo como en ningún otro lugar de Europa. Pero lo que me sorprende es el silencio alrededor de Reyes este año. Ni una palabra de estrategia de Giro, solo el Tour.)*
+
+— Une seule cible. C'est risqué, mais si son corps répond, ça peut être terrifiant pour les autres.
+*(Un solo objetivo. Es arriesgado, pero si su cuerpo responde, puede ser aterrador para los demás.)*
+
+— Terrifiant pour Pogačar, peut-être. Vingegaard, lui, je ne suis pas sûr qu'il ait peur de grand-chose ces jours-ci.
+*(Aterrador para Pogačar, quizás. Vingegaard, no estoy seguro de que le tenga miedo a mucho últimamente.)*
+
+— On verra bien dans trois semaines, mon ami. Pour l'instant, profitons du spectacle.
+*(Ya veremos en tres semanas, amigo mío. Por ahora, disfrutemos del espectáculo.)*
+
 ---
 
 El reconocimiento de la primera etapa, una contrarreloj por equipos de 23,3 kilómetros por las calles de Bilbao con final junto a la ría, se hizo esa misma tarde, con el equipo completo probando la posición de formación que habían entrenado durante semanas en Girona.
@@ -37,6 +54,30 @@ El recorrido pasaba junto al Athletic Club de Bilbao y cruzaba dos puentes sobre
 Luca Arnheim, en su rol de gregario principal, lideró buena parte del reconocimiento, marcando el ritmo que el equipo debía mantener en los tramos más técnicos del recorrido urbano, donde las curvas cerradas junto al río exigían una coordinación perfecta entre los ocho corredores.
 
 — Si hacemos esto bien —dijo Ferretti, al terminar el reconocimiento—, podemos sacarle entre cinco y ocho segundos a los rivales directos solo en esta etapa, antes de que nadie haya tenido que sufrir en una sola subida.
+
+Al cruzar el segundo puente sobre la ría, ya de vuelta hacia el hotel, Santi se encontró rodando un momento junto a Thibaut Pinot, que reconocía el mismo tramo con su propio equipo, los dos grupos compartiendo unos metros de carretera antes de que cada uno tomara su propio ritmo.
+
+— Alors, Santi, encore une saison où tu ne fais que le Tour? Tu vas nous épuiser, à force de n'avoir qu'un seul objectif.
+*(Entonces, Santi, ¿otra temporada en la que solo corrés el Tour? Nos vas a agotar, a fuerza de tener un solo objetivo.)*
+
+— C'est plus simple comme ça, Thibaut. Une seule chose à laquelle penser, du matin au soir.
+*(Es más simple así, Thibaut. Una sola cosa en la que pensar, de la mañana a la noche.)*
+
+— Simple pour toi, peut-être. Pour nous qui devons te suivre dans les Pyrénées, c'est une autre histoire.
+*(Simple para vos, quizás. Para los que tenemos que seguirte en los Pirineos, es otra historia.)*
+
+Santi se rio, con un afecto genuino hacia el corredor francés, cuya última temporada profesional ya empezaba a sentirse, entre el pelotón, como una cuenta regresiva silenciosa que nadie quería nombrar en voz alta todavía.
+
+— On se reverra dans les Vosges, j'imagine. C'est ta région, non?
+*(Nos vamos a ver en los Vosgos, imagino. Es tu región, ¿no?)*
+
+— Ma région, oui. Peut-être que j'aurai une surprise pour vous tous, ce jour-là.
+*(Mi región, sí. Quizás tenga una sorpresa para todos ustedes, ese día.)*
+
+— J'espère bien.
+*(Eso espero.)*
+
+Santi no supo todavía, esa tarde, cuánto sentido iba a cobrar esa frase casual tres semanas después, en una etapa de los Vosgos que ninguno de los dos imaginaba con la claridad que tendría llegado el momento.
 
 Después del reconocimiento, el equipo completo se reunió para la cena habitual previa a la primera etapa, en una sala privada del hotel reservada especialmente para la ocasión. Ferretti, de pie frente a los ocho corredores que formarían la alineación de ese Tour, dio un breve discurso que repitió, casi palabra por palabra, lo que había dicho en enero en la reunión de planificación.
 

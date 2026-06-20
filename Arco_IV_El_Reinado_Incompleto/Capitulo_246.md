@@ -26,6 +26,16 @@ El campo base de Sierra Nevada, en la última semana de junio, sirvió como el �
 
 — Lo sé —dijo Santi—. Pero cuesta confiar en eso, cuando sabés que Pogačar viene con menos desgaste.
 
+Uno de los gregarios más jóvenes del equipo, presente en la misma sesión, preguntó algo que reflejaba la curiosidad natural de quien todavía no había vivido un Tour de Francia completo.
+
+— ¿Es verdad que este año el recorrido sale de Italia? —preguntó—. Nunca corrí un Tour que no empezara en Francia.
+
+— Es la primera vez en mucho tiempo que el Tour sale del país —confirmó Luca—. Va a ser un comienzo distinto, con público italiano en los primeros días, antes de cruzar los Alpes hacia Francia.
+
+— ¿Y eso cambia algo en la estrategia? —insistió el joven.
+
+— Cambia el ambiente, sobre todo —dijo Santi—. El público italiano después de un Giro como el que tuvimos va a estar especialmente atento a cómo respondemos Pogačar y yo, los dos primeros días.
+
 ---
 
 Ferretti, durante una reunión a finales de junio, repasó con todo el equipo el calendario del Tour 2024, que ese año salía desde Florencia, en Italia, antes de cruzar hacia Francia por los Alpes —una decisión de los organizadores que, dado el año italiano que estaba teniendo el ciclismo mundial con la rivalidad Santi-Pogačar, generaba una expectativa mediática sin precedentes.
@@ -38,6 +48,14 @@ Santi escuchó la mención del Tourmalet sin ninguna premonición especial, simp
 
 — Lo de siempre —dijo Ferretti—. Las bajadas técnicas, sobre todo si hay lluvia. Pero nada distinto a cualquier otro año.
 
+Koen, presente en la misma reunión, aprovechó el momento para confirmar el estado del equipo de competencia de cara al Tour.
+
+— Todas las bicicletas pasaron la revisión completa esta semana —dijo Koen—. El protocolo reforzado sigue sin encontrar ninguna anomalía desde el incidente de la Flèche, hace más de un año ya. Vamos a llevar dos bicicletas de repuesto adicionales este año, solo por precaución extra en un Tour tan exigente.
+
+— Cualquier precaución extra es bienvenida, después de todo lo que pasó este año —dijo Santi—. Gracias por seguir siendo tan riguroso con esto.
+
+— Es mi trabajo —dijo Koen, con la seriedad habitual—. Y lo voy a seguir haciendo con la misma atención, etapa tras etapa, sin excepción.
+
 ---
 
 Una noche, durante una llamada con Mariana desde Sierra Nevada, Santi compartió la inquietud que llevaba semanas sin nombrar del todo en voz alta, ni siquiera con Hernando.
@@ -48,9 +66,25 @@ Una noche, durante una llamada con Mariana desde Sierra Nevada, Santi compartió
 
 — Sí —dijo Santi, sorprendido de que ella recordara ese detalle específico—. Tenés razón. Incluso con toda la certeza del año pasado, hubo un momento de incertidumbre real.
 
+— ¿Y cómo lo resolviste, esa vez? —preguntó Mariana.
+
+— Respondiendo al día siguiente, en Luz Ardiden —dijo Santi—. Mi papá me dijo algo esa noche que nunca olvidé: que la duda de un día no define una carrera de tres semanas. Lo que la define es lo que hacés con esa duda al día siguiente.
+
+— Entonces ya sabés qué hacer si la duda aparece otra vez este año —dijo Mariana.
+
+— Supongo que sí —dijo Santi—. Aunque cada año la duda encuentra una forma distinta de aparecer, parece.
+
 — Entonces quizás la incertidumbre no es nueva —dijo Mariana—. Solo es más visible este año, porque no tenés la comodidad de fingir que no existe.
 
 Santi se quedó pensando esa observación un momento largo, agradecido, otra vez, de la perspectiva que Mariana aportaba desde fuera del mundo de números y proyecciones en el que vivía la mayor parte de su año.
+
+— ¿Ya hablaste con Duarte sobre los vuelos de mis papás? —preguntó Santi, cambiando de tema, hacia algo que prefería pensar antes de dormir esa noche.
+
+— Hablé con Duarte esta semana, sí —dijo Mariana—. Todo está coordinado para que lleguen antes de la etapa de los Pirineos, si quieren ver esa parte en persona, o pueden llegar directamente para la última semana, hacia París.
+
+— Quiero que vean los Pirineos —dijo Santi, sin dudarlo—. Es ahí donde probablemente se decida buena parte del Tour, este año más que nunca.
+
+— Entonces coordinamos eso —dijo Mariana—. Va a ser especial, tenerlos ahí, viéndote en persona por primera vez en un Grand Tour.
 
 ---
 
@@ -77,6 +111,20 @@ Antes de colgar, Hernando agregó algo más, en un tono que mezclaba broma y adv
 — Una cosa —dijo—. Este año, en el Tourmalet, prestá más atención todavía que el año pasado. No por superstición. Simplemente porque ya sabemos que ese puerto te exige algo distinto a cualquier otro.
 
 — Lo voy a tener presente —dijo Santi, sin saber, esa noche, cuánto peso real iba a tener esa advertencia en pocas semanas.
+
+— Una cosa más, antes de colgar —dijo Santi—. Mariana me contó que ya coordinó con Duarte para que vos y mamá lleguen antes de los Pirineos. ¿Todavía les sirve esa fecha?
+
+— Nos sirve perfecto —dijo Hernando, con un entusiasmo que se notaba incluso a través del teléfono—. Tu madre ya está hablando de qué ropa llevar, como si fuéramos de vacaciones en lugar de a ver una carrera.
+
+— En cierto sentido, es las dos cosas —dijo Santi, riendo—. Quiero que disfruten el viaje, no solo que vean carreras.
+
+— Vamos a disfrutarlo, no te preocupes —dijo Hernando—. Treinta años esperando para ver esto en persona. No lo vamos a desperdiciar preocupándonos por nada.
+
+— Una pregunta más —agregó Hernando—. ¿Dónde exactamente van a estar ustedes, en los Pirineos? Quiero saber a qué altura del puerto, para imaginarme bien la escena cuando lo cuente en el cuaderno.
+
+— Todavía no lo decidimos con exactitud —dijo Santi—. Duarte está coordinando con el equipo dónde van a poder ver mejor, sin riesgo de aglomeraciones. Probablemente cerca de la cima del Tourmalet, si el clima lo permite.
+
+— Cerca de la cima, entonces —repitió Hernando—. Voy a anotarlo así, por ahora.
 
 — Buen viaje a Florencia —dijo Hernando—. Avisame cuando lleguen.
 

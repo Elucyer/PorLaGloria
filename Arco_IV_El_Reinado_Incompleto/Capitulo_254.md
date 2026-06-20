@@ -34,6 +34,17 @@ En la ceremonia final, sin la tradicional llegada a los Campos Elíseos por el c
 
 El gesto generó una ovación del público presente en Niza que, según varios cronistas, fue más larga y más sentida que la que había recibido el propio resultado deportivo del Tour.
 
+En la cabina de France Télévisions, Laurent y Philippe cerraban su última transmisión de ese Tour con un tono muy distinto al de cualquier final de etapa anterior.
+
+— Trois semaines qui ont commencé comme la plus belle rivalité du cyclisme moderne, Philippe, et qui se terminent dans cette tristesse étrange.
+*(Tres semanas que empezaron como la rivalidad más linda del ciclismo moderno, Philippe, y que terminan en esta tristeza extraña.)*
+
+— Le geste de Pogačar, dédier la victoire à un absent... je ne l'avais jamais vu faire ça, en vingt ans de Tour.
+*(El gesto de Pogačar, dedicarle la victoria a un ausente... nunca lo había visto hacer, en veinte años de Tour.)*
+
+— On espère tous la même chose, maintenant, Laurent: le revoir un jour sur cette route, peu importe combien de temps ça prendra.
+*(Todos esperamos lo mismo, ahora, Laurent: volver a verlo algún día en esa carretera, sin importar cuánto tiempo tome.)*
+
 ---
 
 Santi, todavía en el hospital de Tarbes en proceso de estabilización antes de un traslado planeado a una clínica especializada en Ginebra, vio el discurso de Pogačar desde la cama del hospital, con Hernando, Carmen y Mariana presentes.
@@ -57,6 +68,14 @@ Esa misma semana, el traslado a Ginebra se concretó sin complicaciones, con Rus
 — Lo sé —dijo Duarte—. Ya empecé a hacer llamadas. Los patrocinadores principales están comprensivos, por ahora. Eso puede cambiar si la recuperación se extiende demasiado.
 
 — Entonces hay que comunicar con cuidado, desde el principio, que esto va a ser un proceso largo —dijo Ferretti—. Nadie se beneficia de falsas expectativas.
+
+Koen, que también participó de la llamada desde Ginebra, agregó una nota propia, más personal que técnica.
+
+— Revisé la bicicleta después del accidente, apenas la recuperamos —dijo Koen, con la voz más afectada de lo habitual—. No fue ningún fallo mecánico. Fue solo el asfalto húmedo y la velocidad del grupo. Necesitaba decir esto en voz alta, para mí mismo, más que para cualquiera de ustedes.
+
+— Nadie pensó que fue tu responsabilidad, Koen —dijo Ferretti, con calidez.
+
+— Lo sé —dijo Koen—. Pero después de la Flèche del año pasado, una parte de mí necesitaba confirmarlo de todas formas.
 
 ---
 
@@ -89,5 +108,17 @@ Mariana se quedó callada un momento, sorprendida de que, incluso en su propia s
 Santi cerró los ojos un momento, sintiendo, en medio del dolor físico y la incertidumbre del diagnóstico, una gratitud que no encontraba cómo expresar del todo con palabras.
 
 — Gracias —dijo, simplemente, sosteniendo su mano con la fuerza que el brazo sano todavía le permitía.
+
+Hernando, al volver a la habitación con el café para todos, encontró la escena en silencio y decidió no interrumpir, quedándose un momento en la puerta antes de finalmente entrar.
+
+— ¿Interrumpo algo? —preguntó, con una sonrisa pequeña.
+
+— No —dijo Santi—. Solo estábamos agradeciéndonos cosas que hace tiempo deberíamos haber dicho en voz alta.
+
+— Eso nunca está de más —dijo Hernando, dejando los cafés sobre la mesa junto a la cama—. En esta familia aprendimos tarde a decir las cosas importantes en voz alta. Mejor tarde que nunca, supongo.
+
+Carmen, entrando detrás de Hernando con una bolsa de comida del hospital, completó la escena familiar que, en medio de la peor noticia médica que habían recibido en años, todavía encontraba espacio para algo parecido a la calma.
+
+— A comer, todos —dijo Carmen, con la practicidad de siempre—. El cuerpo necesita fuerzas para lo que viene, sea lo que sea.
 
 ---

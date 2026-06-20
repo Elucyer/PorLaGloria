@@ -22,6 +22,20 @@ El público vasco, apretado a ambos lados de la carretera del Jaizkibel desde va
 
 — Una locura empezar así, el segundo día —comentó un excorredor español, ahora comentarista de televisión, desde la moto que seguía la carrera—. En otros años, esto se hubiera reservado para la tercera semana. Pero estos tres ya no corren como el resto del pelotón. Corren entre ellos, casi ignorando al resto de la general.
 
+En la cabina francesa, Laurent y Philippe seguían el mismo ataque con una emoción que se filtraba incluso a través del cristal blindado de la transmisión satelital.
+
+— Regarde ça, Philippe! Pogačar attaque déjà, au deuxième jour! C'est de la folie pure.
+*(¡Mira eso, Philippe! ¡Pogačar ataca ya, en el segundo día! Es pura locura.)*
+
+— Pas de la folie, Laurent. C'est un message. Il veut savoir tout de suite si Reyes a vraiment changé, ou si c'est juste ce qu'on raconte depuis janvier.
+*(No es locura, Laurent. Es un mensaje. Quiere saber de inmediato si Reyes realmente cambió, o si es solo lo que se cuenta desde enero.)*
+
+— Et la réponse semble claire, non? Reyes ne perd pas un centimètre.
+*(¿Y la respuesta parece clara, no? Reyes no pierde un centímetro.)*
+
+— Trop tôt pour dire ça. Mais oui, pour l'instant, ça donne des frissons.
+*(Demasiado pronto para decir eso. Pero sí, por ahora, da escalofríos.)*
+
 ---
 
 — Mensaje recibido —dijo Pogačar, en la zona de meta, dándole la mano a Santi con una sonrisa que mezclaba respeto deportivo y la competitividad constante que los caracterizaba a ambos—. Estás exactamente donde estabas en 2021, en las piernas. Pero algo me dice que en la crono no vas a estar donde estabas entonces.
@@ -37,6 +51,18 @@ Vingegaard, que escuchaba el intercambio a unos metros de distancia mientras un 
 — Eso suena a amenaza —dijo Pogačar.
 
 — Es solo la verdad —dijo Vingegaard, alejándose hacia el autobús de su equipo sin decir más.
+
+Roglič, que había llegado a la meta a catorce segundos junto a Carapaz, se acercó a Santi antes de subir a su propio autobús, con el respeto cordial que los dos habían construido desde la Itzulia.
+
+— Te vi seguir ese ataque sin mover ni una pestaña —dijo Roglič, en español, con el acento esloveno suavizado por años de pelotón internacional—. El año pasado, en Lieja, te costó más.
+
+— El año pasado tenía otras cosas en la cabeza —dijo Santi—. Este año, solo esto.
+
+— Se nota —dijo Roglič—. Da un poco de miedo, para los demás.
+
+— No tendría que darte miedo a vos —dijo Santi, sonriendo—. Vos ya ganaste suficientes Tours para no necesitar este.
+
+— Eso fue hace mucho —dijo Roglič, con una nostalgia breve que no intentó esconder—. Ahora solo trato de seguirles el ritmo a ustedes tres, lo más lejos que el cuerpo me deje.
 
 La tercera etapa, con final en Amorebieta tras un recorrido más llano, transcurrió sin sobresaltos para los favoritos, terminando en un sprint masivo que ninguno de los tres principales aspirantes a la general disputó, prefiriendo guardar energía para lo que vendría después.
 
@@ -104,6 +130,6 @@ Antes de colgar, Santi le preguntó por algo que había estado pensando durante 
 
 — Lo sé. Por eso te llamé para decírtelo, antes de olvidarlo.
 
-Colgaron poco después, y Santi se durmió esa noche pensando en metros, no en semanas, exactamente como su padre le había enseñado treinta años atrás en una ladera de Antioquia.
+Colgaron poco después, y Santi se durmió esa noche pensando en metros, no en semanas, exactamente como su padre le había enseñado treinta años atrás en una ladera de Antioquia, mientras afuera, en la oscuridad de Amorebieta, el resto del pelotón hacía lo mismo, cada uno a su manera, preparándose para un Tour que, según repetían ya casi todos los comentaristas de todos los idiomas posibles, no se iba a parecer a ningún otro de la historia reciente del ciclismo, ni en francés, ni en español, ni en ningún otro idioma desde el que se lo contara.
 
 ---

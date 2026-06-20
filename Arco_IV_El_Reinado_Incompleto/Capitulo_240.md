@@ -22,6 +22,20 @@ La salida, organizada en el centro histórico de Turín con la Mole Antonelliana
 
 — Nunca vi tanta gente para una crono de ocho kilómetros —comentó Ferretti, observando las calles abarrotadas desde el coche del equipo—. Esto va a ser un Giro distinto a cualquier otro, solo por el ambiente.
 
+En la cabina de la RAI, Bettini y Cassani, que ya habían narrado juntos el cierre de Il Lombardia el otoño anterior, abrían la transmisión del Giro con un tono que mezclaba entusiasmo y cierta cautela profesional.
+
+— Eccoci di nuovo, Davide. Dopo Como, pensavo che l'anno prossimo sarebbe stato più tranquillo. Invece, eccoci con lo stesso duello, ma ora per tre settimane intere.
+*(Acá estamos otra vez, Davide. Después de Como, pensaba que el año que viene iba a ser más tranquilo. En cambio, acá estamos con el mismo duelo, pero ahora por tres semanas completas.)*
+
+— Tre settimane più altre tre a luglio, Paolo. Non scordiamoci che questo è solo il primo dei due round di quest'anno.
+*(Tres semanas más otras tres en julio, Paolo. No nos olvidemos que este es solo el primero de los dos rounds de este año.)*
+
+— Pogačar sembra arrivato con qualcosa in più, quest'anno. Lo si vede già dalla crono di apertura.
+*(Pogačar parece haber llegado con algo más, este año. Ya se nota desde la crono de apertura.)*
+
+— Vedremo se Reyes ha la stessa cosa in più, o se quest'anno il pendolo si sposta dall'altra parte.
+*(Vamos a ver si Reyes tiene esa misma cosa de más, o si este año la balanza se inclina del otro lado.)*
+
 ---
 
 Pogačar hizo el mejor tiempo de la contrarreloj, por cuatro segundos sobre Santi, una diferencia mínima que, sin embargo, los comentaristas italianos interpretaron de inmediato como una confirmación de la tendencia que se había visto en la Lieja.
@@ -47,6 +61,22 @@ Las primeras etapas del Giro, por las llanuras del norte de Italia y los primero
 Caruso, en la misma rueda de prensa, agregó una perspectiva distinta, la de un corredor que llegaba a los treinta y seis años sabiendo que esa era, probablemente, su última oportunidad real de pelear por algo grande en un Giro.
 
 — Para mí, este Giro tranquilo de los primeros días es un regalo —dijo Caruso—. Cada día sin gastar energía de más es un día que me acerca a tener piernas en la tercera semana, cuando estos dos finalmente decidan correr en serio.
+
+Esa misma tarde, durante la etapa, Caruso se acercó a Santi en un tramo tranquilo de la carretera, aprovechando la calma del pelotón para una conversación que llevaba tiempo queriendo tener.
+
+— Sai una cosa, Santi? A trentasei anni, guardo questo Giro in modo diverso —dijo el italiano—. Per voi due è solo un altro anno. Per me, potrebbe essere l'ultima possibilità vera.
+*(¿Sabés una cosa, Santi? A los treinta y seis años, miro este Giro de forma distinta. Para ustedes dos es solo otro año más. Para mí, podría ser la última posibilidad real.)*
+
+— Non sottovalutarti, Damiano. L'anno scorso eri secondo, a pochi minuti da noi.
+*(No te subestimes, Damiano. El año pasado quedaste segundo, a pocos minutos de nosotros.)*
+
+— Lo so, lo so —dijo Caruso—. Ma il corpo, a questa età, non perdona gli errori come il vostro. Per questo spero che voi due vi distruggiate a vicenda, e che io sia lì a raccogliere i pezzi.
+*(Lo sé, lo sé. Pero el cuerpo, a esta edad, no perdona los errores como el de ustedes. Por eso espero que ustedes dos se destruyan mutuamente, y que yo esté ahí para recoger los pedazos.)*
+
+Santi se rio, con un respeto genuino por la honestidad descarnada del veterano italiano.
+
+— Buona fortuna, allora —dijo Santi—. Te la meriteresti, dopo tutti questi anni.
+*(Buena suerte, entonces. Te la merecerías, después de todos estos años.)*
 
 ---
 
@@ -80,8 +110,20 @@ Mariana, que seguía cada etapa desde Bogotá con la misma dedicación del año 
 
 *Mariana: Entonces vamos a esperar juntos a que aparezca esa certeza. No hay prisa.*
 
+*Santi: Gracias. Hablé hoy también con un corredor italiano, Caruso, treinta y seis años, en lo que probablemente sea su última oportunidad de pelear algo grande. Me hizo pensar distinto sobre todo esto.*
+
+*Mariana: ¿Distinto cómo?*
+
+*Santi: En que las oportunidades no son infinitas, supongo. Hay que aprovecharlas mientras estén, sin asumir que siempre va a haber una próxima vez.*
+
+*Mariana: Eso suena a una buena forma de pensar el resto del año, no solo el Giro.*
+
+*Santi: Tenés razón. Eso también.*
+
 Santi sonrió, leyendo el mensaje, agradecido de que, incluso en la incertidumbre de un comienzo de Giro complicado, hubiera alguien dispuesto a esperar junto a él sin exigir respuestas que todavía no tenía.
 
 Apagó la luz pensando en las palabras de Hernando —que la forma a veces se revela de golpe, no gradualmente— y se durmió esperando que esa fuera exactamente la clase de Giro que tenía por delante: una incertidumbre temprana que se resolviera, en algún punto de las próximas tres semanas, a su favor.
+
+Pensó también, antes de dormirse del todo, en la frase de Caruso de esa tarde —que para él, ese Giro podía ser la última oportunidad real— y se preguntó, sin encontrar una respuesta clara, cuántos años más le quedaban a su propia carrera antes de empezar a sentir ese mismo tipo de urgencia, esa sensación de que las oportunidades, en algún momento, dejan de ser infinitas.
 
 ---

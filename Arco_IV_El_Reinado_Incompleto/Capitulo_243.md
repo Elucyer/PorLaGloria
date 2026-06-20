@@ -38,6 +38,20 @@ Santi se levantó del sillín, buscando la respuesta que había encontrado en ca
 
 Santi mantuvo el ritmo, sin pánico, sabiendo que perseguir con desesperación en ese punto de la subida podía costarle todavía más de lo que ya estaba perdiendo. Pogačar, sin embargo, no dio ninguna señal de ceder: a tres kilómetros de la cima, la diferencia ya superaba el minuto.
 
+En la cabina de la RAI, Bettini y Cassani narraban la escena con una solemnidad que reflejaba la magnitud del momento.
+
+— Un minuto, Davide. Pogačar ha aspettato tutta la stagione per questo momento, e ora lo sta vincendo con una facilità che fa paura.
+*(Un minuto, Davide. Pogačar esperó toda la temporada por este momento, y ahora lo está ganando con una facilidad que da miedo.)*
+
+— E Reyes che non risponde più. È il momento più difficile della sua stagione, forse della sua carriera al Giro.
+*(Y Reyes que ya no responde. Es el momento más difícil de su temporada, quizás de su carrera en el Giro.)*
+
+— Il vento del Piave, di cui parlava Caruso, sta soffiando proprio adesso, da destra. Forse anche questo gioca un ruolo.
+*(El viento del Piave, del que hablaba Caruso, está soplando justo ahora, de la derecha. Quizás eso también juega un papel.)*
+
+— Vento o non vento, Paolo, oggi Pogačar è semplicemente più forte. Non c'è altra spiegazione.
+*(Viento o no viento, Paolo, hoy Pogačar es simplemente más fuerte. No hay otra explicación.)*
+
 ---
 
 En los últimos dos kilómetros, con la pendiente todavía rondando el doce por ciento, Santi sintió, por primera vez en su carrera en una etapa decisiva, algo parecido a aceptar una derrota antes de que la etapa terminara —no resignación completa, pero sí la certeza fría de que ese día, ese puerto específico, no le pertenecía.
@@ -59,6 +73,17 @@ En la rueda de prensa, con la maglia rosa que ya sabía que iba a perder en las 
 Pogačar, sentado a su lado con la sonrisa contenida de alguien que sabía exactamente lo que ese resultado significaba, fue más directo en su propia valoración.
 
 — Esperé este día desde la primavera —dijo el esloveno—. Sabía que en algún punto de la tercera semana, el desgaste de los dos Grand Tours le iba a pasar factura, y elegí el Grappa para confirmarlo. Funcionó exactamente como lo planeamos.
+
+Más tarde, en el pasillo del hotel, lejos de cualquier micrófono, Pogačar se cruzó con Santi y, por primera vez en toda la rivalidad entre los dos, bajó completamente la guardia competitiva.
+
+— Je suis sincèrement désolé pour ta tenue de leader —dijo el esloveno, con una sobriedad que sorprendió a Santi—. Mais je devais le faire. Tu aurais fait pareil, à ma place.
+*(Lo siento sinceramente por tu maillot de líder. Pero tenía que hacerlo. Vos hubieras hecho lo mismo, en mi lugar.)*
+
+— Je sais —dijo Santi, sin rencor—. C'est le sport. Il reste une étape de montagne et un chrono. On verra.
+*(Lo sé. Es el deporte. Queda una etapa de montaña y una crono. Vamos a ver.)*
+
+— Une minute trente-trois, c'est beaucoup —dijo Pogačar, casi con respeto por la dificultad de la tarea que le esperaba a Santi—. Mais après cette année, je ne sous-estimerai plus jamais ce que tu peux faire.
+*(Un minuto treinta y tres es mucho. Pero después de este año, nunca más voy a subestimar lo que podés hacer.)*
 
 ---
 
@@ -96,8 +121,14 @@ Antes de dormir, Santi revisó el teléfono y encontró un mensaje de Mariana, e
 
 *Santi: Lo sé. Pero hoy cuesta verlo así.*
 
+*Mariana: Pogačar dijo algo en la rueda de prensa que me llamó la atención. Que nunca más te va a subestimar. Eso, viniendo de él, también vale algo, ¿no?*
+
+*Santi: Me lo dijo a mí también, en el pasillo. Tenés razón. No borra la derrota, pero ayuda un poco.*
+
 *Mariana: Es normal que cueste hoy. Mañana va a costar un poco menos, y así.*
 
 Santi se quedó mirando esa última frase un momento, sintiendo, por primera vez esa noche, algo parecido a un alivio pequeño en medio de la derrota, antes de apagar la luz y tratar de dormir, sin demasiada esperanza de lograrlo del todo.
+
+Pensó, antes de finalmente caer en un sueño irregular, en la frase de Pogačar en el pasillo del hotel —que nunca más iba a subestimarlo, después de ese año— y se preguntó si ese tipo de respeto, ganado en la derrota, no terminaría valiendo, con el tiempo, casi tanto como cualquier maillot que pudiera perder en las próximas cuarenta y ocho horas.
 
 ---

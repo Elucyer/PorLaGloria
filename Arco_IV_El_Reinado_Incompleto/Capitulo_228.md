@@ -18,13 +18,26 @@ Santi se despertó esa mañana en el hotel de Saint-Quentin-en-Yvelines con una 
 
 La tradición del champagne en las primeras horas de la etapa, donde el pelotón completo paraba brevemente para que los líderes brindaran con copas que algún miembro del equipo había guardado especialmente para la ocasión, se cumplió como cada año, con Santi compartiendo el brindis con Vingegaard y Pogačar, los tres juntos en una imagen que la prensa internacional reproduciría al día siguiente en cada portada deportiva del mundo.
 
-— Felicitaciones —dijo Vingegaard, levantando la copa—. Dieciocho segundos no es mucho margen, pero alcanzó. Te lo ganaste con la crono, exactamente como dijiste que iba a pasar desde enero.
+— Felicitaciones —dijo Vingegaard, levantando la copa—. Cuatro segundos no es nada, pero alcanzó. Te destrocé en la crono, y aun así me remontaste en tres etapas de montaña. Eso dice más de vos que cualquier número.
 
-— Gracias —dijo Santi—. El año que viene, la revancha.
+— Gracias —dijo Santi—. Esa crono tuya en Combloux todavía no la termino de entender del todo. El año que viene, la revancha.
 
 — El año que viene, la revancha —confirmó Pogačar, sonriendo—. Aunque después de lo de ayer en los Vosgos, no sé si alguno de los tres tiene piernas para hablar de revanchas todavía.
 
 Los tres rieron, en un momento de camaradería poco habitual entre rivales de ese nivel, que reflejaba bien el carácter particular de ese Tour: una rivalidad feroz en la carretera, pero un respeto genuino que se había construido, etapa tras etapa, durante tres semanas de competencia al límite.
+
+Pinot, en su última etapa como profesional, se acercó al grupo de favoritos con una copa propia, prestada por uno de sus gregarios, antes de que el pelotón retomara la marcha hacia París.
+
+— Vous trois, vous m'avez offert ma dernière grande étape, à la fuite de Gérardmer —dijo el francés, con una emoción que no intentó disimular—. Je n'oublierai jamais ça.
+*(Ustedes tres me regalaron mi última gran etapa, en la fuga de Gérardmer. Nunca voy a olvidar eso.)*
+
+— C'est nous qui devrions te remercier —dijo Santi—. Cette étape restera dans toutes les mémoires bien plus longtemps que n'importe quel classement général.
+*(Somos nosotros los que deberíamos agradecerte. Esa etapa va a quedar en la memoria de todos mucho más tiempo que cualquier clasificación general.)*
+
+— Bonne retraite, Thibaut —dijo Vingegaard, levantando su propia copa hacia el francés—. Le peloton ne sera plus le même sans toi.
+*(Buen retiro, Thibaut. El pelotón ya no va a ser el mismo sin vos.)*
+
+Pinot asintió, visiblemente conmovido, antes de alejarse hacia el resto de su equipo, dejando a los tres favoritos con un silencio breve que ninguno de ellos sintió la necesidad de romper de inmediato.
 
 ---
 
@@ -50,6 +63,17 @@ Santi subió al escalón más alto del podio con una calma que sorprendió inclu
 
 — Este fue el único en el que aposté todo a una sola carrera, sin red de seguridad —dijo Santi—. Ganar así, sabiendo que no había Giro de respaldo, que no había nada más que esto, significa algo distinto a cualquier otra victoria de mi carrera.
 
+En la cabina de France Télévisions, instalada por última vez esa edición frente al Arco del Triunfo, Laurent y Philippe cerraban la transmisión con el tono más solemne que habían usado en las tres semanas anteriores.
+
+— Trois semaines, Philippe. Trois semaines à se demander, chaque jour, si on assistait au plus grand Tour de notre carrière de commentateurs.
+*(Tres semanas, Philippe. Tres semanas preguntándonos, cada día, si estábamos asistiendo al Tour más grande de nuestra carrera como comentaristas.)*
+
+— Et la réponse, je crois, est oui, sans aucun doute. Un Colombien qui gagne après avoir perdu cinquante et une secondes contre le chrono le plus dominant que j'ai jamais vu. Ça ne s'oublie pas.
+*(Y la respuesta, creo, es sí, sin ninguna duda. Un colombiano que gana después de haber perdido cincuenta y un segundos contra la crono más dominante que vi jamás. Eso no se olvida.)*
+
+— On se dit à l'année prochaine, Laurent. Parce qu'après ça, je ne vois pas comment l'un de ces trois pourrait abandonner cette rivalité.
+*(Nos vemos el año que viene, Laurent. Porque después de esto, no veo cómo alguno de estos tres podría abandonar esta rivalidad.)*
+
 ---
 
 Esa noche, en el hotel de París, con la copa de campeón todavía sobre la mesa de la habitación, Santi llamó a Hernando, que había organizado en Laureles una celebración con Carmen y varios vecinos del barrio, todos reunidos frente a la televisión desde primera hora de la tarde.
@@ -62,7 +86,7 @@ Esa noche, en el hotel de París, con la copa de campeón todavía sobre la mesa
 
 Hernando, del otro lado de la pantalla, abrió el cuaderno de tapas que ya empezaba a gastarse después de tantos años de uso, y escribió, con la letra más firme que había usado en mucho tiempo:
 
-*24 de julio de 2023. París. Tour de Francia, ganado de principio a fin. Un solo objetivo, siete meses de trabajo, dieciocho segundos de margen final. El año que apostamos todo, y ganamos.*
+*24 de julio de 2023. París. Tour de Francia ganado, aunque no de principio a fin como lo soñamos en enero: perdimos la crono de Combloux por 49 segundos ante la mejor actuación individual que vi en años, y remontamos cincuenta y cinco en las tres etapas siguientes para ganar por apenas cuatro. Un solo objetivo, siete meses de trabajo, y el margen más pequeño posible al final. El año que apostamos todo, y ganamos, de la forma más dramática que se pueda imaginar.*
 
 Más tarde esa noche, ya solo en la habitación, después de que terminaran las llamadas con Duarte, Patiño y varios compañeros de equipo, Santi revisó el teléfono y encontró un mensaje de Mariana, enviado apenas unos minutos después de que se confirmara el resultado oficial.
 
@@ -77,5 +101,7 @@ Más tarde esa noche, ya solo en la habitación, después de que terminaran las 
 *Mariana Castañeda: Me alegra mucho por vos. De verdad.*
 
 Santi se quedó mirando esa última frase un momento, con la copa de campeón todavía brillando bajo la luz de la lámpara de la habitación, sintiendo, por primera vez en meses, que tenía espacio real en la cabeza para pensar en algo que no fuera el Tour, y que ese espacio, sin que lo hubiera planeado, ya tenía un nombre.
+
+Apagó la lámpara, se acostó, y se quedó dormido esa noche con la copa de campeón todavía sobre la mesa, brillando débilmente bajo la luz de la calle que entraba por la ventana del hotel, mientras afuera, en algún punto de París, miles de aficionados seguían celebrando una victoria que, sin saberlo del todo, ya empezaba a contarse, en cada idioma posible, como una de las más memorables de la historia reciente del Tour de Francia.
 
 ---

@@ -116,9 +116,9 @@ Año sin competir. Ejes:
 | 223 | El Col du Galibier | Etapa 12, ataques de Pogačar |
 | 224 | El Tourmalet, de subida | Etapa 14, ataque de Vingegaard, duda de Santi |
 | 225 | Luz Ardiden, la respuesta | Etapa 15, respuesta de Santi |
-| 226 | Combloux | Etapa 16, crono decisiva — Santi toma el liderato (+18") |
-| 227 | Defender los dieciocho segundos | Etapas 17-19, control alpino |
-| 227_especial_1 | La fuga de Pinot | Etapa 20 — Pinot gana con Santi/Pogačar/Vingegaard persiguiendo sin éxito a 30" |
+| 226 | Combloux | Etapa 16, crono — **Vingegaard gana de forma legendaria (real, histórica)**, +49" sobre Santi, +1:38 sobre Pogačar. Vingegaard toma el liderato (+51" sobre Santi) |
+| 227 | La remontada en los Alpes | Etapas 17-19 — Santi ataca y remonta 55" en tres etapas (Croix de Fer +15", Petit Ballon +35"), termina liderando por +4" sobre Vingegaard |
+| 227_especial_1 | La fuga de Pinot | Etapa 20 — Pinot gana con Santi/Pogačar/Vingegaard persiguiendo sin éxito a 30" (sin riesgo para el margen de 4" entre los tres) |
 | 228 | Los Campos Elíseos | Etapa 21 — Santi gana el Tour de Francia 2023 |
 | 229 | El regreso | Vuelta a Colombia, recepción en San José |
 | 230 | Diez días | Café en Marinilla, Mariana confronta a Santi |
@@ -183,10 +183,10 @@ Año sin competir. Ejes:
 | 261 | Un año después | 20 julio, aniversario del accidente, paz en la piedra del abuelo |
 | 262 | Los primeros vatios | Agosto-sept., alta médica completa, primer entrenamiento estructurado |
 | 263 | El susto de octubre | Contractura (no la vértebra) — ajuste a ritmo más conservador |
-| 264 | El cierre de un año sin carreras | 20 dic. 2025, reunión anual sin resultados deportivos, Fundación creció más que nunca |
-| 265 | El reinado incompleto | Enero 2026, cierre simbólico del arco completo, plan de regreso a mediados de 2026 |
+| 264 | El cierre de un año sin carreras | 20 dic. 2025, reunión anual sin resultados deportivos, Fundación creció más que nunca. **20 nov. 2025: control médico confirma 95% de recuperación muscular — la vértebra ya consolidada del todo. Rusconi propone y Santi decide mudarse a Girona, cerca del equipo, hasta el regreso a competencia. Mariana decide acompañarlo. Anunciado a Duarte/Patiño en la reunión del 20 dic.; última Navidad en Laureles antes del viaje.** |
+| 265 | El reinado incompleto | Enero 2026. Exposición de Mariana en Bogotá, despedidas en Medellín (gimnasio de San José, Rodrigo), última noche en el balcón de Laureles, y mudanza a Girona con Hernando y Carmen acompañándolos la primera semana para instalarlos. Cierra el arco completo ya radicados en Girona — noticia de la "Pista Hernando Reyes" llega por teléfono allí, última foto familiar en la terraza nueva, despedida de Hernando/Carmen en el aeropuerto. Plan de regreso a mediados de 2026, entrenando ya junto al equipo. |
 
-**Cierre del Arco IV:** Santi termina 2025 con la vértebra completamente sanada, una relación consolidada con Mariana (instalada en Laureles), la Fundación en su mejor momento (11 municipios), y un plan de regreso gradual a competencia hacia mediados de 2026, sin fecha de resultados, solo de reaparición en carrera. El título "El Reinado Incompleto" queda explícitamente nombrado dentro de la propia narración en el cap. 265.
+**Cierre del Arco IV:** Santi termina 2025 con la vértebra completamente sanada (95% confirmado en noviembre), una relación consolidada con Mariana, la Fundación en su mejor momento (11 municipios), y la decisión — tomada en noviembre de 2025 — de instalarse en Girona junto al equipo para encarar de cerca la última etapa de preparación hacia el regreso a mediados de 2026. El volumen 4 cierra con Santi y Mariana ya viviendo en Girona, sin fecha de resultados, solo de reaparición en carrera. El título "El Reinado Incompleto" queda explícitamente nombrado dentro de la propia narración en el cap. 265.
 
 ---
 

@@ -30,6 +30,20 @@ Luca Arnheim, presente otra vez en el campo base como gregario principal de cara
 
 — Yo sé exactamente cuánto vale tu trabajo, aunque nadie más lo pregunte —dijo Santi—. Este año lo vamos a necesitar más que nunca.
 
+Otro de los gregarios nuevos del equipo, un joven español de veintidós años que se incorporaba a su primer campo base de altura, preguntó durante la misma cena algo que llevaba días queriendo formular.
+
+— ¿Es verdad que el año pasado entrenaste cuatro días seguidos en un túnel de viento, sin parar? —preguntó, con la curiosidad propia de quien todavía no conocía de primera mano el nivel de detalle del trabajo de Rusconi.
+
+— Es verdad —confirmó Santi—. Seis horas por día, ajustando centímetros de posición. No es tan glamoroso como suena.
+
+— ¿Y este año hay algo parecido?
+
+— Este año el túnel de viento ya hizo su trabajo —dijo Rusconi, interviniendo desde la cabecera de la mesa—. Ahora se trata de mantener esa posición integrada, no de reconstruirla desde cero. El trabajo nuevo de este año está más en la cabeza que en la aerodinámica: sostener dos picos de forma en el mismo calendario.
+
+— Suena más difícil que el túnel de viento —dijo el joven gregario, con una mueca.
+
+— Es más difícil —confirmó Santi, riendo—. Bienvenido al nivel profesional de verdad.
+
 ---
 
 A mediados de febrero, Ferretti llegó al campo base para una revisión completa del calendario de primavera, que ese año recuperaba varias clásicas que en 2023 se habían sacrificado por el plan único.
@@ -76,6 +90,18 @@ Mariana se rio, conmovida por la honestidad de la respuesta.
 
 — No hace falta que entiendas los números —dijo Santi—. Solo hace falta que sigas escuchando.
 
+— ¿Y cuándo nos vemos otra vez? —preguntó Mariana—. Entre Sierra Nevada y el Giro, ¿hay algún hueco?
+
+— Hay un fin de semana libre antes de viajar a Girona, a fines de febrero —dijo Santi—. Podría volar a Bogotá esos dos días, si te sirve.
+
+— Me sirve muchísimo —dijo Mariana, con una sonrisa que se notaba incluso a través de la pantalla pequeña del teléfono—. Aunque sean solo dos días.
+
+— Dos días contigo valen más que una semana de cualquier otra cosa —dijo Santi—. Eso también lo aprendí este año.
+
+— Qué cursi te volviste, Santiago Reyes Cardona —dijo Mariana, riendo—. El Tour de Francia te cambió por completo.
+
+— Será que encontré algo que valía la pena cambiar por —dijo Santi, sonriendo también, antes de despedirse para volver al campo base antes de que cayera la noche sobre la sierra.
+
 ---
 
 Esa noche, antes de dormir, Santi llamó a Hernando para el resumen habitual del día de entrenamiento.
@@ -101,5 +127,13 @@ Antes de colgar, Hernando agregó algo más, en un tono más reflexivo.
 — Nunca lo pensé así —dijo Santi—. Pero tenés razón.
 
 — Buenas noches —dijo Hernando—. Y buena suerte con todas las cosas que vas a tener que sostener este año.
+
+— Una cosa más, antes de colgar —dijo Santi—. Voy a volar a Bogotá el fin de semana antes de Girona, a ver a Mariana.
+
+— Hacelo —dijo Hernando, sin dudarlo—. Encontrá esos huecos en el calendario, aunque sean cortos. El año pasado aprendiste que valía la pena apostar todo a un objetivo. Este año aprendé que también vale la pena guardar un poco de esa apuesta para lo demás.
+
+— Lo voy a hacer —dijo Santi—. Buenas noches, viejo.
+
+Colgó el teléfono y se quedó un momento más despierto, mirando el techo de la habitación del campo base, pensando en el fin de semana en Bogotá, en el Giro de mayo, en el Tour de julio, y en la sensación extraña pero satisfactoria de tener, por primera vez en su carrera, tantas cosas importantes esperando al mismo tiempo, ninguna de ellas dispuesta a ceder espacio a la otra, y con la sensación, todavía nueva pero cada vez más firme, de que ese equilibrio, por difícil que fuera de sostener, era exactamente la vida que quería vivir de ahora en adelante.
 
 ---

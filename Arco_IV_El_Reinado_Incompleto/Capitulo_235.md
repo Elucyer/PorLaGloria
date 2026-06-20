@@ -60,6 +60,20 @@ Santi sonrió, ante la comparación.
 
 El mesero del café se acercó a preguntar si querían algo más, y los dos pidieron otra ronda de café, sin prisa por terminar la conversación que finalmente, después de más de un año, empezaba a tener la honestidad que ambos habían estado esperando sin atreverse a forzarla del todo.
 
+— Hay algo más que quiero preguntarte —dijo Mariana, después de que el mesero se alejara—. ¿Por qué ahora? ¿Qué cambió, exactamente, entre agosto y diciembre, para que finalmente te animaras?
+
+Santi lo pensó con cuidado, queriendo darle una respuesta real, no la primera frase cómoda que se le ocurriera.
+
+— Creo que necesitaba probarme algo a mí mismo primero —dijo, finalmente—. Que podía apostar todo a un objetivo, sin red de seguridad, y que podía funcionar. Una vez que lo probé con el Tour, entendí que el miedo que tenía con esto, con nosotros, era el mismo miedo, disfrazado de otra cosa. Miedo a fallar en algo que de verdad me importaba.
+
+— ¿Y ya no tenés ese miedo?
+
+— Lo tengo todavía —admitió Santi—. Pero ya aprendí que el miedo no es razón suficiente para no intentarlo. Eso lo aprendí este año, en una bicicleta. Ahora lo estoy aplicando a esto.
+
+Mariana sonrió, conmovida por la honestidad de la respuesta, mucho más vulnerable de lo que esperaba escuchar esa tarde.
+
+— Esa es, sin discusión, la mejor respuesta que me podías dar —dijo.
+
 ---
 
 Hablaron durante más de dos horas, de cómo sería un año donde ambos intentaran hacer espacio real para el otro: ella viajando, cuando pudiera, a algunas carreras importantes; él, comprometiéndose a no desaparecer detrás del entrenamiento cada vez que las cosas se pusieran intensas, como había hecho durante todo 2023.
@@ -92,6 +106,18 @@ Cuando se separaron, ninguno de los dos dijo nada de inmediato. Mariana fue la p
 
 Se despidieron con un abrazo más largo que cualquiera de los anteriores, sin promesas grandes, pero con algo asentado entre los dos que antes no existía: la certeza compartida de que el año siguiente, fuera lo que fuera que trajera, ya no los encontraría fingiendo que esto era solo cordialidad espaciada.
 
+Antes de subir a su carro, Mariana se detuvo un momento más.
+
+— Una cosa más —dijo—. No le digas nada a nadie todavía, ¿sí? Ni a la prensa, ni a Duarte, ni a nadie del equipo. Quiero que esto, al menos por un tiempo, sea solo nuestro, sin cámaras ni cálculos de imagen pública de por medio.
+
+— Eso es exactamente lo que quiero también —dijo Santi—. Esto no es para Duarte, ni para ningún patrocinador. Es para nosotros.
+
+— Bien —dijo Mariana, sonriendo, antes de subir al carro—. Avisame cuando llegues a Europa, en enero.
+
+— Lo voy a hacer —dijo Santi—. Todos los días, si hace falta.
+
+Mariana se fue, y Santi se quedó un rato más en la calle, viendo las luces traseras del carro alejarse hacia el centro de Medellín, con una sensación de plenitud que no se parecía a ninguna victoria deportiva de toda su carrera, por grande que hubiera sido.
+
 ---
 
 Esa noche, Hernando lo encontró en el balcón de siempre, con una expresión que no necesitaba ninguna explicación adicional.
@@ -103,5 +129,15 @@ Esa noche, Hernando lo encontró en el balcón de siempre, con una expresión qu
 — Eso ya es un buen comienzo —dijo Hernando—. Lo demás se va a acomodar solo, a su tiempo, como casi todo lo importante.
 
 Los dos se quedaron un rato mirando las luces de Laureles, cerrando, en silencio, el año más completo de la carrera de Santi —el año en que ganó todo lo que se propuso ganar en una bicicleta, y en que, por primera vez, también se permitió empezar algo que ningún entrenamiento podía enseñarle a manejar.
+
+— ¿Le vas a contar a tu mamá? —preguntó Hernando, después de un rato de silencio.
+
+— Todavía no —dijo Santi—. Quiero que sea algo nuestro, por un tiempo, antes de que se vuelva tema de conversación familiar.
+
+— Entendido —dijo Hernando, sonriendo—. Yo tampoco voy a decir nada. Pero te voy a anotar la fecha en el cuaderno, aunque sea sin nombre todavía.
+
+— Anotala —dijo Santi—. Veintiocho de diciembre. El día que finalmente dije la verdad.
+
+Hernando asintió, y los dos se quedaron en el balcón un rato más, sin necesidad de decir nada adicional, mientras Medellín se preparaba, abajo, para recibir el último día del año más extraordinario en la historia reciente de la familia Reyes Cardona.
 
 ---
