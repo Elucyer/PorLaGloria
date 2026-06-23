@@ -23,7 +23,9 @@
       "Bash(cd \"/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_III_Aprender_a_Matar\" && wc -w Capitulo_192.md)",
       "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_III_Aprender_a_Matar/**)",
       "Bash(sed -i 's/Montmeló/Sion/g' Capitulo_202.md)",
-      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_IV_El_Reinado_Incompleto/**)"
+      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_IV_El_Reinado_Incompleto/**)",
+      "Bash(cd \"/c/Users/Usuario/Documents/Proyectos/PorLaGloria\" && grep -n \"Arco V\\\\|La Cosecha\" BIBLIA_PorLaGloria.md | head -50)",
+      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/**)"
     ]
   }
 }

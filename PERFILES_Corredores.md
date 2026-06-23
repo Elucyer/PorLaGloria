@@ -155,6 +155,15 @@ Usar este documento como fuente única para características físicas, estilo de
 - **Relación con Santi**: Mentor no declarado. Le enseña a pedalear sobre adoquines (cap. 33). Les une la filosofía del trabajo sobre la gloria. Su mención del Stelvio en cap. 34 tiene peso de ironía dramática (Hernando muere mientras Santi escala el Stelvio).
 - **Frase clave**: "El Stelvio es solo una subida. Larga, alta, difícil. Pero solo una subida."
 - **REGLA**: Clarke es compañero de equipo desde el primer día en Bélgica (enero 2018). En Mallorca (cap. 35) ya se conocen; esa escena debe reflejar una amistad ya establecida, no un primer encuentro.
+- **Retiro**: Se retira de la competencia activa a fines de 2023 (último año documentado en el cap. 192 es 2022). Reaparece por mensaje de texto en el Arco V (cap. 272), felicitando a Santi tras su primera victoria post-Tourmalet, confirmando el retiro de forma explícita y cerrando el hilo.
+
+### Marco Colombo
+- **Nombre**: Marco Colombo (ficticio)
+- **Equipo**: Élan Cycliste, y después MercadoLibre-FCV en sus primeros años — compañero de equipo de Santi y Clarke en los Arcos II-III.
+- **Origen**: Italiano. Rodador/gregario de fondo, mencionado trabajando junto a Clarke en la defensa de la Itzulia 2022 (cap. 192).
+- **Retiro**: Se retira de la competencia activa en 2024. Para el Arco V trabaja como director deportivo de un equipo continental juvenil en Italia. Reaparece por mensaje en el cap. 272, felicitando a Santi en italiano tras su primera victoria post-Tourmalet.
+
+**Nota sobre el relevo de gregarios:** Clarke y Colombo, ambos compañeros desde los años de Élan Cycliste, se retiran de la competencia entre 2023 y 2024, sin aparecer en el Arco IV. **Luca Arnheim**, fichado en 2020, pasa a ser el gregario principal y veterano del equipo desde el Arco IV en adelante. Para el Arco V, el equipo ya incorporó una nueva camada de gregarios jóvenes (ver cap. 275: un escalador colombiano de 23 años, dos franceses especialistas en crono por equipos, un español de segundo año) — el mismo ciclo de relevo generacional que, en paralelo, viven los propios rivales de Santi (ver `REFERENCIA_Ciclistas_Contemporaneos.md`, sección XV, sobre la nueva generación de corredores).
 
 ---
 
@@ -244,9 +253,66 @@ Usar este documento como fuente única para características físicas, estilo de
 
 ---
 
+## CORREDORES ARCO IV-V (2023–2028)
+
+> Para palmarés año por año de estos corredores, ver `REFERENCIA_Ciclistas_Contemporaneos.md` (documento maestro de estadísticas reales). Esta sección es solo perfil físico/de carácter, para escribir diálogo y comportamiento en carrera.
+
+### Tadej Pogačar
+- **Real**: nacido 21/09/1998, Eslovenia
+- **Equipo**: UAE Team Emirates (2019–)
+- **Tipo**: Completo, explosivo, instintivo. Ataca donde el cálculo de los demás dice que es pronto. Punto débil casi inexistente — la única grieta real es la fatiga acumulada de dobles objetivos (Giro+Tour).
+- **Carácter**: Competitivo sin rencor. Capaz de gestos de respeto genuino hacia un rival caído (cap. 228, le dedica la victoria del Tour 2024 a Santi tras el accidente). Habla con franqueza directa, sin estrategia de prensa.
+- **Relación con Santi**: El rival de referencia desde 2022. La rivalidad construye respeto mutuo real, no solo deportivo — los dos se buscan después de cada etapa decisiva para hablar a solas, lejos de micrófonos.
+- **Rol Arco V**: Pierde el doble Giro+Tour 2027 ante Santi en podio (sin ganarle, pero sin perder tampoco frente a él). En 2028 cierra su propio trébol de Grand Tours ganando su primera Vuelta a España, el mismo año que Santi recupera el Tour.
+
+### Jonas Vingegaard
+- **Real**: nacido 10/01/1996, Dinamarca
+- **Equipo**: Jumbo-Visma / Visma-Lease a Bike (2019–)
+- **Tipo**: Defensivo, calculador, paciente. Espera el error del rival antes de atacar. Capaz de actuaciones de contrarreloj históricas (Combloux 2023, cap. 226) cuando el terreno lo favorece.
+- **Carácter**: Reservado al extremo, casi nunca regala elogios — cuando lo hace, pesa más que cualquier discurso largo (cap. 265_especial_1: "Respeto total").
+- **Relación con Santi**: El "tercer tiburón" — la frescura de no correr dobles objetivos lo vuelve, en años puntuales, más peligroso que Pogačar.
+- **Rol Arco V**: Tercer vértice del triángulo en 2027-2028. Sin arco de rivalidad cerrado todavía — abierto a desarrollo.
+
+### Remco Evenepoel
+- **Real**: nacido 25/01/2000, Bélgica (la misma edad exacta de Santi)
+- **Equipo**: Soudal-Quick-Step (2019–)
+- **Tipo**: Explosivo en CRI y repechos cortos, mediático, extrovertido — el contraste exacto del Santi reservado.
+- **Carácter**: Directo, sin filtro, competitivo de forma visible (a diferencia de Pogačar, que disimula mejor la frustración).
+- **Relación con Santi**: Conocidos desde Bilbao 2023 (cap. 218 — "nos vemos cuando el cansancio sea difícil de esconder para todos"). Rivalidad todavía menor comparada con Pogačar/Vingegaard, con potencial de crecer.
+- **Rol Arco V**: Amenaza creciente sin enfrentamiento decisivo fijado a un año — posible hilo de cierre para el Arco VI.
+
+### Primož Roglič
+- **Real**: nacido 29/10/1989, Eslovenia
+- **Equipo**: Bora-Hansgrohe (2024–)
+- **Tipo**: Especialista de contrarreloj y descensos técnicos. El veterano del pelotón en este punto de la carrera de Santi.
+- **Rol Arco IV-V**: Figura de respeto, sin protagonismo central — puede aparecer en podios secundarios o como referencia generacional ("el que ya vivió todo esto antes").
+
+### Richard Carapaz
+- **Real**: nacido 29/05/1993, Ecuador
+- **Equipo**: EF Education-EasyPost (2024–)
+- **Tipo**: Escalador puro, latinoamericano, generación intermedia entre Santi y los rivales europeos de su edad.
+- **Rol Arco IV**: Compañero de sufrimiento en climas duros (cap. 222, conversación de antidopaje tras el Col de la Loze). Relación de camaradería latinoamericana, no de rivalidad feroz.
+
+### Isaac del Toro *(nuevo para el Arco V)*
+- **Real**: nacido 27/11/2003, Ensenada (México)
+- **Equipo**: UAE Team Emirates–XRG (2024–)
+- **Tipo**: Escalador puro, ligero, explosivo en rampas largas — el perfil físico más parecido al de Santi de todo el pelotón actual.
+- **Carácter**: Todavía sin desarrollo narrativo propio — entra al pelotón de Santi como la generación que viene detrás, no como antagonista directo.
+- **Rol Arco V**: Tercera o cuarta fuerza en los Grand Tours del arco, sin protagonismo central. Reservar su rivalidad mayor con Santi (si la hay) para el Arco VI, cuando Santi sea el veterano frente a él.
+
+### Paul Seixas *(nuevo para el Arco V)*
+- **Real**: nacido 24/09/2006, Lyon (Francia)
+- **Equipo**: Decathlon CMA CGM Team (2025–)
+- **Tipo**: Completo, fuerte en contrarreloj desde joven — exactamente lo que a Santi le costó años de túnel de viento construir.
+- **Carácter**: Demasiado joven todavía para protagonismo en el Arco V (20-22 años en 2026-2028). Útil como referencia que Hernando o Rusconi mencionan de pasada: "ya viene otro, y este sí sabe rodar contra el crono desde los diecisiete."
+- **Rol Arco V**: Sin desarrollo propio — color de pelotón / advertencia generacional.
+
+---
+
 ## REGLAS DE USO DE ESTE DOCUMENTO
 
 1. **Antes de escribir cualquier capítulo** que involucre a un corredor conocido: verificar aquí sus características, equipo, edad y resultado real.
-2. **Resultados reales**: Los corredores reales (Bernal, Lambrecht, Sivakov, Froome, Dumoulin) solo pueden tener en la novela los resultados que tuvieron en la realidad.
-3. **Corredores ficticios** (Santi, Arroyave, Clarke, Ríos, Arenas, Ospina, Mejía): libertad narrativa total.
+2. **Resultados reales**: Los corredores reales (Bernal, Lambrecht, Sivakov, Froome, Dumoulin, Pogačar, Vingegaard, Evenepoel, Roglič, Carapaz, del Toro, Seixas, etc.) solo pueden tener en la novela los resultados que tuvieron en la realidad — desde 2026 en adelante, los resultados reales todavía no existen, así que cualquier resultado narrativo se marca `[FICCIÓN]` en `REFERENCIA_Ciclistas_Contemporaneos.md`.
+3. **Corredores ficticios** (Santi, Arroyave, Clarke, Ríos, Arenas, Ospina, Mejía, Luca Arnheim): libertad narrativa total.
 4. **Actualizar este documento** cuando un personaje nuevo sea creado o un personaje existente cambie de equipo, rol o características.
+5. **Ranking UCI y nuevos talentos**: revisar periódicamente el ranking UCI real (vía búsqueda web) al iniciar un arco nuevo, para incorporar corredores jóvenes que no estaban presentes en arcos anteriores — última revisión: 20 de junio de 2026, de cara al Arco V.

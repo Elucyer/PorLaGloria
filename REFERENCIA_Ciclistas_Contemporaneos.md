@@ -7,18 +7,23 @@
 
 ## NOTA DE LECTURA
 
-La cronología de Santi es:
-- **2018** — Giro, 2.º (Froome gana)
-- **2019** — Giro, **1.º** *(pico narrativo #1)*
-- **2021** — Vuelta a España, **1.º**
-- **2022** — Tour de France, **2.º** (pierde la crono final)
-- **2023** — Giro, **1.º** (2.ª vez)
-- **2024** — Tour, abandono en etapa 14 (accidente)
-- **2026** — Tour, **1.º** (única carrera de la temporada)
-- **2027/2028** — Tour, **1.º** (dos consecutivos más)
-- **2029** — Tour, accidente en el Galibier
-- **2032** — Triple Corona: Giro + Tour + Vuelta *(pico narrativo #2)*
-- **2033** — Retiro en el Lombardía
+> **Actualizado tras el cierre del Arco IV (cap. 265) y la planificación del Arco V — esta sección reemplaza la cronología original, que quedó desactualizada por decisiones tomadas durante la escritura.**
+
+La cronología real de Santi, confirmada por lo ya escrito, es:
+- **2018** — Giro, 3.º (debut). Hernando, diagnóstico de cáncer.
+- **2019** — Giro, **1.º** *(pico narrativo #1, Stelvio)*. Il Lombardia, 1.º.
+- **2020** — Tour de France, **1.º** (primer colombiano). Vuelta a España, 5.º (caída E7) — nunca más la corre hasta el regreso.
+- **2021** — Giro, **1.º** (2.ª vez). Lieja-Bastoña-Lieja 2.º (Alaphilippe gana). Completa 4 de 5 Monumentos.
+- **2022** — Giro, **1.º** (3.ª vez, cap. 192). Caída entrenando en Girona (clavícula). Tour de France 3.º a 28" de Vingegaard, detrás de Pogačar — prep. comprimida tras la caída.
+- **2023** — Tour de France, **1.º** (2.ª vez, único objetivo del año — apuesta de un solo Grand Tour). Completa los 5 Monumentos.
+- **2024** — Doble Giro+Tour. Giro, **2.º** (Pogačar gana en el Monte Grappa). Tour: lleva el amarillo, **cae en la bajada del Tourmalet** (etapa 19) — fractura de clavícula, costillas y vértebra T7. Pogačar gana el Tour.
+- **2025** — Año entero sin competir. Recuperación.
+- **2026** — Regreso. Vuelta a España, **4.º** (pierde el podio en la última etapa de alta montaña — Arco V).
+- **2027** — Doble Giro+Tour. Va por su 4.º Giro y su 3.º Tour — podio en ambos, sin victoria (Arco V).
+- **2028** — Tour de France, **1.º** (3.ª vez). Vuelta a España, **2.º** (Pogačar gana su primera Vuelta y completa el trébol de Grand Tours) (Arco V).
+- **2029+** — Arco VI, todavía no planificado.
+
+**Conteo de Grand Tours de Santi al cierre del Arco V (proyectado):** 3 Giros (2019, 2021, 2022), 3 Tours (2020, 2023, 2028), 0 Vueltas (mejor resultado: 4.º en 2026).
 
 ---
 
@@ -37,10 +42,12 @@ La cronología de Santi es:
 | 2023 | UAE Team Emirates | **Tour de France 2.º** (Vingegaard gana de nuevo). **Il Lombardia 1.º** (3.º consecutivo). **Tour of Flanders 1.º** (su primer Monumento de clásicas). **Liège-Bastogne-Liège 2.º**. Strade Bianche 2.º. |
 | 2024 | UAE Team Emirates | **Giro de Italia 1.º** (debut en el Giro, 6 etapas). **Tour de France 1.º** (5 etapas). **Il Lombardia 1.º** (4.º consecutivo). **Tour of Flanders 1.º**. **Liège-Bastogne-Liège 1.º**. **Strade Bianche 1.º**. Vuelta a España no disputa. **Campeón del Mundo en ruta 2024 (Zúrich)**. |
 | 2025 | UAE Team Emirates | **Tour de France 1.º** (3 etapas). **Il Lombardia 1.º** (5.º consecutivo). **Liège-Bastogne-Liège 1.º**. Strade Bianche 1.º. **Campeón del Mundo en ruta 2025 (Kigali)**. Criterium du Dauphiné (general). |
-| 2026 | UAE Team Emirates | **Milán-San Remo 1.º**. **Tour de France 2.º** *(Santi gana — FICCIÓN)*. [Temporada en construcción] |
-| 2027–2033 | UAE Team Emirates | `[FICCIÓN]` Continúa siendo el rival principal de Santi en los Tours 2027 y 2028. Pugna entre los dos domina la narrativa del pelotón. |
+| 2026 | UAE Team Emirates | **Líder del ranking UCI** con amplio margen (+10.000 puntos a mitad de año). Sigue dominando clásicas y campeonatos. *(En la novela: no corre la Vuelta — Santi 4.º; el duelo de Pogačar ese año es contra Vingegaard y del Toro en el Tour, sin Santi todavía en el calendario de Grand Tours)* |
+| 2027 | UAE Team Emirates | `[FICCIÓN]` Rival de Santi en el doble Giro+Tour — Santi termina podio en los dos sin ganarle, confirmando que Pogačar sigue siendo el referente a vencer. |
+| 2028 | UAE Team Emirates | `[FICCIÓN]` Santi le gana el Tour (su 3.ª victoria). Pogačar, en compensación, **gana su primera Vuelta a España** ese mismo año y completa el trébol de los tres Grand Tours de su carrera — Santi 2.º. |
+| 2029–2033 | UAE Team Emirates | `[FICCIÓN]` Sin definir todavía — Arco VI. |
 
-**Nota narrativa:** Pogačar es el rival de referencia de Santi en el Tour. En la ficción de la novela, los Tours 2026-2028 son Santi vs. Pogačar. La batalla más táctica es el Tour 2028. Pogačar tiene 30 años en 2028 — en el pico de su madurez táctica.
+**Nota narrativa:** Pogačar es el rival de referencia de Santi en el Tour desde 2022. En la ficción, gana su primera Vuelta en 2028 — la única corona de Grand Tour que le faltaba — el mismo año que Santi por fin vuelve a ganar un Tour tras el accidente. Las dos cosas ocurren en paralelo: el triunfo de uno y la astilla del otro.
 
 ---
 
@@ -57,9 +64,9 @@ La cronología de Santi es:
 | 2023 | Jumbo-Visma | **Tour de France 1.º** (2.º consecutivo, 1 etapa). **Vuelta a España 2.º**. Pais Vasco (general + 3 etapas). Critérium du Dauphiné (general + 2 etapas). O Gran Camiño (general + 3 etapas). |
 | 2024 | Visma-Lease a Bike | **Tour de France 2.º** (detrás de Pogačar — regresa tras accidente grave de entrenamiento en abril 2024). Tirreno-Adriatico (general + 2 etapas). Tour de Pologne (general). |
 | 2025 | Visma-Lease a Bike | **Tour de France 2.º**. Continúa como rival directo de Pogačar. |
-| 2026–2033 | Visma-Lease a Bike | `[FICCIÓN]` Competidor de Santi en los Tours. En 2032 tiene 36 años — etapa final de carrera. |
-
-**Nota narrativa:** Vingegaard es el tercer elemento del triángulo Pogačar-Vingegaard-Santi en los Tours 2026-2028. Su estilo más conservador y defensivo contrasta con el instinto atacante de Pogačar y la frialdad táctica de Santi.
+| 2026 | Visma-Lease a Bike | **2.º en el ranking UCI** a mitad de año, segundo mejor del pelotón tras Pogačar. Gana Paris-Niza. `[En la novela: no cruza con Santi, que corre la Vuelta, no el Tour]` |
+| 2027–2028 | Visma-Lease a Bike | `[FICCIÓN]` Tercer vértice del triángulo Pogačar-Vingegaard-Santi en el doble Giro+Tour de 2027 y el Tour de 2028. Estilo conservador y defensivo, contraste directo con Pogačar. |
+| 2029–2033 | Visma-Lease a Bike | `[FICCIÓN]` Sin definir todavía — Arco VI. En 2032 tendría 36 años, etapa final de carrera.
 
 ---
 
@@ -76,7 +83,8 @@ La cronología de Santi es:
 | 2023 | Soudal–QS | **Liège-Bastogne-Liège 1.º** (2.º consecutivo). **Campeonato del Mundo CRI 1.º** (Glasgow). Vuelta a España (3 etapas + montaña). Clásica de San Sebastián 1.º. Vuelta a Bélgica (general). |
 | 2024 | Soudal–QS | **Juegos Olímpicos París: oro en ruta + oro en CRI** (único en ganar ambas en los mismos JJ.OO.). **Tour de France 3.º** (debut en el Tour). Campeonato del Mundo CRI. |
 | 2025 | Soudal–QS | Continúa en el circuito WorldTour con foco en clásicas y Grand Tours. |
-| 2026–2033 | Soudal–QS | `[FICCIÓN]` Rival de Santi en el Tour (tienen la misma edad, nacidos ambos en 2000). La dualidad Santi-Remco como generación es un subtexto narrativo posible del Arco V. |
+| 2026 | Soudal–QS | Top 10 del ranking UCI a mitad de año, detrás de Pogačar, del Toro y Vingegaard. Sigue siendo amenaza en CRI y montaña corta. |
+| 2027–2028 | Soudal–QS | `[FICCIÓN]` Rival de Santi en el doble Giro+Tour (2027) y en el Tour 2028 (tienen la misma edad, nacidos ambos en 2000). La amenaza de Remco crece a lo largo del Arco V sin que su enfrentamiento decisivo esté todavía fijado a un año concreto — posible hilo de cierre para el Arco VI. |
 
 **Nota narrativa:** Evenepoel y Santi tienen exactamente la misma edad (nacidos en 2000). El contraste entre los dos — el belga mediático, extrovertido, producto de un sistema; el colombiano reservado, forjado en los puertos de Antioquia — puede ser un hilo narrativo en los arcos tardíos.
 
@@ -289,6 +297,38 @@ La cronología de Santi es:
 
 ---
 
+## XV. LA NUEVA GENERACIÓN (incorporados para el Arco V)
+
+> Revisado el ranking UCI real de 2026: Pogačar lidera con amplio margen, seguido por Vingegaard. El resto del top 10 ya no es el mismo pelotón del Arco III/IV — apareció una camada de corredores jóvenes que conviene tener presentes para los Grand Tours de 2026-2028, en los que Santi vuelve a competir.
+
+### Isaac del Toro
+**Nacido:** 27/11/2003 — Ensenada, Baja California, México
+**Equipo:** UAE Team Emirates–XRG (2024–)
+
+El gran nombre nuevo del pelotón y el rival latinoamericano más fuerte que Santi va a enfrentar desde Bernal y Carapaz. Ganó el Tour de l'Avenir 2023 (primer mexicano en hacerlo). En el Giro de Italia 2025 terminó **2.º** general, con victoria de etapa (E17) y la clasificación de jóvenes. En 2026 ya suma sus primeras victorias generales WorldTour (UAE Tour, Tirreno-Adriático) y entra al top 3 del ranking UCI, justo detrás de Pogačar y Vingegaard. Escalador puro, perfil físico muy similar al de Santi (ligero, explosivo en rampas largas).
+
+**Nota narrativa:** Del Toro es tres años más joven que Santi (nacido 2003 vs. 2000) y corre para el mismo tipo de equipo-superpotencia que UAE representa frente al proyecto colombiano de MercadoLibre-FCV. Es el nombre obvio para sembrar como "la próxima generación que ya está llegando" durante el Arco V — la prueba de que el reloj de Santi también corre para los que vienen detrás, no solo para los rivales de su misma edad (Pogačar, Vingegaard, Remco). Puede aparecer como tercera o cuarta fuerza en el Giro 2027 o en cualquiera de los Grand Tours del arco, sin necesidad de protagonismo central todavía — reservar su arco de rivalidad mayor para el Arco VI, cuando Santi ya sea el veterano frente a él.
+
+### Paul Seixas
+**Nacido:** 24/09/2006 — Lyon, Francia
+**Equipo:** Decathlon CMA CGM Team (antes Decathlon AG2R, 2025–)
+
+El fenómeno más joven del pelotón — seis años menor que Santi. Campeón del mundo júnior de contrarreloj (2024, con 17 años). Debutó en el WorldTour en 2025 y, ese mismo año, fue el corredor más joven de la historia en terminar entre los 10 primeros de una carrera por etapas WorldTour (Critérium du Dauphiné). Ganó también el Tour de l'Avenir 2025. Descrito por la prensa especializada como "el próximo gran talento" del ciclismo francés — con un perfil completo, fuerte en crono (algo que ni Pogačar ni Santi tuvieron de forma natural a esa edad).
+
+**Nota narrativa:** Seixas es demasiado joven para ser rival directo de Santi en el Arco V (tendría 20-22 años en 2026-2028, recién llegando al WorldTour), pero es el nombre perfecto para que Hernando o Rusconi mencionen de pasada como advertencia: "ya viene otro, y este sí sabe rodar contra el crono desde los diecisiete." Útil como espejo inverso de la propia debilidad histórica de Santi en la contrarreloj — el francés tiene, de fábrica, lo que a Santi le costó años de túnel de viento construir.
+
+### Romain Grégoire
+**Nacido:** 21/01/2003 — Besançon, Francia
+**Equipo:** Groupama–FDJ (2023–)
+
+Campeón nacional y europeo júnior en ruta. Ganador de 19 carreras UCI a corta edad, incluyendo el Liège-Bastogne-Liège Espoirs y etapas del Tour de l'Avenir. Perfil de clásicas/puncheur con proyección a Grand Tours de una semana — todavía no consolidado como GC de tres semanas, pero en ascenso constante desde 2023.
+
+**Nota narrativa:** Menos central que del Toro o Seixas para el arco de Santi, pero útil como parte del fondo de pelotón — la generación 2003 que ya empieza a ganar carreras WorldTour mientras Santi pelea por sostener su propio nivel después del accidente. Puede aparecer en una clásica de primavera o en una vuelta de una semana del calendario 2026-2027 sin necesidad de desarrollo narrativo propio.
+
+**Otros nombres del top 10 UCI 2026 a tener en cuenta, sin perfil propio todavía (mencionar de pasada si hace falta color de pelotón):** Mads Pedersen (clásicas, danés, ya veterano), Antonio Tiberi (italiano, GC de Grand Tour en ascenso), Matteo Jorgenson (estadounidense, Visma, todoterreno), Tobias Lund Andresen (danés, sprints/clásicas), Jan Christen (suizo, joven todoterreno).
+
+---
+
 ## TABLA RESUMEN — GRANDES VUELTAS (Ganadores reales vs. ficción)
 
 | Año | Giro de Italia | Tour de France | Vuelta a España |
@@ -296,20 +336,19 @@ La cronología de Santi es:
 | 2015 | Contador | **Froome** | **Froome** |
 | 2016 | Nibali | **Froome** | Quintana |
 | 2017 | **Dumoulin** | **Froome** | **Froome** |
-| 2018 | **Froome** *(Santi 2.º)* | **G. Thomas** | **S. Yates** |
-| 2019 | **SANTI** *(Carapaz en realidad)* | **Bernal** | **Roglič** |
-| 2020 | Geoghegan Hart | **Pogačar** | **Roglič** |
-| 2021 | **Bernal** | **Pogačar** | **SANTI** *(Roglič en realidad)* |
-| 2022 | Carapaz | **Vingegaard** | **Evenepoel** |
-| 2023 | **Roglič** | **Vingegaard** | Kuss |
-| 2024 | **Pogačar** | **Pogačar** | **Roglič** |
-| 2025 | Sintetik/Proyección | **Pogačar** | — |
-| 2026 | — | **SANTI** `[FICCIÓN]` | — |
-| 2027 | — | **SANTI** `[FICCIÓN]` | — |
-| 2028 | — | **SANTI** `[FICCIÓN]` | — |
-| 2032 | **SANTI** `[FICCIÓN]` | **SANTI** `[FICCIÓN]` | **SANTI** `[FICCIÓN]` (Triple Corona) |
+| 2018 | **Froome** *(Santi 3.º, real)* | **G. Thomas** | **S. Yates** |
+| 2019 | **SANTI** `[FICCIÓN]` *(Carapaz en realidad)* | **Bernal** | **Roglič** |
+| 2020 | Geoghegan Hart | **SANTI** `[FICCIÓN]` *(Pogačar en realidad)* | **Roglič** *(Santi 5.º, FICCIÓN)* |
+| 2021 | **SANTI** `[FICCIÓN]` *(Bernal en realidad)* | **Pogačar** | **Roglič** |
+| 2022 | **SANTI** `[FICCIÓN]` (3.ª vez) *(Carapaz en realidad)* | **Vingegaard** *(Santi 3.º, FICCIÓN — caída en Girona, prep. comprimida)* | **Evenepoel** |
+| 2023 | **Roglič** | **SANTI** `[FICCIÓN]` (2.ª vez) *(Vingegaard en realidad)* | Kuss |
+| 2024 | **Pogačar** *(Santi 2.º, FICCIÓN)* | **Pogačar** *(Santi cae en el Tourmalet, E19 — FICCIÓN)* | **Roglič** |
+| 2025 | — | **Pogačar** | — *(Santi no compite — año de recuperación, FICCIÓN)* |
+| 2026 | — | — | **SANTI 4.º** `[FICCIÓN]` (regreso) |
+| 2027 | **SANTI podio, sin ganar** `[FICCIÓN]` | **SANTI podio, sin ganar** `[FICCIÓN]` | — |
+| 2028 | — | **SANTI** `[FICCIÓN]` (3.ª vez) | **Pogačar** `[FICCIÓN]` (1.ª vez, completa el trébol) — **Santi 2.º** |
 
-*(Las celdas en negrita sin `[FICCIÓN]` son resultados reales confirmados. Las celdas con `[FICCIÓN]` son adaptaciones narrativas de la novela.)*
+*(Las celdas en negrita sin `[FICCIÓN]` son resultados reales confirmados hasta 2025. Desde 2026, todas las proyecciones son narrativas — todavía no ocurrieron en la realidad — y se marcan `[FICCIÓN]` de forma explícita. La fila 2032/Triple Corona pertenece al Arco VI, todavía sin planificar; se retira de esta tabla hasta que se aborde ese arco.)*
 
 ---
 
@@ -348,4 +387,4 @@ La cronología de Santi es:
 
 ---
 
-*Documento creado mayo 2026. Datos reales hasta agosto 2025 (fecha de corte del modelo). Años 2026+ marcados como `[FICCIÓN]`.*
+*Documento creado mayo 2026, revisado 20 de junio de 2026: nota de lectura y tabla resumen corregidas para que coincidan con la cronología real de Santi (Arcos I-IV ya escritos); ranking UCI 2026 verificado (Pogačar 1.º, Vingegaard 2.º, del Toro 3.º); incorporada la sección XV con la nueva generación (del Toro, Seixas, Grégoire) de cara al Arco V. Datos reales de corredores hasta junio 2026. Años 2026+ de Santi marcados como `[FICCIÓN]`.*

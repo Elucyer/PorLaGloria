@@ -20,7 +20,7 @@ Ferney Ríos estaba a veintidós metros hacia la derecha, en la camiseta azul de
 
 El pelotón rodó los primeros veinte kilómetros sin rupturas mayores. La pendiente era suficientemente suave para que el grupo se mantuviera compacto, lo suficientemente exigente para que a las dos horas de pedalear ya se sintiera el peso del esfuerzo acumulado en los muslos. A los lados de la carretera, fincas cafeteras con los cafetos en hileras perfectas, algunas vacas con la indiferencia majestuosa de los animales que han visto pasar muchas cosas sin que ninguna les parezca urgente.
 
-A los treinta y dos kilómetros, uno de los corredores del Indeportes atacó.
+A los veintinueve kilometros, uno de los corredores del Indeportes atacó.
 
 Un ataque de exploración —eso era lo que parecía— para medir cómo respondía el pelotón. El grupo respondió sin esfuerzo. El corredor volvió al grupo.
 

@@ -232,11 +232,11 @@ Durante esa primera semana, Hernando y Carmen ayudaron a armar cada rincón del 
 
 Luca Arnheim, que entrenaba en Girona desde hacía semanas con el resto del equipo de cara a la pretemporada, fue el primero en recibir a Santi en la sede del equipo, con un abrazo que decía más que cualquier frase sobre los meses de distancia.
 
-— Por fin de vuelta donde corresponde —dijo Luca—. Ya hablé con Ferretti. Mañana salimos juntos, la primera vuelta tranquila, como en los viejos tiempos.
+— Por fin de vuelta donde corresponde —dijo Luca—. Ya hablé con Rusconi. Todavía no hay bicicleta para vos, ni para mí acompañándote en una — primero toca gimnasio, los dos juntos, como en los viejos tiempos de cualquier pretemporada aburrida.
 
-— Como en los viejos tiempos —repitió Santi, sintiendo, por primera vez en mucho tiempo, la sensación exacta de pertenecer otra vez a un lugar construido alrededor de la misma pasión que él.
+— Como en los viejos tiempos —repitió Santi, sintiendo, por primera vez en mucho tiempo, la sensación exacta de pertenecer otra vez a un lugar construido alrededor de la misma pasión que él, aunque esa pasión, por ahora, tuviera que vivirse entre máquinas de gimnasio y no sobre el asfalto.
 
-A la mañana siguiente, Santi salió en bicicleta junto a Luca por las carreteras tranquilas que rodeaban Girona, sintiendo, en cada pedalada compartida, la confirmación de algo que había tardado tres años en entender completamente: que el verdadero reinado, el que de verdad importaba, nunca había dependido de un trofeo o de una clasificación general, sino de la capacidad de levantarse, una y otra vez, con la gente correcta alrededor, sin importar cuántas veces el camino decidiera interrumpirse, ni en qué país tuviera que reconstruirse esa vez.
+A la mañana siguiente, Santi entrenó junto a Luca en el gimnasio del equipo —series de fuerza, trabajo de estabilidad, nada todavía que se pareciera a una bicicleta de verdad—, sintiendo, en cada ejercicio compartido, la confirmación de algo que había tardado tres años en entender completamente: que el verdadero reinado, el que de verdad importaba, nunca había dependido de un trofeo o de una clasificación general, sino de la capacidad de levantarse, una y otra vez, con la gente correcta alrededor, sin importar cuántas veces el camino decidiera interrumpirse, ni en qué país tuviera que reconstruirse esa vez.
 
 Mariana lo esperaba a la entrada del edificio cuando volvió, con un café ya preparado y una sonrisa que reflejaba la misma certeza tranquila que él sentía.
 
