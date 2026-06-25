@@ -224,6 +224,8 @@ Antes de colgar, Contador añadió algo que no había dicho en ninguna entrevist
 
 — Pogačar — dijo Contador. — Lo veo correr y me veo a mí mismo en el 2007. El mismo timing de ataque. El mismo instinto de ir cuando la carrera dice que es demasiado pronto. — Pausa. — En el 2007 yo era el Pogačar de ahora y el corredor que me ganó el sentido táctico ese año fue Rasmussen, que atacó antes que yo en el Aubisque y que me obligó a reaccionar en lugar de decidir. — Pausa. — La Roche aux Faucons fue eso: vos atacaste antes que él y lo obligaste a reaccionar. En el Tour, si reproducís eso — si en la montaña atacás antes de que él espere, no cuando él espera — la clasificación general la controlás vos.
 
+Santi pensó, sin decirlo en el micrófono, en lo que Pogačar le había dicho en el boulevard de Liège trece días antes — el esloveno apretando los labios un segundo antes de la frase, buscando la palabra exacta en inglés, y después diciéndola sin filtro: *bien jugado*. Ningún otro rival se la decía así, tan entera, sin guardarse nada de la derrota.
+
 Silencio de Santi.
 
 — ¿Y si no puedo? — dijo finalmente.

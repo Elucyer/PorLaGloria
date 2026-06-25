@@ -202,7 +202,7 @@ Santi cruzó.
 
 No con los brazos abiertos — con el gesto del que ha llegado al límite real y que en el límite real no tiene energía para el gesto grande. Un puño brevemente levantado, cerrado, la muñeca hacia arriba. Solo eso.
 
-Cuarenta y tres segundos después llegó Carapaz. Cincuenta y cinco después, Roglič. Un minuto y cuatro segundos después, Nibali.
+Cuarenta y tres segundos después llegó Carapaz. Cruzó la línea sin mirar el reloj, sin la mueca de frustración que casi cualquier otro corredor habría dejado ver después de perder un ataque que había llevado solo durante seis kilómetros. Se quitó las gafas, se pasó el dorso de la mano por la cara, y buscó con la mirada el bus de Movistar —no el podio, no la pantalla con los tiempos, solo el bus, como quien ya ha archivado la etapa y está pensando en la siguiente. Cincuenta y cinco después, Roglič. Un minuto y cuatro segundos después, Nibali.
 
 La Maglia Rosa virtual pasó de Valerio Conti — que había cruzado la línea ocho minutos atrás — a Santiago Reyes.
 

@@ -12,9 +12,9 @@ No por la lluvia. Por el spray de la rueda del corredor de adelante.
 
 Las carreteras de Flandes mojadas proyectan el agua hacia arriba y hacia atrás con una eficiencia que ningún guardabarro resuelve del todo, y el resultado es que en los primeros treinta minutos de cualquier entrenamiento de invierno en Bélgica el corredor de atrás recibe en la cara y en el pecho el resumen líquido de todo lo que la carretera ha acumulado: agua de lluvia, tierra, el aceite que los camiones dejan en las curvas, algo que no tiene nombre pero que sabe a siglos de uso.
 
-Santi escupió.
+Santi escupió. Sabía a metal y a algo orgánico que prefería no identificar.
 
-—Bienvenido a Flandes —dijo la voz de Simon Clarke desde atrás.
+—Bienvenido a Flandes —dijo la voz de Simon Clarke desde atrás, con el tono ligero de quien ha dicho esa misma frase a cada novato del equipo en los últimos ocho años.
 
 ---
 
@@ -36,7 +36,7 @@ No los había visto venir. La carretera de asfalto se cortó sin aviso y apareci
 
 El primer sector duraba cuatrocientos metros.
 
-Los cuatrocientos metros más incómodos que Santi había experimentado sobre una bicicleta.
+Los cuatrocientos metros más incómodos que Santi había experimentado sobre una bicicleta: los dientes le castañeteaban un poco con cada juntura, y el sabor a metal de antes volvió a la boca, más fuerte.
 
 No era el dolor —era la energía que la vibración absorbía de las manos, de los brazos, de la espalda, ese gasto invisible que no aparece en los datos de potencia pero que al final del día te deja más cansado de lo que explican los vatios. Santi apretó el manillar. Soltó. Volvió a apretar. Ninguna de las dos opciones funcionaba bien.
 
@@ -72,7 +72,7 @@ Santi miró la carretera hacia adelante.
 
 —¿Por qué ese?
 
-—Porque en ese supe exactamente en qué etapa podría haber atacado y no lo hice. —Pausa—. La caída no te deja saber qué podrías haber hecho. El puesto ochenta y cuatro sí.
+—Porque en ese supe exactamente en qué etapa podría haber atacado y no lo hice. —Lo dijo mirando el asfalto, no a Santi, como si la frase fuera más para él mismo que para nadie más—. La caída no te deja saber qué podrías haber hecho. El puesto ochenta y cuatro sí.
 
 ---
 
@@ -208,7 +208,7 @@ Pieter parpadeó. Hablaba inglés con el cuidado de quien construye la frase ant
 
 —Eso vale más que no frenar —dijo Clarke.
 
-Bart terminó con los antebrazos y pasó a los cuádriceps. La presión era distinta ahí —más profunda, más lenta, el tipo de masaje que trabaja el tejido muscular por debajo de la superficie y que duele de la manera correcta: con esa incomodidad que el cuerpo reconoce como productiva.
+Bart terminó con los antebrazos y pasó a las piernas. La presión era distinta ahí —más profunda, más lenta— pero lo que Santi notó no fue el dolor sino su ausencia en lugares donde esperaba encontrarlo: la zona baja de la espalda, que después de tres horas de pavés debería haber protestado y no lo hacía. Todavía no. Eso también era información.
 
 Santi miró el techo.
 
@@ -238,12 +238,10 @@ Santi miró el reloj de la pared. Las cuatro y cuarenta.
 
 Veinte minutos después, con las piernas todavía pesadas del entrenamiento y el olor a lubricante de cadena en la ropa, Santi estaba en la cola de la frituur de la calle detrás de la plaza de Waregem, entre una señora con bolsa de la compra y dos adolescentes con bicicletas, esperando un cono de patatas fritas con salsa andalouse que Pieter le había asegurado que era mejor que cualquier cosa que hubiera comido en Bélgica hasta ese momento.
 
-Tenía razón.
+Tenía razón. La salsa andalouse le quedó en los dedos y se los chupó uno por uno, ahí mismo, parado en la calle, sin que le importara quién lo viera.
 
 Llevaba veintidós días en Bélgica.
 
-Todavía notaba Flandes. Todavía extrañaba Colombia.
+Todavía notaba Flandes. Todavía extrañaba Colombia. Pero el cono de cartón vacío en la mano, el frío de la tarde entrando por el cuello del abrigo, las luces de la frituur encendiéndose detrás de él porque ya eran las cinco y media: nada de eso le pareció, en ese instante exacto, ajeno.
 
-Pero algo en los adoquines —en la manera en que el cuerpo había encontrado, a mitad del segundo sector, el equilibrio entre controlar y soltar— le decía que tres semanas era, quizás, un plazo razonable.
-
-Quizás.
+Quizás tres semanas, después de todo, no era tan optimista.

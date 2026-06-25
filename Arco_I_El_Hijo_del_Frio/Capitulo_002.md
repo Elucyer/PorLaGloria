@@ -52,7 +52,7 @@ Luego la caída y la rodilla y el dolor y las lágrimas que no llegaron porque S
 
 —Sí.
 
-—Mentiroso.
+Hernando le miró la rodilla, el hilo de sangre que ya le bajaba hasta el tobillo, y no dijo mentiroso ni nada parecido. Se quedó ahí, en cuclillas, un segundo de más.
 
 —Quiero intentarlo otra vez.
 
@@ -102,24 +102,18 @@ Hernando no respondió de inmediato. Miró el tinto, lo movió un poco en el poc
 
 —Porque cuando yo subía una montaña, pensaba en no quedarme atrás. Cuando él sube, piensa en llegar primero.
 
-Carmen lo miró. Luego miró hacia el cuarto donde dormía su hijo.
+Carmen lo miró. Luego miró hacia el cuarto donde dormía su hijo, y se quedó ahí un momento, como midiendo algo que no estaba en la cocina sino más allá de la pared.
 
-—Ojalá —dijo.
+—Ojalá —dijo, y se levantó a lavar el pocillo aunque todavía tenía tinto.
 
-Y no dijeron más, porque en San José de la Montaña la gente aprendía pronto que ciertas cosas se dañan si uno les habla demasiado. Los sueños, por ejemplo. Los sueños necesitan silencio para crecer.
+No dijeron más. En San José de la Montaña la gente aprendía pronto que ciertas cosas se dañan si uno les habla demasiado.
 
 ---
 
 Esa noche, en su cuarto, Santi no dormía.
 
-Escuchaba la lluvia en el tejado de zinc —ese repiqueteo constante y cambiante que era la música de fondo de su infancia— y pensaba en la subida de esa mañana. En el punto exacto donde su padre lo había dejado atrás. En los metros que lo separaban de ese punto. En cómo reducir esos metros.
+Escuchaba la lluvia en el tejado de zinc —ese repiqueteo constante y cambiante que era la música de fondo de su infancia— y repasaba la subida de esa mañana, el punto exacto donde su padre lo había dejado atrás, los metros que lo separaban de ese punto, como quien repasa una cuenta que todavía no le cierra. Afuera la niebla cubría San José de la Montaña con su manto habitual, indiferente y paciente, y en algún potrero cercano una vaca mugió una sola vez y se quedó callada.
 
-Afuera la niebla cubría San José de la Montaña con su manto habitual, indiferente y paciente.
-
-Adentro, un niño de ocho años estaba aprendiendo, sin saberlo todavía, que la distancia entre lo que uno es y lo que uno quiere ser no se mide en kilómetros sino en la disposición de levantarse cada vez que la carretera te tira al suelo.
-
-El tejado cantaba.
-
-Santi cerró los ojos.
+El tejado seguía cantando cuando por fin cerró los ojos. La rodilla, debajo de la curita que le había puesto su madre sin decir palabra, todavía le ardía un poco.
 
 Mañana volvería a intentarlo.

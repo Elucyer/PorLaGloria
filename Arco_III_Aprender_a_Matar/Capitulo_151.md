@@ -62,11 +62,7 @@ El corredor del Jumbo-Visma subió al mismo ritmo durante dos kilómetros.
 
 Dos kilómetros al mismo ritmo exacto — no el ritmo de seguir a Santi, sino el ritmo propio del corredor que tiene su sesión planificada y que en el kilómetro doce del Veleta resulta ser el mismo ritmo que el de Santi.
 
-Cinco metros entre los dos.
-
-Cuatro.
-
-Tres.
+El hueco entre los dos se cerraba sin que Santi tuviera que mirar atrás — lo midió por el sonido, por cómo el siseo de la otra rueda pasaba de fondo a presencia en cuestión de segundos.
 
 El corredor del Jumbo-Visma a la rueda de Santi en el kilómetro catorce.
 
@@ -86,9 +82,7 @@ Santi lo sintió más que lo vio.
 
 El sonido de las ruedas en el asfalto del Veleta — el corredor de atrás que no cede terreno, que absorbe el incremento con la naturalidad del corredor que tiene más de lo que está mostrando.
 
-Cuatro metros.
-
-Cuatro metros entre los dos al kilómetro quince del Veleta.
+Cuatro metros, calculó Santi por el tiempo que tardó el eco de la otra rueda en alcanzarlo — tres segundos, ni uno más, al kilómetro quince del Veleta.
 
 ---
 
@@ -96,25 +90,23 @@ En el kilómetro dieciséis, Santi incrementó de verdad.
 
 No el incremento de reconocimiento — el incremento que en las carreras usaba para abrir brechas, el que en el Grand Colombier y en el Moncalvillo y en el Angliru separaba a los que podían de los que no.
 
-El corredor del Jumbo-Visma tardó.
+El corredor del Jumbo-Visma tardó dos segundos en reaccionar — el tiempo justo para que el hueco se abriera del tamaño de una moto a el de un carro pequeño.
 
-Uno.
+Y después el sonido de las ruedas de nuevo — el corredor de atrás cerrando la distancia en veinte pedaladas, volviendo al mismo punto, sosteniéndolo como si nunca se hubiera abierto.
 
-Dos segundos.
-
-Cuatro metros que se convirtieron en ocho.
-
-Y después el sonido de las ruedas de nuevo — el corredor de atrás cerrando los ocho metros en los siguientes veinte pedaladas, volviendo a los cuatro metros, sosteniéndolos.
-
-Cuatro metros.
-
-Santi lo dejó ahí.
+Ahí seguía, pegado, cuando Santi dejó de forzar.
 
 No atacó de nuevo — el plan de Rusconi terminaba en el kilómetro diecisiete, la cima estaba a cuatro kilómetros más y el campo base no era una carrera.
 
 En el kilómetro diecisiete, Santi frenó.
 
 El corredor del Jumbo-Visma pasó a su lado sin frenar — continuó hacia la cima con el ritmo del corredor que tiene su propio plan y que en el kilómetro diecisiete no termina sino que sigue.
+
+Al pasar, sin volver la cabeza del todo, dijo algo en un inglés tan comprimido que Santi tardó un segundo en procesarlo:
+
+— Buen ritmo.
+
+Dos palabras. Las únicas que el danés gastó en toda la mañana, y las dijo mirando la carretera, no a Santi — como si el elogio, para tener algún valor, no necesitara la cara de quien lo decía.
 
 Santi lo vio alejarse.
 
@@ -155,6 +147,10 @@ No dijo nada.
 *2.º Tour 2020.*
 
 *No miró.*
+
+*Dijo dos palabras en todo el día. "Buen ritmo." Mirando la carretera, no a mí.*
+
+*El que habla menos no es el que tiene menos que decir.*
 
 *Cerró el cuaderno.*
 

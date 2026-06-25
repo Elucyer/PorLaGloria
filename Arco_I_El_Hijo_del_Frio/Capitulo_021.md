@@ -42,7 +42,7 @@ Ospina lo miró.
 
 —Conocer y estudiar no es lo mismo —dijo Ospina—. Lo que sabés de Ríos es de una clásica de un día y de una vuelta de dos etapas. Esto es ocho etapas. Vas a ver cosas en el día seis que no existen en el día uno.
 
-Santi anotó: *No el favorito. El que estudia al favorito.*
+Santi anotó la frase y se quedó mirándola un rato, hasta que las letras dejaron de significar algo nuevo y volvieron a ser solo tinta: *No el favorito. El que estudia al favorito.*
 
 ---
 
@@ -88,9 +88,9 @@ Mejía pensó en eso.
 
 —Que Ríos tarda cuatro segundos en responder un ataque desde su propia rueda. Y que cuando vuelve al límite después del esfuerzo de responder, hay unos treinta segundos donde todavía está frágil.
 
-Mejía lo miró. Luego anotó algo.
+Mejía lo miró un segundo de más, como hacía siempre que algo le interesaba más de lo que dejaba ver. Luego anotó algo, sin prisa, con esa letra apretada que usaba solo para lo importante.
 
-—No atacar en el momento del umbral —dijo—. Atacar en el momento de la respuesta al umbral.
+—No atacar en el momento del umbral —dijo, midiendo cada palabra como si las cobrara—. Atacar en el momento de la respuesta al umbral.
 
 —Exacto.
 
@@ -104,9 +104,7 @@ Veintiocho kilómetros en terreno llano con viento cruzado del sur, condiciones 
 
 El año anterior, en la Clásica del Café, la diferencia con Ríos había sido de un minuto cuarenta y siete. Ahora era un minuto treinta y dos. Quince segundos de mejora en cuatro meses de trabajo específico. La dirección era correcta.
 
-Pero en el Puerto de Boyacá, en agosto, la contrarreloj no existía. Lo que existía era la montaña.
-
-*Cuatro meses*, escribió debajo.
+Pero en el Puerto de Boyacá, en agosto, la contrarreloj no existía. Lo que existía era la montaña, y Santi se durmió esa noche pensando en eso, en la diferencia entre un crono que se mide en segundos contra el reloj y una subida que se mide en lo que el cuerpo del rival decide darle al otro.
 
 ---
 
@@ -137,7 +135,7 @@ En la reunión del equipo, Mejía dibujó el perfil:
 
 —Porque cuando un corredor llega a su umbral y lo mantiene un tiempo, la respuesta al siguiente ataque tarda más que la respuesta normal. Los treinta segundos son el tiempo que necesita para sentir que aguanta. Cuando lo sienta, ya no tiene margen real para responder.
 
-Santi anotó: *Treinta segundos después del umbral.*
+Santi anotó la frase y la subrayó dos veces, con esa fuerza de quien quiere que las palabras se le queden grabadas en la mano y no solo en la página: *Treinta segundos después del umbral.*
 
 ---
 
@@ -357,7 +355,7 @@ Santi lo procesó sin decir nada. Tomó el bidón que Mejía le extendió. Bebi�
 
 Ríos cruzó la meta cincuenta y tres segundos después con la cara de quien ha corrido al límite y no encontró más. Se detuvo. Los dos se miraron desde la distancia de veinte metros que los separaban sin que nadie los pusiera en posición todavía.
 
-No había mucho que decirse. La carrera lo había dicho.
+Ríos se dio media vuelta y caminó hacia su bicicleta sin decir nada más, arrastrando un poco los tacos contra el asfalto, y eso fue toda la conversación que hizo falta.
 
 ---
 
@@ -401,6 +399,4 @@ Cerró la libreta.
 
 Fuera, Colombia pasaba en la oscuridad —los cafetales del Quindío, los potreros del Valle, las luces de los pueblos que a esa hora todavía tenían gente en los parques. El bus rodaba hacia Medellín y Santi miraba sin ver, con la cabeza en agosto, en el Puerto de Boyacá, en los treinta y dos kilómetros que en cuatro meses iban a decir si lo que había aprendido en el Alto del Vino era suficiente para lo que venía.
 
-No lo sabía todavía.
-
-Eso era parte de la respuesta.
+No lo sabía todavía. Apoyó la frente contra el vidrio frío de la ventana y dejó que el traqueteo del bus le subiera por la mandíbula, y se quedó así, sin pensar en nada concreto, hasta que el sueño lo alcanzó antes que cualquier respuesta.

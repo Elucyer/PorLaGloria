@@ -18,7 +18,7 @@ No la nieve de la llegada — la nieve de la noche anterior que había dejado lo
 
 El briefing de la mañana fue a las ocho.
 
-Ferretti con el tablet. Los ocho corredores de la Vuelta.
+Ferretti con el tablet. Los ocho corredores de la Vuelta. Luca Arnheim no estaba entre ellos — el alemán seguía en Girona, en la base del equipo, en su propio bloque de entrenamiento de fondo que Rusconi le había diseñado para el invierno — pero Rusconi había mandado, esa misma mañana, los datos de su última sesión de intervalos en el rodillo, y Ferretti los había mirado antes del briefing sin comentarlos con nadie.
 
 — La etapa de hoy — dijo Ferretti — tiene tres puertos. El Petralba, el Cotefablo, y el Formigal. Los dos primeros son de preparación — el pelotón los va a usar para seleccionar y para medir. El Formigal es la carrera. — Pausa. — El Formigal tiene 26,7 kilómetros. Los primeros 22 kilómetros al 3,39% de media — terreno de rodador en pendiente moderada, donde los equipos van a trabajar y van a controlar. Los últimos 3,8 kilómetros al 6,8%, con la llegada a 1.790 metros en Aramón Formigal. — Pausa. — Ese tramo final es el Formigal. Ahí se decide.
 
@@ -111,6 +111,8 @@ Vingegaard tiró hasta ese kilómetro.
 El danés que en el kilómetro veintidós cedió — no el cuerpo que se rompe sino el cuerpo del gregario que ha hecho su trabajo hasta donde tenía que hacerlo y que en el último tramo de 3,8 kilómetros dejaba el liderato al corredor que tenía que llevar.
 
 Roglič tomó la cabeza.
+
+No dijo nada al pasar a la cabeza del grupo — ni una mirada a los otros cuatro, ni el gesto de quien necesita anunciar que manda. Simplemente puso el ritmo, la economía del corredor que ya ha ganado esta carrera dos veces y que no necesita gastar energía en gestos.
 
 Los cinco restantes — Roglič, Carapaz, Mas, Santi, Carthy — en el kilómetro veintidós del Formigal, con 3,8 kilómetros al 6,8% hasta la estación de Aramón.
 
@@ -226,7 +228,11 @@ La primera etapa de la Vuelta a España 2020.
 
 Roglič cruzó tres segundos después.
 
-Carapaz a seis segundos.
+No buscó la cámara. Se quitó los guantes despacio, dedo por dedo, la mirada baja — el gesto del corredor que pierde una etapa por tres segundos y lo procesa como un dato más, sin la necesidad de explicarlo a nadie. Había ganado dos Vueltas. Sabía que tres segundos en la etapa 6 no son nada si el cálculo de las dieciocho etapas sigue siendo suyo.
+
+Carapaz a seis segundos. Llegó sonriendo a pesar del esfuerzo, sacudiendo la cabeza con el gesto de quien reconoce que el otro fue mejor hoy sin que eso le quite el sueño.
+
+— Otra vez vos — le dijo a Santi, todavía sin aire, extendiendo la mano enguantada.
 
 ---
 
@@ -242,11 +248,7 @@ Santi lo escuchó.
 
 — Mañana — dijo Rusconi — es la etapa siete. Vitoria-Gasteiz a Villanueva de Valdegovía. Ondulada. 159 kilómetros. — Pausa. — El cuerpo al noventa. La primera semana de montaña dijo lo que tenía que decir.
 
-Ferretti llegó.
-
-No dijo nada.
-
-Le puso la mano en el hombro durante dos segundos.
+Ferretti llegó y le puso la mano en el hombro durante dos segundos, sin una palabra, el guante todavía frío contra el maillot mojado de Santi.
 
 El gesto del director deportivo italiano que en veinte años de ciclismo había aprendido que los momentos donde las palabras no añaden nada son exactamente los momentos donde hay que guardar silencio.
 

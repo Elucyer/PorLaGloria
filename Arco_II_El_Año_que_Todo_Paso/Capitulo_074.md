@@ -177,7 +177,7 @@ Fue la palabra de siempre. El tono de siempre. Nada en la voz de Hernando que Sa
 
 — Bien — dijo Hernando.
 
-Y colgaron.
+Santi guardó el teléfono sin que ninguno de los dos hubiera dicho nada más.
 
 Del lado de Santi: la ventana del hotel de Cossonay, el Jura al norte, la oscuridad del valle.
 

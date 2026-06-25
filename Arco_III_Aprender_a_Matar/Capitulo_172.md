@@ -154,6 +154,8 @@ Santi se rió.
 
 Bernal lo miró un momento, procesando la frase —y después sonrió, una sonrisa que reconocía, sin decirlo, que Santi tenía razón.
 
+*Santi pensó, mientras bajaba del podio, que con Bernal las cosas siempre quedaban dichas así: medidas, contenidas, una frase exacta y nada más. Con Pogačar habría sido distinto. El esloveno no se guardaba la mitad de lo que pensaba esperando el momento correcto — lo decía apenas se le ocurría, sin filtro de prensa, y Santi ya sabía, sin tener que comprobarlo en Francia, que en julio el esloveno le iba a decir en la cara exactamente cuánto le dolía cada segundo perdido.*
+
 ---
 
 

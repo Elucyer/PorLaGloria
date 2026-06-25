@@ -22,7 +22,9 @@ Santi la sacó de la caja. La sostuvo por el manillar durante un momento.
 
 Era demasiado buena para él en ese momento —en el sentido de que él todavía no era el corredor que esa bicicleta merecía. Pero la iban a ver en Francia. Y eso también era algo.
 
-Su madre dijo que debían llamar a su padre para que la viera antes de empacarla. Lo llamaron. Hernando llegó en veinte minutos desde el taller y la miró sin decir mucho —pasó los dedos por el tubo del sillín, por las letras blancas— y luego dijo que era buena geometría para escalador y que los rombos de Colnago los hacían así desde los años setenta y que eso no cambiaba porque algo bueno no necesita cambiar.
+Su madre dijo que debían llamar a su padre para que la viera antes de empacarla. Lo llamaron. Hernando llegó en veinte minutos desde el taller con grasa todavía bajo dos uñas y la miró sin decir mucho —pasó los dedos por el tubo del sillín, por las letras blancas, se detuvo un segundo de más en la S— y luego dijo que era buena geometría para escalador y que los rombos de Colnago los hacían así desde los años setenta. Eso no cambiaba. Algo bueno no necesita cambiar.
+
+Se quedó un rato más de lo necesario mirando la caja abierta sobre la mesa del comedor. Después se fue, sin abrazar a nadie, con las manos todavía olorosas a solvente.
 
 Santi la empacó esa misma noche.
 
@@ -34,17 +36,17 @@ Santi los conocía a todos —o los conocía de verlos en carrera, que no es exa
 
 **Egan Bernal** era el primero que Santi reconocería en cualquier sala oscura del mundo: esa figura delgada, la espalda ligeramente inclinada hacia adelante incluso cuando estaba de pie y sin bicicleta, los ojos que miraban con esa calma de quien ya ha ganado suficientes veces para saber que la calma es una forma de preparación y no de relajación. Veinte años, de Zipaquirá, campeón de la Vuelta del Porvenir del año anterior y del Tour de Lombardía sub-23 en mayo. Lo nombraban como el mejor escalador joven del mundo y él lo sabía y no hacía nada particular con ese conocimiento. Viajaba con una mochila pequeña y unos audífonos que se quitó para saludar a Santi con un apretón de mano breve.
 
-—¿Primera vez en Europa? —preguntó.
+—¿Primera vez en Europa? —preguntó, sin alzar mucho la voz, como quien pregunta algo que ya conoce la respuesta.
 
 —Sí.
 
-—La primera semana es rara —dijo Bernal—. Después pasa.
+—La primera semana es rara. —Una pausa larga, de las suyas—. Después pasa.
 
-No dijo qué pasaba exactamente después. Se puso los audífonos de nuevo.
+No dijo qué pasaba exactamente después. Se puso los audífonos de nuevo y miró un punto en la pared, como si ya estuviera en la carretera.
 
 **Camilo Torres** era de Duitama —veintidós años, tercer año en la selección nacional sub-23, la única persona del grupo que había corrido el Avenir antes. Llevaba una semana en Bogotá haciendo trámites de visas y se notaba en el cansancio de los ojos. Era alto para ciclista —un metro ochenta, setenta y dos kilos, los piñones del lado plano porque en los llanos era donde rendía más. Gregario puro. La clase de corredor que trabaja ciento setenta kilómetros para que otro gane los últimos veinte y se considera satisfecho si el trabajo estuvo bien hecho.
 
-—¿Sos el de la Juventud? —le preguntó a Santi.
+—¿Sos el de la Juventud? —le preguntó a Santi, con el tono plano de quien hace catálogo, no conversación.
 
 —Sí.
 
@@ -52,17 +54,17 @@ No dijo qué pasaba exactamente después. Se puso los audífonos de nuevo.
 
 —Funcionó.
 
-—Esta vez los ataques tempranos no funcionan —dijo Torres sin crueldad, solo como información—. Aquí los europeos responden diferente.
+—Acá los ataques tempranos no funcionan. —Lo dijo sin crueldad, como quien lee un dato de un cuaderno—. Los europeos responden diferente. Te dejan ir, te miran, y a los cuarenta kilómetros ya estás caminando.
 
 **Felipe Morales** tenía veintiún años y era de Manizales. Cabello oscuro y abundante, la sonrisa fácil, los brazos más gruesos que los del promedio ciclista porque de niño había cargado sacos de café en la finca de su tío y el cuerpo guardaba esas memorias en los músculos aunque la carretera ya no lo pidiera. Puncher —esa categoría de corredor que no sube con la ligereza de los escaladores puros ni gana en los sprints masivos sino que es letal en los repechos cortos y violentos. No sería factor en los Alpes pero en las etapas bretonas sería una amenaza permanente en las escapadas.
 
-—Primera vez afuera —dijo Morales cuando lo supo, y no como pregunta sino como constatación, y luego—: A mí también me pasó. Llegás y todo parece igual que aquí pero no es igual. Es difícil explicarlo.
+—Primera vez afuera —dijo Morales, riéndose un poco de su propia obviedad, y no como pregunta sino como constatación—. A mí también me pasó. Llegás y todo parece igual que aquí pero no es igual. Es difícil explicarlo, hermano.
 
 —¿En qué no es igual?
 
-Morales pensó un momento.
+Morales se rascó la nuca, pensando, como si buscara la palabra en otro idioma.
 
-—En que allá no hay nadie que te conozca. Aquí en Colombia si caés en una carretera siempre hay alguien que sabe quién sos. Allá sos nadie. Eso es bueno y malo al mismo tiempo.
+—En que allá no hay nadie que te conozca. Aquí en Colombia si caés en una carretera siempre hay alguien que sabe quién sos. Allá sos nadie. —Se rió otra vez, sin ganas—. Eso es bueno y malo al mismo tiempo.
 
 **Andrés Valencia** era de Bogotá —veintidós años, corredor de fondo, buenas cifras en contrarreloj para ser escalador, el tipo de corredor que en los equipos profesionales se convierte en gregario de lujo porque puede trabajar en llano y sobrevivir en montaña sin explotar. Llevaba los últimos meses en un equipo continental europeo —cedido por la federación a un equipo belga de segunda división— y había aterrizando en Bogotá solo cuatro días antes para los trámites finales. Hablaba francés con acento pero lo hablaba, y eso en los próximos días iba a valer más de lo que parecía.
 
@@ -76,7 +78,7 @@ Los seis se sentaron en la sala de embarque, entre las cajas de bicicletas y el 
 
 —No. Pero así me imagino que es Escocia.
 
-Santi miró las fotos. Guardó las fotos en la memoria donde guardaba las cosas que iba a necesitar después.
+Santi miró las fotos un rato más de lo que hacía falta, hasta que la pantalla se apagó sola.
 
 ---
 
@@ -86,9 +88,9 @@ Loudéac era Bretaña: una ciudad pequeña en el interior de la región, rodeada
 
 Santi no durmió bien la primera noche. No por el desfase sino por la ventana: abrió las persianas a las tres de la madrugada y vio Francia —los tejados de pizarra gris, la calle mojada por una lluvia que había caído sin que él la oyera, un semáforo parpadeando en amarillo para nadie— y el lugar donde estaba se le presentó con una concreción que el viaje en avión había mantenido abstracta. Estaba en Francia. A más de nueve mil kilómetros de Medellín. A más de nueve mil kilómetros de su padre que esa noche estaba en el apartamento de Floresta durmiendo —o no durmiendo, porque Hernando Reyes tampoco dormía bien las noches en que Santi hacía algo importante.
 
-Cerró la persiana. Se volvió a acostar.
+Cerró la persiana. Se volvió a acostar y se quedó mirando el techo, donde la luz del semáforo seguía pasando, ámbar, apagada, ámbar, a través de una rendija que no había logrado cerrar del todo.
 
-Durmió cuatro horas.
+Durmió cuatro horas. Soñó con algo que al despertar ya no pudo nombrar.
 
 ---
 
@@ -120,7 +122,7 @@ Luego Colombia.
 
 El presentador dijo el nombre de Bernal y el público aplaudió con el respeto que se le da a quien ya ganó. Dijo los nombres de Torres, Morales, Valencia, Cardona. Luego dijo: *Santiago Reyes, dix-sept ans, Colombia.* Diecisiete años. Lo dijo como una curiosidad, como un dato de color, como el tipo de información que la gente repite a su vecino.
 
-Para Santi era nada en particular.
+Para Santi era nada en particular. Levantó la mano cuando dijeron su nombre, como le habían dicho que hiciera, y la bajó.
 
 Tenía diecisiete años. Era un dato, no una condición.
 
@@ -128,7 +130,7 @@ Tenía diecisiete años. Era un dato, no una condición.
 
 Ospina, que no iba —no era parte del cuerpo técnico de la selección nacional y su presupuesto personal no alcanzaba para un viaje a Francia— lo había llamado esa misma noche, después de la presentación.
 
-—Una cosa —dijo.
+—Una cosa —dijo, y se quedó callado un momento, como ordenando las palabras antes de soltarlas todas de un golpe, que era su manera de hablar por teléfono.
 
 —Diga.
 
@@ -136,15 +138,15 @@ Ospina, que no iba —no era parte del cuerpo técnico de la selección nacional
 
 —¿En qué es distinto?
 
-—En todo. La velocidad en los llanos es distinta. La manera en que los equipos europeos controlan la carrera es distinta. Los ritmos de subida son distintos —no más duros, diferentes. Aquí en Colombia subimos con potencia explosiva. Allá el ritmo es más regular, más largo. Si subes como subes aquí, te vas a reventar en el kilómetro quince de cualquier puerto europeo.
+—En todo. —Y entonces sí habló largo, sin pausas, como descargando algo que llevaba guardado desde que supo de la convocatoria—. La velocidad en los llanos es distinta. La manera en que los equipos europeos controlan la carrera es distinta. Los ritmos de subida son distintos, no más duros, diferentes. Aquí en Colombia subimos con potencia explosiva. Allá el ritmo es más regular, más largo. Si subís como subís aquí, te vas a reventar en el kilómetro quince de cualquier puerto europeo.
 
 Santi consideró esto.
 
 —¿Y la segunda semana?
 
-Ospina hizo una pausa.
+Ospina hizo una pausa larga, de esas que por teléfono se sienten más largas todavía.
 
-—La segunda semana haz lo que tengas que hacer.
+—La segunda semana hacés lo que tengás que hacer.
 
 ---
 
@@ -170,4 +172,4 @@ Al final de la sexta etapa estaba decimocuarto en la clasificación general, a t
 
 Los Alpes arrancaban mañana.
 
-La carretera plana había dicho lo suyo. Lo que quedaba lo diría todo lo demás.
+Esa noche, en el cuarto del hotel, Santi sacó el mapa de la etapa siete y lo dejó abierto sobre la cama mientras se duchaba. Cuando volvió, el papel seguía ahí, con la línea del puerto subrayada por alguien —él mismo, unas horas antes, sin acordarse de haberlo hecho.

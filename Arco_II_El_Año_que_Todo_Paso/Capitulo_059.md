@@ -49,7 +49,7 @@ En el kilómetro noventa y cinco, con los últimos collados antes de la base del
 
 ---
 
-No fue un ataque de veinte vatios. Fue un ataque real — el tipo de aceleración que un corredor hace cuando ha esperado noventa y cinco kilómetros y sabe que le queda una sola oportunidad y que esa oportunidad es ahora.
+Era un ataque real, no uno de veinte vatios para tantear el grupo — el tipo de aceleración que un corredor hace cuando ha esperado noventa y cinco kilómetros y sabe que le queda una sola oportunidad y que esa oportunidad es ahora.
 
 El español se fue.
 

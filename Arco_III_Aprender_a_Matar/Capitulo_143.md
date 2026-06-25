@@ -112,9 +112,7 @@ El narrador:
 
 Hernando tomó el café.
 
-Bebió.
-
-No dijo nada.
+Bebió, los ojos fijos en la pantalla, el vapor subiendo entre él y la imagen del hijo todavía en el suelo.
 
 Carmen detrás, de pie, con la mano todavía en el respaldo de la silla de Hernando.
 
@@ -310,7 +308,7 @@ El primer timbre.
 
 — Contusión — dijo Santi. — Y la cadera. Hematoma en el trocánter.
 
-Silencio.
+Hernando dejó pasar el ruido de fondo del hotel, las voces de otro idioma cruzando detrás de Santi.
 
 — ¿Fractura?
 
@@ -334,11 +332,9 @@ Hernando procesó.
 
 — El Angliru lo veo cuando llegue al Angliru — dijo Santi.
 
-Silencio.
+Hernando dejó el silencio extenderse un momento, el auricular contra la oreja, la lluvia ya empezando a sonar contra el barandal del balcón.
 
-Después Hernando:
-
-— Bien.
+— Andá a dormir — dijo Hernando.
 
 Y colgó.
 

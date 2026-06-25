@@ -328,7 +328,9 @@ Yates no respondió.
 
 Lo que le pasó a Simon Yates en el kilómetro doce de Prato Nevoso fue algo que los comentaristas iban a describir con la palabra *crack* — la misma palabra que se usa en todos los idiomas del ciclismo para el momento en que el cuerpo de un corredor que lleva demasiado tiempo en el límite decide que el límite se acabó. No es una decisión del corredor. Es una decisión del cuerpo que ocurre por encima de la voluntad, con la indiferencia de una ley física.
 
-Santi no lo vio ocurrir porque ya estaba a diez metros de Yates siguiendo la rueda de Froome.
+Las cámaras de la moto, que durante trece etapas habían perseguido la espalda angosta de Yates atacando con esa fe ciega de quien nunca calcula del todo, esa vez encontraron otra cosa: la boca abierta, la barbilla cayendo hacia el pecho, los ojos que durante dos semanas habían mirado la carretera con la hambre del que va ganando y que ahora miraban hacia abajo, hacia el manillar, como si la respuesta a lo que estaba pasando pudiera estar escrita ahí. No hubo gesto de rabia. No hubo golpe al manillar ni maldición que las cámaras pudieran captar en el labio. Solo el cuerpo de un corredor de veinticinco años descubriendo, en tiempo real y delante de media Europa, que el instinto que lo había llevado hasta la maglia rosa —ese atacar sin medir, ese ir siempre al límite sin guardar nada para el día después— no sabía cómo gestionar el momento en que el límite ya se había cruzado dos kilómetros antes.
+
+Santi no lo vio ocurrir porque ya estaba a diez metros de Yates siguiendo la rueda de Froome. Lo que vio, en el medio segundo que duró la mirada hacia atrás antes de concentrarse de nuevo en Froome, fue una silueta que ya no pedaleaba como pedaleaba Yates — los hombros caídos hacia delante, la bicicleta zigzagueando un metro hacia la izquierda y luego hacia la derecha, el cuerpo entero de un corredor que un kilómetro atrás iba ganando el Giro y que ahora simplemente intentaba seguir moviéndose.
 
 Lo supo cuando Ferretti dijo:
 
@@ -399,6 +401,8 @@ Ferretti llegó en el coche dos minutos después. Bajó. Fue directo a Santi. No
 Dijo:
 
 —Yates llegó un minuto cuarenta y tres atrás.
+
+Alguien —uno de los fotógrafos italianos que llevaba toda la carrera buscando el plano que vendiera la portada del día siguiente— había capturado a Yates cruzando la línea de Prato Nevoso: el inglés con la cabeza colgando sobre el manillar, sin manta de aluminio todavía, sin nadie cerca, mirando el asfalto con la expresión de alguien que todavía no entendía del todo lo que el cuerpo le había hecho. No buscó la cámara. No habló con nadie en los primeros minutos después de cruzar. Esa imagen iba a estar en la Gazzetta dello Sport al día siguiente con una sola palabra de titular, y la palabra no iba a ser amable.
 
 Santi lo miró.
 
@@ -532,7 +536,7 @@ El silencio del otro lado tenía esa textura que Santi había aprendido a leer e
 
 —Estoy —dijo Hernando. No *estoy bien*. Solo *estoy*.
 
-Era suficiente.
+Santi no insistió. Sabía leer la diferencia.
 
 —Mañana hay una etapa —dijo Santi.
 

@@ -108,7 +108,7 @@ Santi escuchó los nombres.
 
 Higuita y Rubio — el primero del EF Pro Cycling, el segundo del equipo Movistar. Los dos corredores colombianos de su generación que en el pelotón profesional habían demostrado que podían servir en alta montaña sin depender de un líder para decidir.
 
-— Bien — dijo Santi.
+Santi anotó los dos nombres en el cuaderno, sin comentario.
 
 Y no dijo más.
 
@@ -153,6 +153,8 @@ El Monte Fuji en 284 días.
 *Debajo, una lista:*
 
 *Roglič + Pogačar (Eslovenia). Van Aert + Van der Poel (Bélgica). Vingegaard + Fuglsang (Dinamarca). Alaphilippe (Francia). Carapaz (Ecuador).*
+
+*Pogačar en una carrera de un día, sin equipo de WorldTour detrás, solo con Roglič de compañero de selección: ese es el que hay que mirar primero. El que sonríe igual cuando gana que cuando pierde es el que no tiene miedo del resultado — y el que no tiene miedo del resultado ataca en cualquier kilómetro.*
 
 *Y al final:*
 

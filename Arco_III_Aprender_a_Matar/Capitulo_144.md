@@ -206,11 +206,9 @@ El narrador:
 
 En Laureles.
 
-Hernando miró la pantalla.
+Hernando miró la pantalla con el bolígrafo quieto en el aire, un centímetro sobre la página.
 
-No escribió nada.
-
-Carmen detrás, de pie, sin decir nada.
+Carmen detrás, de pie, la mano apretando el borde del sofá.
 
 Los cuatro corredores en el Moncalvillo abriéndose sobre Santi.
 
@@ -254,6 +252,10 @@ Dos.
 
 La cima del Moncalvillo — la línea de llegada de la etapa 8 de la Vuelta a España 2020 que Roglič cruzó primero, Vingegaard segundo, Carapaz tercero, Mas cuarto.
 
+Roglič no celebró. Cruzó con los brazos quietos sobre el manillar, la mirada ya puesta en el coche del equipo antes de que la rueda terminara de girar — el corredor que sabe que en una Vuelta de dieciocho etapas, una victoria parcial en la octava es un dato que se guarda, no un momento que se festeja.
+
+Carapaz, al llegar tercero, buscó con la mirada hacia atrás en la carretera, hacia el punto donde Santi había quedado solo. No dijo nada en ese momento — pero el gesto, breve, era el del corredor que en la montaña reconoce a otro corredor incluso cuando la carretera los separa.
+
 Santi llegó un minuto y cuarenta y seis segundos después.
 
 El narrador, cuando cruzó:
@@ -274,6 +276,18 @@ De segundo a quinto.
 
 En cuatro kilómetros de montaña con el hombro que no respondía.
 
+En la zona de equipos, antes de subir al bus, Carapaz se acercó al coche del FCV donde Santi esperaba con la manta térmica.
+
+— ¿El hombro? — preguntó en español, sin rodeos.
+
+— Va a estar mejor — dijo Santi.
+
+Carapaz asintió, le dio dos golpes con la palma abierta en la espalda, el gesto rápido de quien no necesita alargar la frase.
+
+— Quedan etapas, hermano. Andá a que te revisen.
+
+Se fue hacia su propio bus sin esperar respuesta.
+
 ---
 
 En Laureles, Hernando cerró el cuaderno.
@@ -286,7 +300,7 @@ Hernando lo tomó.
 
 Miraron la televisión juntos — el resumen de la etapa, el análisis de los comentaristas sobre la GC, las declaraciones de Roglič en la zona mixta sobre lo que esperaba de las etapas siguientes.
 
-Ninguno de los dos habló.
+Afuera, el tráfico de la tarde subía desde la avenida hasta el balcón, el rumor constante de la ciudad que no se detenía aunque la GC de la Vuelta se hubiera desmoronado en cuatro kilómetros.
 
 A las siete de la tarde, el teléfono.
 
@@ -296,9 +310,7 @@ Hernando contestó.
 
 — Perdí el podio — dijo Santi.
 
-Hernando no respondió de inmediato.
-
-El corredor al otro lado de la línea. El hotel de La Rioja. El hombro con el hielo. La cadera con el vendaje de presión que el Dr. Casado ponía cada noche.
+El corredor al otro lado de la línea. El hotel de La Rioja. El hombro con el hielo. La cadera con el vendaje de presión que el Dr. Casado ponía cada noche. Hernando dejó pasar el sonido de fondo, una puerta cerrándose en algún pasillo del hotel.
 
 — El cuerpo dijo lo que tenía para decir — dijo Hernando.
 
@@ -320,7 +332,7 @@ La misma respuesta de la noche del Artziniega.
 
 Santi la escuchó.
 
-— Bien — dijo Santi.
+— Ahí estaré — dijo Santi.
 
 Y colgó.
 

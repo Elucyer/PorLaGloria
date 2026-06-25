@@ -100,6 +100,8 @@ No como en el primer Giro, donde rodar era una forma de sobrevivir y de aprender
 
 El miércoles catorce de mayo, en la cuarta etapa, Tom Dumoulin cayó.
 
+Antes de la caída, Santi lo había visto rodar diez minutos a su lado en el tramo llano de la mañana — el holandés haciendo lo que hacía siempre en los kilómetros sin importancia táctica: hablar de números. Le había preguntado a Santi, sin preámbulo, a qué cadencia subía el Colle dell'Agnello en los entrenamientos de invierno, y cuando Santi respondió, Dumoulin hizo un cálculo mental visible en la cara —los ojos entrecerrados un segundo, la boca apretada— antes de decir: *Esa cadencia te va a costar en el último kilómetro, donde la pendiente cambia.* No era una advertencia amistosa ni una pulla. Era, simplemente, la costumbre de un corredor que procesaba el ciclismo de los demás con la misma rigurosidad analítica que el propio, incapaz de ver una cifra sin corregirla.
+
 No fue una caída espectacular. No fue una de esas caídas en cascada que en las etapas llanas del Giro atrapan a quince corredores a la vez. Fue una caída solitaria, en un cruce a ciento veinte kilómetros de la meta, en un tramo donde la carretera giraba ligeramente hacia la izquierda y el suelo estaba húmedo del rocío de la mañana. La rueda delantera se fue. Dumoulin cayó sobre la rodilla derecha con el peso de toda la velocidad que llevaba.
 
 Se levantó.
@@ -117,6 +119,8 @@ El pelotón siguió.
 En el ciclismo el pelotón siempre sigue.
 
 Esa tarde la etapa la ganó Carapaz — el ecuatoriano del Movistar que en el análisis de Duchêne había aparecido como peligroso en media montaña y que en los últimos quinientos metros de la subida final a Frascati mostró exactamente el tipo de explosividad que el análisis había calculado. No un corredor de resistencia sostenida. Un corredor de aceleraciones cortas y brutales, del tipo que en la montaña larga se agota antes del final pero que en los finales de media montaña donde los últimos tres kilómetros son el todo puede hacer exactamente lo que hizo hoy: arrancar, aguantar el arranque, cruzar la línea.
+
+Santi lo vio celebrar en la pantalla del autobús, en la repetición que pasaban mientras el equipo volvía al hotel. No fue una celebración ruidosa. Carapaz levantó los brazos el tiempo justo para que la cámara captara el gesto y después los bajó, como si la euforia fuera también algo que había que dosificar, igual que los vatios en una subida. En la entrevista posterior a la línea de meta, con el micrófono de RAI Sport todavía cerca de la cara, dijo dos frases en un italiano elemental y aprendido sobre la marcha —*Estoy feliz, dedico esto a mi país*— con la misma economía con la que atacaba: ni una palabra de más. Santi pensó, sin poder explicarse del todo por qué, que reconocía algo en esa manera de no gastar nada que no fuera estrictamente necesario.
 
 — Carapaz — dijo Ferretti esa noche, sin más.
 

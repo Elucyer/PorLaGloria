@@ -269,6 +269,8 @@ En el kilómetro ocho, los dos gregarios del Sky se soltaron — habían cumplid
 
 En el kilómetro nueve, Dumoulin perdió contacto.
 
+Santi lo vio caer atrás con la mirada fija en el ciclocomputador del manillar — no en la carretera, no en el grupo que se alejaba, sino en los números, como si la información pudiera todavía cambiar lo que el cuerpo ya había decidido. Era una manera de ceder que Santi no había visto antes: sin gesto, sin maldición, sin la cabeza que cae. El holandés procesaba la derrota como procesaba todo — analíticamente, registrando el dato para la noche, para el análisis con su entrenador, para el invierno en que iba a descomponer esta etapa vatio por vatio hasta encontrar exactamente dónde se le había escapado el Giro.
+
 En el kilómetro diez, López.
 
 Cuatro.
@@ -329,6 +331,8 @@ Santi respondió.
 
 Pozzovivo no respondió.
 
+El italiano se dejó ir sin drama, sin la cabeza que cuelga ni el cuerpo que se desploma sobre el manillar —simplemente dejó de pedalear al mismo ritmo, como quien suelta un peso que ya conoce de memoria. Llevaba dieciséis años en el pelotón profesional y sabía exactamente en qué punto de una etapa el cuerpo le iba a fallar mucho antes de que el cuerpo se lo confirmara con los hechos. No fue resignación lo que Santi le vio en la cara cuando lo pasó —fue algo más parecido a la aritmética: este año el quinto puesto, quizás el sexto, y eso bastaba para seguir firmando contratos, para seguir siendo el corredor pequeño y encorvado al que ningún equipo grande quería como líder pero que ningún equipo pequeño podía permitirse no fichar. Pozzovivo subiría el resto del Finestre solo, al ritmo que el cuerpo todavía le permitiera, sin nadie mirándolo, y eso —Santi lo entendería años después, no ese día— era también una forma de seguir en la carrera.
+
 En ese momento — en los tres segundos que Ferretti había mencionado esa mañana en el autobús — Santi tuvo que decidir. El cuerpo estaba al cincuenta y ocho, Froome estaba a diez metros y ganando, el polvo del sterrato llenaba el espacio entre los dos con esa cortina blanca que hacía que la distancia pareciera mayor y la velocidad menor de lo que eran.
 
 Tres segundos.
@@ -343,7 +347,7 @@ No importaba.
 
 Había respondido a la primera y única aceleración que importaba en este Giro.
 
-Froome lo miró una vez — solo una, un vistazo de medio segundo por encima del hombro izquierdo, la mirada del corredor que verifica que alguien ha respondido a su ataque y registra esa información para usarla más tarde. Luego volvió a mirar al frente.
+Froome lo miró una vez — solo una, un vistazo de medio segundo por encima del hombro izquierdo, la mirada del corredor que verifica que alguien ha respondido a su ataque y registra esa información para usarla más tarde. No hubo sorpresa en ese vistazo. Tampoco hostilidad. Fue la mirada de un hombre que lleva cinco Grandes Vueltas ganadas comprobando un dato en una libreta mental que llevaba veinte años llenando — *este también responde* — y archivándolo junto a los demás nombres que en algún momento de su carrera le habían hecho la misma pregunta sin palabras: *¿hasta dónde llegás?* Luego volvió a mirar al frente.
 
 El polvo. La grava. El cielo azul oscuro de los dos mil metros.
 
@@ -373,7 +377,7 @@ No hubo radio. Ferretti había dicho en el kilómetro uno del sterrato: *bien, s
 
 No hubo conversación entre los dos corredores.
 
-Froome no habló. Santi no habló. El idioma de ese tramo era el de la grava bajo las ruedas y el viento cruzado que llegaba del oeste y el silencio de los dos mil metros donde el aire es tan delgado que el sonido parece más cercano y más lejano al mismo tiempo.
+Froome no habló. Santi no habló. El idioma de ese tramo era el de la grava bajo las ruedas y el viento cruzado que llegaba del oeste y el silencio de los dos mil metros donde el aire es tan delgado que el sonido parece más cercano y más lejano al mismo tiempo. Solo una vez, en el descenso hacia Oulx, cuando una racha de viento cruzado obligó a los dos a corregir la trayectoria casi al mismo tiempo, Froome levantó la mano izquierda del manillar y señaló — sin mirar atrás, sin perder velocidad — el punto exacto de la curva donde el asfalto tenía una grieta que el mapa de carrera no marcaba. Fue un gesto de dos segundos. No era cortesía exactamente. Era el reflejo viejo de un corredor que llevaba una década señalando peligros a los compañeros de fuga, una costumbre que el cuerpo conservaba incluso cuando el de atrás no era compañero sino la amenaza más seria que tenía esa tarde para la maglia rosa.
 
 Santi seguía la rueda de Froome con la concentración de quien no puede permitirse perder el hilo ni un segundo. En el sterrato, perder la rueda no significaba solo perder tiempo — significaba perder la línea, la trayectoria limpia que Froome había encontrado entre los cantos rodados más gruesos y la grava más fina, la línea que era la diferencia entre veinte kilómetros por hora y diecisiete. En el sterrato, tres kilómetros por hora son una eternidad.
 

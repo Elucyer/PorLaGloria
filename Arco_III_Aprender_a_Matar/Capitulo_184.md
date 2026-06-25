@@ -57,6 +57,8 @@ Leyó la lista. La leyó dos veces.
 
 No era la lista que había imaginado cuando el año empezó — ni la de Ferretti, ni la de Rusconi, ni la suya propia. Era mejor en algunos lugares y peor en uno. El Giro había superado todo lo que se había proyectado. El Tour había quedado a dos segundos de lo que pudo ser. Los Juegos habían sido una sorpresa incluso para él.
 
+Pensó, sin proponérselo, en la frase de Pogačar en Saint-Émilion — *ni siquiera siento que gané* — y en cómo nunca había escuchado al esloveno decir nada parecido en una rueda de prensa oficial. Esas dos palabras de más, las que decía sin que nadie se las pidiera, eran las que terminaban definiendo a Pogačar más que cualquier resultado en una pantalla.
+
 Pero el Tour era el Tour.
 
 Y en el Tour, el que decidía la carrera era la crono. Siempre la crono.

@@ -215,6 +215,20 @@ Luego asintió.
 
 Y fue a la cocina a calentar la sopa que el médico había recomendado para las noches del primer ciclo — algo liviano, sin grasa, sin ácido — con el sonido de las palomas quietas afuera y el bus de la 30 pasando por la esquina y el cuatro de mayo entrando por la ventana con el frío de la noche de Medellín que en esta época del año era un frío suave, el frío de la ciudad que en la noche de mayo tiene siete grados en el termómetro pero que en la piel se siente como cinco porque la humedad del Valle de Aburrá convierte cada grado en un grado y medio.
 
+En la cocina, con la sopa todavía fría en la olla y el fósforo del fogón sin encender, Carmen se permitió un minuto.
+
+No de llanto — el llanto lo guardaba para los baños con la ducha abierta, donde el ruido del agua se llevaba el sonido antes de que llegara a ninguna parte. Esto era otra cosa: la cuenta que llevaba sola, sin que Hernando la viera hacerla, porque hacerla delante de él era darle un peso que él ya cargaba solo. Dieciséis días de saber y no decir. Tres semanas y media de Giro por delante. Un hijo que en este momento, a ocho mil kilómetros, estaba descorchando una botella de agua con gas en un hotel de Ginebra sin saber que su padre tenía dos manchas nuevas en un pulmón que ya le habían quitado un trozo en junio.
+
+Carmen no había elegido este lugar —el lugar de saber por los dos, de cargar la mitad de Hernando además de la suya— pero tampoco había elegido no estar ahí cuando Hernando se lo contó, sentada en la misma silla donde ahora no estaba sentada, hacía dieciséis días, con el oncólogo Urquijo hablando de estadios y de protocolos con la voz que los médicos reservan para las noticias que no se pueden dulcificar.
+
+Había una pregunta que se hacía todas las noches, sola, en esta cocina o en el baño con la ducha abierta, y que nunca le había hecho a Hernando porque sabía que él no tenía una respuesta mejor que la suya: *¿y si me equivoco guardando este silencio con él?*
+
+No tenía respuesta.
+
+Lo que tenía era la sopa, y el fósforo, y las manos que sabían encender el fogón aunque la cabeza estuviera en otra parte. Encendió el fogón. Puso la olla. Esperó a que el agua empezara a moverse, y mientras esperaba miró por la ventana de la cocina hacia el mismo parque que se veía desde el balcón, las mismas palomas quietas, la misma ciudad indiferente a lo que pasaba quince pisos más abajo de su propia vida.
+
+Cuando la sopa estuvo lista, se secó la cara con el paño de cocina —aunque no había llorado, el gesto era el mismo, una costumbre del cuerpo más que una necesidad— y volvió al salón con el plato en las manos, con la cara que Hernando conocía, la cara de siempre.
+
 Hernando se quedó sentado.
 
 Miró el teléfono en la mano.

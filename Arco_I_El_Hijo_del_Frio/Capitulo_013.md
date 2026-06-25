@@ -18,7 +18,7 @@ Se dieron la mano. Arenas la sostuvo un segundo más de lo necesario, en el gest
 
 —¿Cuál carrera? —dijo Santi, aunque sabía cuál.
 
-—La que ganaste en Yolombal y llegaste segundo en la general por nueve segundos. No me interesa que ganaste la etapa. Me interesa que cuando atacaste en Yolombal, atacaste en el momento exacto. Eso no se le enseña a un corredor. O lo entienden solos o no lo entienden.
+—La que ganaste en Yolombal y llegaste segundo en la general por nueve segundos. —Arenas hablaba con las manos, dibujando en el aire el trazado de la carretera como si todavía pudiera verlo—. No me interesa que ganaste la etapa. Me interesa que cuando atacaste en Yolombal, atacaste en el momento exacto. Eso no se le enseña a un corredor. O lo entienden solos o no lo entienden.
 
 Santi no respondió. A su lado, Hernando miraba la mesa.
 
@@ -74,11 +74,11 @@ Cuando salieron a la calle, Hernando dijo:
 
 —Porque los que se sienten muy diferentes después de firmar un contrato son los que trabajan para el contrato. Los que se sienten igual son los que trabajan para lo que hay después del contrato.
 
-Santi lo miró. Su padre tenía esa manera de decir cosas que sonaban simples pero no lo eran.
+Santi lo miró.
 
 —¿Lo aprendiste de alguien?
 
-—Lo aprendí de haberlo hecho mal —dijo Hernando.
+—Lo aprendí de haberlo hecho mal —dijo Hernando, y aceleró el paso hacia el carro antes de que Santi pudiera preguntar más.
 
 ---
 
@@ -88,9 +88,9 @@ El preparador del Manzana Postobón sub-23 se llamaba Rodrigo Mejía, tenía cer
 
 Santi no era estándar.
 
-El primer conflicto fue en marzo, en un entrenamiento de series en el Alto de Santa Elena. Mejía había diseñado seis intervalos de cuatro minutos al noventa y cinco por ciento de la frecuencia cardíaca máxima, con dos minutos de recuperación entre cada uno. Era un protocolo clásico de potencia aeróbica. Santi lo ejecutó sin problema en los primeros cuatro intervalos. En el quinto, a mitad del intervalo, aceleró más allá del noventa y cinco por ciento y lo mantuvo hasta el final.
+El primer conflicto fue en marzo, en un entrenamiento de series en el Alto de Santa Elena, con la niebla todavía pegada a los eucaliptos y el asfalto resbaloso del rocío de la madrugada. Mejía había diseñado seis intervalos de cuatro minutos al noventa y cinco por ciento de la frecuencia cardíaca máxima, con dos minutos de recuperación entre cada uno. Era un protocolo clásico de potencia aeróbica. Santi lo ejecutó sin problema en los primeros cuatro intervalos. En el quinto, a mitad del intervalo, aceleró más allá del noventa y cinco por ciento y lo mantuvo hasta el final.
 
-—El dato dice ciento tres por ciento —dijo Mejía, revisando la tablet, cuando se encontraron en la cima—. El protocolo era noventa y cinco.
+—El dato dice ciento tres por ciento —dijo Mejía, sin levantar la vista de la tablet, marcando cada cifra con el dedo como si necesitara contarlas dos veces para creerlas—. El protocolo era noventa y cinco.
 
 —Lo sé —dijo Santi.
 
@@ -124,6 +124,8 @@ Santi no dijo nada. Pero pensó que cinco por ciento estaba bien para empezar.
 
 ---
 
-El año avanzó con esa velocidad que tienen los años llenos de trabajo: los meses se contaban en etapas, no en fechas. Mejía ajustaba el programa semana a semana, Ospina seguía llamando los miércoles, y Santi subía los mismos puertos que había subido el año anterior pero con la diferencia que marca pasar de un trabajo solitario a uno con estructura detrás. En junio, Arenas llamó a Ospina.
+El año avanzó con esa velocidad que tienen los años llenos de trabajo: los meses se contaban en etapas, no en fechas. Mejía ajustaba el programa semana a semana, Ospina seguía llamando los miércoles, y Santi subía los mismos puertos que había subido el año anterior pero con la diferencia que marca pasar de un trabajo solitario a uno con estructura detrás. Las manos se le habían curtido distinto ese año —más callo en las palmas, menos en los nudillos— de tantas horas de manillar sobre asfalto irregular.
 
-—El equipo inscribió a Santi en el Clásico RCN juvenil —dijo—. Sale en julio.
+En junio, Arenas llamó a Ospina.
+
+—El equipo inscribió a Santi en el Clásico RCN juvenil —dijo, ya sin el rodeo de las manos en el aire, directo como quien da una orden—. Sale en julio.

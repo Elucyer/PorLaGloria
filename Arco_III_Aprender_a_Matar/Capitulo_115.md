@@ -60,15 +60,15 @@ La segunda: el ataque en grava. La diferencia entre atacar en asfalto y atacar e
 
 La tercera: el descenso en grava. El más técnico de los tres — el descenso en grava en la Strade Bianche es el sector donde los corredores pagan el error con caídas y donde los que dominan el manejo de la bicicleta en condiciones de baja adherencia ganan los segundos que en asfalto hubieran tardado más en conseguir.
 
-Rusconi al final de la tercera salida: — En grava, perdés cuatro vatios por kilómetro respecto al asfalto. En los cincuenta y siete kilómetros de grava de la Strade Bianche, eso son doscientos veintiocho vatios acumulados que no producís. El análisis de las únicas carreras de grava que has corrido —
+Rusconi cerró el portátil un momento antes de hablar, como si quisiera que el número aterrizara solo. Al final de la tercera salida soltó la cifra sin preámbulo: cuatro vatios por kilómetro se pierden en grava respecto al asfalto, y en los cincuenta y siete kilómetros de grava de la Strade Bianche eso suma doscientos veintiocho vatios acumulados que el cuerpo nunca llega a entregar. Quiso comparar con carreras de grava anteriores de Santi, y se detuvo a medio gesto.
 
 — Nunca he corrido la Strade Bianche.
 
-— Lo sé. Por eso el análisis es del simulador de la plataforma, que tiene el recorrido con el perfil real. — Rusconi abrió el portátil. — El análisis dice que en los sectores uno al once, la diferencia de potencia entre vos y Van Aert en grava es de tres vatios. En la montaña final hacia la Piazza del Campo, esa diferencia se invierte: vos tenés doce vatios más que Van Aert.
+— Già. — Rusconi se pasó la mano por la frente, fastidiado consigo mismo por el olvido. — Por eso uso el simulador, el que tiene el perfil real. — Volvió a abrir la pantalla, giró el portátil hacia Santi. Ahí estaban las curvas: en los sectores uno al once la diferencia de potencia con Van Aert en grava era de apenas tres vatios. Pero en la montaña final hacia la Piazza del Campo el signo se invertía — doce vatios a favor de Santi.
 
-— El que llega a la montaña final con los mismos segundos que Van Aert gana.
+— El que llega a la montaña final con los mismos segundos que Van Aert gana —dijo Santi, mirando la curva donde las dos líneas se cruzaban.
 
-— Exactamente.
+Rusconi asintió, sin necesidad de decir más.
 
 Era el análisis que Santi ya había hecho en el cuaderno tres días antes. Rusconi lo confirmaba con los datos del simulador.
 
@@ -114,7 +114,7 @@ Ferretti en la pizarra:
 
 Los corredores miraban el mapa.
 
-Ferretti continuó: — Van Aert es el favorito para el pelotón. También Alaphilippe. Posiblemente Van der Poel. Pogačar si está en el grupo final. — Pausa. — Nuestro objetivo es llegar al Monte Sante Marie en el grupo de cinco o menos. — Miró a Santi. — El objetivo de Santi es llegar al Monte Sante Marie en primer lugar.
+Ferretti continuó: — Van Aert es el favorito para el pelotón. También Alaphilippe. Posiblemente Van der Poel. Pogačar si está en el grupo final. — Pausa. — Con Pogačar no hace falta adivinar el plan: lo dijo él mismo en una entrevista esta semana, que va a intentarlo desde donde pueda y que no le importa quemarse antes de tiempo si la sensación es buena. No hay nada que descifrar — dice lo que va a hacer y después lo hace, o no, y lo admite igual. — Nuestro objetivo es llegar al Monte Sante Marie en el grupo de cinco o menos. — Miró a Santi. — El objetivo de Santi es llegar al Monte Sante Marie en primer lugar.
 
 Santi escuchó.
 

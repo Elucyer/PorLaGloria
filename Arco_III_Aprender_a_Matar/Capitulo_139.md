@@ -56,7 +56,7 @@ En el carro hacia el hotel del equipo en Gante, Ferretti habló.
 
 — Mitad y mitad. El Kwaremont a pie en los sectores de pavé. El Paterberg en bicicleta.
 
-— Bien.
+Santi asintió, mirando el parabrisas empañado por la diferencia de temperatura entre el aire de afuera y la calefacción del carro.
 
 — La Vuelta: el equipo sale hacia Irún el domingo. El bus sale a las seis de la mañana.
 
@@ -111,6 +111,20 @@ El trayecto en coche por el Kanarieberg, el Kruisberg, el Oude Kwaremont por pri
 Santi lo observó desde el coche.
 
 El Kwaremont con el pavé en los primeros 1.400 metros — los adoquines irregulares que en la lluvia de octubre iban a ser el terreno donde el escalador tenía que mantener el ritmo sin perder la bicicleta en las piedras mojadas.
+
+Broeckx miraba por la ventana del asiento de atrás con la atención específica del corredor que nació a cuarenta minutos de ahí. Kortrijk quedaba al sur, fuera de la ruta del día, pero el paisaje era el mismo paisaje — los campos planos, los canales rectos, el ladrillo rojo de las casas de Flandes oriental que se repetía sin cambiar de Kortrijk a Oudenaarde.
+
+— Mi tío subió el Kwaremont en el setenta y ocho — dijo Broeckx, sin que nadie le preguntara. — Antes de que fuera parte del Flandes. Cuando todavía era solo la carretera que usaba la gente del pueblo para ir a misa.
+
+Colombo, a su lado: — ¿Corredor?
+
+— No. Cartero. — Broeckx no sonrió al decirlo, pero algo en la voz se aflojó un grado, el flamenco que medía el humor en gramos. — Decía que el Kwaremont era más duro en bicicleta de cartero con las bolsas llenas que lo que cualquiera de nosotros iba a sentir nunca con una bicicleta de carbono y bolsillos vacíos.
+
+Santi, desde el asiento de adelante, sin volver la cabeza del todo: — ¿Todavía vive?
+
+— Noventa y un años. Todavía me pregunta por la carrera. — Broeckx miró otra vez por la ventana, el Kwaremont ya atrás, el siguiente tramo de campo abierto. — Le voy a contar que mañana subí el mismo muro con un colombiano que va a ganar el Tour de Francia dos veces antes de los veinticinco.
+
+No era la frase del gregario que adula al líder. Era la frase del hombre que en su pueblo natal, sentado en una cocina con un cartero retirado de noventa y un años, iba a tener una historia que contar — y que sabía, sin necesidad de decirlo, que esa historia era una parte tan real de para qué corría como cualquier número en la pantalla de Rusconi.
 
 Después salieron del coche en el pie del Paterberg.
 
@@ -188,9 +202,7 @@ Hernando calculó.
 
 — De lo que los trece kilómetros de llano hagan al cuerpo.
 
-Silencio.
-
-El cálculo del padre que en cuarenta años de ciclismo había aprendido que las carreras de un día tienen la lógica de los ajedrecistas que juegan sin reloj — donde el movimiento correcto no siempre es el movimiento que el tablero muestra como obvio.
+Del otro lado de la línea, Hernando movía el lápiz sobre el papel sin escribir nada todavía — el sonido mínimo de la mina rozando el cuaderno, el cálculo del padre que en cuarenta años de ciclismo había aprendido que las carreras de un día tienen la lógica de los ajedrecistas que juegan sin reloj, donde el movimiento correcto no siempre es el movimiento que el tablero muestra como obvio.
 
 — Si Van Aert llega con vos al pie del sprint — dijo Hernando — ¿ganás?
 

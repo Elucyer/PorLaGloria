@@ -114,7 +114,7 @@ Hernando asintió.
 
 — Bien — dijo. — El miedo es información.
 
-No explicó más. Santi no preguntó más. Era suficiente.
+No explicó más. Santi no preguntó más. Entre los dos, eso ya era una conversación completa.
 
 ---
 
@@ -150,7 +150,7 @@ Al quinto día, en el kilómetro tres del circuito plano con la cámara de Rusco
 
 — Bien — dijo Rusconi.
 
-Era el *bien* técnico. Era suficiente.
+Era el *bien* técnico. El que no necesitaba adjetivos.
 
 ---
 
@@ -220,7 +220,7 @@ Era la primera vez que Santi oía eso.
 
 — ¿En serio?
 
-— En los años cuarenta — dijo Hernando. — Antes de que lo cerraran. Mi papá me contó una vez. — Pausa. — No me contó más.
+— En los años treinta — dijo Hernando. — Antes de que lo cerraran. Mi papá me contó una vez. — Pausa. — No me contó más.
 
 Era el tipo de historia que en la familia Reyes existía en una sola frase y no se desarrollaba — porque Hernando Reyes no desarrollaba las historias de familia más de lo que desarrollaba cualquier otra cosa. Pero en el verano de la recuperación, en el apartamento de Laureles con el libro del ferrocarril antioqueño abierto en las rodillas, Hernando había decidido que era el momento de saber lo que no le habían contado.
 

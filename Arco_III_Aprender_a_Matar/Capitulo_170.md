@@ -103,9 +103,11 @@ La mesa se quedó en silencio un momento.
 
 — ¿Por qué no?
 
+— Porque Pogačar te lo dice riéndose, incluso cuando pierde — dijo Clarke. — Con Bernal no sabés si te lo va a decir nunca.
+
 Santi pensó la respuesta, mirando el plato.
 
-— Porque en el Zoncolan no había ninguna diferencia. Hoy sí la hay, y la diferencia no es de un día. Es acumulada. — Levantó la vista. — Lo que pasó hoy no fue que yo until fui mejor. Fue que las dos semanas de Giro le están pesando más a él que a mí. Eso es otra cosa.
+— Porque en el Zoncolan no había ninguna diferencia. Hoy sí la hay, y la diferencia no es de un día. Es acumulada. — Levantó la vista. — Lo que pasó hoy no fue que yo fui mejor. Fue que las dos semanas de Giro le están pesando más a él que a mí. Eso es otra cosa.
 
 — ¿Es bueno o malo? — preguntó Dumont.
 

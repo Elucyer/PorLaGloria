@@ -130,13 +130,13 @@ En la zona mixta de la segunda etapa, el periodista de *RMC Sport*:
 
 — Tadej, sin ataque hoy. ¿Es una estrategia?
 
-Pogačar: — Hoy no había nada que ganar atacando. La carrera real no empezó todavía.
+Pogačar: — Hoy no había nada que ganar atacando. La carrera real no empezó todavía. — Lo dijo sin la cautela de quien mide cada palabra para la prensa, con la misma franqueza directa con la que respondía cualquier pregunta dentro o fuera del pelotón: lo que pensaba era, casi siempre, exactamente lo que decía.
 
 El periodista de *Sporza*:
 
 — Primož, ¿Santi Reyes es el rival que más te preocupa?
 
-Roglič, en el español del pelotón:
+Roglič, en el español del pelotón, los ojos un momento en el ciclocomputador de la muñeca antes de contestar — el gesto que sus compañeros del Jumbo ya conocían, el corredor que parecía consultar un dato aunque no hubiera ningún dato que consultar a esa hora:
 
 — Hay varios rivales. Pogačar, Santi, otros. El Tour tiene tres semanas.
 
@@ -166,13 +166,13 @@ Santi: — O está administrando.
 
 Rusconi: — O está administrando. Por eso hay que seguir midiendo. — Pausa. — En la cuarta etapa, cuando el Tour suba a Orcières-Merlette, vamos a ver el número de verdad. La subida final es de 7 km al 7,5%. Eso no se puede simular ni administrar sin ceder tiempo real.
 
-Ferretti: — ¿Cuánto proyectás que puede ceder Roglič en Orcières-Merlette si no administra?
+Ferretti quiso un número, no una sensación.
 
-Rusconi: — Entre cero y quince segundos sobre Santi. Si Roglič está al cien por ciento, cero. Si tiene el límite que el 3,2 sugiere, hasta quince.
+— Entre cero y quince segundos sobre Santi —dijo Rusconi—. Cero si Roglič está al cien por ciento. Hasta quince si el límite que sugiere el 3,2 es real.
 
-— ¿Y Pogačar?
+Pogačar era otra historia, y Rusconi lo dijo sin que nadie preguntara: el esloveno del UAE tenía, en pendiente sostenida, la potencia relativa más alta del pelotón activo — por encima incluso de la de Santi en un siete por ciento. La ventaja se invertía recién pasado el nueve. Entre el siete y el ocho, Pogačar mandaba.
 
-— Pogačar en el 7,5% es el corredor más difícil de proyectar. Su potencia relativa en pendiente sostenida es la más alta del pelotón activo — superior incluso a la de Santi en un 7%. Por encima del 9%, Santi lo supera. Por debajo del 8%, Pogačar puede mantener.
+Rusconi tenía también el dato de Roglič de las tres Vueltas a España consecutivas — el archivo que en treinta años no había necesitado de declaraciones para confirmarse. Treinta años, tres Grand Tours ganados, el corredor que en las zonas mixtas de media Europa decía siempre la misma frase con palabras distintas y nunca una palabra más. Era el mismo patrón que el cuerpo de Roglič mostraba en la carretera: ningún gesto sobrante, ninguna explicación regalada.
 
 Santi escuchó.
 
@@ -200,12 +200,12 @@ En el balcón de Laureles a las diez de la noche de Colombia, Hernando tenía el
 
 No dormía.
 
-Miraba el parque — los árboles en la oscuridad de la noche, con ese perfil que no se ve pero que está.
+Miraba el parque — los árboles en la oscuridad de la noche, con ese perfil que no se ve pero que está, y el ruido de un carro lejano que subía la cuesta de la calle 33 con el motor forzado, y después nada, solo los grillos del antejardín del vecino y el zumbido bajo del refrigerador en la cocina.
 
 El Tour en cuatro días iba a llegar a la primera montaña real.
 
-Hernando sabía exactamente lo que iba a pasar ahí.
+Hernando sabía exactamente lo que iba a pasar ahí. Lo sabía con el cuerpo, no solo con los números que Rusconi le mandaba a Ferretti y que de alguna manera, por algún canal que Hernando nunca preguntó cómo funcionaba, terminaban también en su cuaderno.
 
-Y Santi también.
+Y Santi también lo sabía. A setecientos kilómetros de ahí, en un hotel de Sisteron, con el mismo silencio antes de la misma montaña.
 
 ---

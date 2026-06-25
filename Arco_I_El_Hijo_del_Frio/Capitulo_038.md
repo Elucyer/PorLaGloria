@@ -16,7 +16,7 @@ Santi miraba por la ventanilla mientras el Boeing descendía sobre el desierto d
 
 Era la tercera vez que salía de Colombia y la segunda vez que salía de Europa.
 
-Era la primera vez que entendía que el mundo era realmente grande.
+Era la primera vez que entendía que el mundo era realmente grande. El aire acondicionado de la cabina le secaba la garganta, y afuera, sobre la pista, el calor del desierto ya se notaba subiendo en ondas desde el asfalto, incluso a esa hora.
 
 ---
 
@@ -40,7 +40,7 @@ Santi lo miró.
 
 —No. Pero imagino que sí.
 
-Tom soltó una carcajada, breve y genuina, de las que Tom producía sin esfuerzo porque era el tipo de persona para quien la risa era un reflejo y no una decisión.
+Tom soltó una carcajada, breve y genuina, de las que producía sin esfuerzo porque para él la risa era un reflejo y no una decisión, y la dejó rebotar contra el cristal de la ventana antes de seguir hablando, como hacía siempre, sin pausa entre la risa y la frase siguiente.
 
 —Eres raro para un chico de dieciocho años —dijo.
 
@@ -90,13 +90,11 @@ Hernando Reyes lo había llamado él mismo esa noche, cuando ya Santi estaba en 
 
 El vuelo había anunciado el embarque en ese momento. Santi tuvo que colgar.
 
-Ahora, mirando la muralla de Jerusalén iluminada en la noche tibia del Mediterráneo oriental, pensó que su padre había dicho algo que él todavía no estaba seguro de poder cumplir pero que estaba completamente seguro de querer intentar.
-
-Gánalo.
-
-No *hazlo bien*. No *llega donde puedas*. No *aprende*.
+Ahora, mirando la muralla de Jerusalén iluminada en la noche tibia del Mediterráneo oriental, con el ruido lejano de un claxon que no terminaba de apagarse, pensó que su padre había dicho algo que él todavía no estaba seguro de poder cumplir pero que estaba completamente seguro de querer intentar.
 
 *Gánalo.*
+
+No *hazlo bien*. No *llega donde puedas*. No *aprende*.
 
 Volvió al hotel. Subió al quinto. Se metió en la cama en la oscuridad.
 
@@ -138,9 +136,7 @@ Tom estaba a su lado y tuvo el buen sentido de no preguntar qué había escrito.
 
 Las tres palabras eran: *Papá. El Giro.*
 
-No era una oración en ningún sentido convencional. Era un mensaje. Un mensaje a quien fuera que recibe los mensajes que la gente deja en muros de piedra de dos mil años, o tal vez a nadie, o tal vez a sí mismo en el futuro.
-
-Salieron. Caminaron de vuelta al hotel.
+Salieron. Caminaron de vuelta al hotel, el sol ya bajo entre los techos de piedra y las antenas, el calor del día cediendo poco a poco a un fresco que todavía no era frío.
 
 Tom compró un falafel en un puesto de la calle y lo comió caminando, salpicando tahini en la acera, perfectamente feliz.
 
@@ -166,8 +162,8 @@ Volvió al hotel.
 
 Se duchó. Se vistió con el kit de presentación del equipo —el jersey de gala del Élan Cycliste, el mismo azul marino con la franja blanca y los detalles dorados, pero esta vez sin las marcas del esfuerzo, sin el sudor y el polvo de la carretera, limpio y planchado como algo que todavía no ha sido usado para lo que fue hecho.
 
-Se miró en el espejo del baño durante cinco segundos.
+Se miró en el espejo del baño durante cinco segundos. La cara que le devolvió el espejo todavía tenía algo de quien acaba de bajar de un avión, pero los ojos ya estaban en otra parte.
 
 Luego bajó a reunirse con el equipo.
 
-Afuera, Jerusalén esperaba.
+Afuera, entre los focos y la música y el rumor de ciento setenta y seis corredores de veintidós países, Jerusalén esperaba.

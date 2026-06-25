@@ -199,7 +199,7 @@ En el kilómetro diez, Santi estaba a cuatro metros de Nibali. La diferencia que
 
 Dieciocho segundos que mañana en el crono de Verona Nibali iba a recuperar. Los especialistas del crono —y Nibali era especialista del crono— ganaban treinta, cuarenta segundos en diecisiete kilómetros contra los escaladores puros. Dieciocho más dieciocho era treinta y seis segundos. Treinta y seis segundos menos de un minuto cuarenta y dos — un minuto seis de diferencia final.
 
-Era suficiente.
+Un minuto seis sí alcanzaba para ganar el Giro.
 
 Ferretti, por el pinganillo:
 
@@ -319,7 +319,7 @@ Treinta y cuatro segundos.
 
 GC tras la etapa veinte: Santi primero. Nibali segundo a un minuto y ocho. Roglič tercero a dos minutos diez.
 
-Era suficiente.
+Un minuto y ocho era un colchón, no una sentencia.
 
 Mañana era el crono de Verona. Diecisiete kilómetros de contrareloj individual en el centro histórico de Verona — la carrera donde Roglič iba a ganar tiempo, donde Nibali iba a ganar tiempo, donde Santi iba a perder tiempo pero no suficiente.
 
@@ -523,7 +523,7 @@ Débil. Sin el volumen de siempre — la voz del hombre que lleva cinco días co
 
 — Papá.
 
-Silencio. El silencio de los Reyes. El único silencio que en esta historia no necesitaba llenarse.
+Silencio. El que no hacía falta llenar.
 
 — Mañana — dijo Hernando. Cada palabra pesada, medida, como si el aire en los pulmones fuera un recurso que administrar con la misma economía con que administraba todo lo demás. — Mañana es el crono.
 

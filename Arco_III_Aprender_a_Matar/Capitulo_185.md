@@ -306,6 +306,8 @@ No era consuelo. Pero tampoco era derrota total.
 
 Pogačar cruzó tercero, a doce segundos. Alaphilippe cuarto, a veintitrés.
 
+El francés se quitó el casco antes de cruzar del todo la línea, el gesto de quien ya conoce el resultado y no necesita esperar la pantalla para confirmarlo. No hubo golpe al manillar, ni la rabia que otros corredores mostraban en la derrota — solo una mirada larga hacia el arco de meta, donde el nombre de Santi ya estaba fijo en la pantalla, y un movimiento casi imperceptible de la cabeza, de lado a lado, el reconocimiento elegante del corredor que entendía que el monumento de hoy se le había escapado entre dos rivales más jóvenes y que en algún momento esa frase iba a dejar de sonar como excusa y empezar a sonar como diagnóstico.
+
 ---
 
 En la zona de meta, el equipo colombiano se juntó. Higuita llegó dos minutos después — había seguido pedaleando desde que cedió en el sexto circuito, había terminado la carrera — y encontró a Santi todavía en la bicicleta, rodeado de fotógrafos y cámaras y el staff de la federación colombiana que había viajado desde Bogotá para el Mundial.
@@ -314,7 +316,7 @@ Higuita desmontó, dejó la bicicleta a un miembro del staff, caminó hacia Sant
 
 — Bien — dijo, con el mismo tono de Tokio.
 
-— Bien — dijo Santi.
+Santi asintió, sin palabras todavía, la garganta seca de gritar dentro del casco en los últimos doscientos metros.
 
 — Dos — dijo Higuita.
 
@@ -336,13 +338,19 @@ Higuita negó con la cabeza levemente — el gesto del corredor que dice "no hay
 
 *Un año. Doce meses. El arcoíris otra vez en los hombros.*
 
+Pogačar, en el cuarto lugar entre los corredores que esperaban detrás de la tarima, le gritó algo desde lejos, sin micrófono, solo para que Santi lo escuchara entre el ruido de la Grand-Place:
+
+— Tercero acá, segundo en el Tour. ¡Algún día te voy a ganar algo importante de verdad!
+
+Lo dijo riéndose, sin ninguna amargura, y Santi, todavía con el jersey arcoíris en la mano, levantó el dedo pulgar en su dirección sin decir nada.
+
 La ceremonia terminó y Santi bajó del podio con el jersey arcoíris en la mano — lo había llevado para la foto, para la ceremonia, y ahora lo llevaba doblado bajo el brazo porque el jersey oficial de la selección era lo que se sentía más correcto para el resto de esa tarde.
 
 Ferretti lo esperaba al borde de la zona de equipo.
 
 — Bien — dijo el director, con el mismo diagnóstico de siempre.
 
-— Bien — confirmó Santi.
+Santi solo levantó las cejas, el gesto que Ferretti conocía mejor que cualquier frase.
 
 Ferretti miró el jersey arcoíris doblado.
 
@@ -432,11 +440,9 @@ Santi recordó el número. El año anterior, después de la remisión, Hernando 
 
 — El Alto de Minas tiene dieciocho kilómetros.
 
-— Lo sé — dijo Hernando. — El invierno.
+— Lo sé — dijo Hernando, y se rió bajito, sin alegría completa, el sonido de un hombre que mide su cuerpo en kilómetros de asfalto. — El año que viene, completo.
 
-*Siempre el invierno.*
-
-La llamada terminó con la promesa de siempre. Santi se quedó en la habitación de Lovaina, con las piernas elevadas y el jersey arcoíris sobre la silla y el cuerpo que pedía sueño, pensando en un alto de montaña de Antioquia donde un hombre de cincuenta y un años subía dos kilómetros más cada temporada.
+La llamada terminó con la promesa de siempre. Santi se quedó en la habitación de Lovaina, con las piernas elevadas, la moqueta vieja bajo los pies descalzos y el olor a cerveza que subía todavía del lobby, el jersey arcoíris sobre la silla y el cuerpo que pedía sueño, pensando en un alto de montaña de Antioquia donde un hombre de cincuenta y un años subía dos kilómetros más cada temporada, despacio, como quien negocia con el tiempo en lugar de pelear contra él.
 
 Trece días para Como.
 

@@ -10,7 +10,7 @@ No porque Ospina lo hubiera medido con esa precisión —aunque probablemente lo
 
 En Medellín no paró del todo.
 
-Nadie que había subido Santa Elena y el Boquerón y el Alto de Minas tres veces por semana durante once meses podía parar del todo en veintiún días. Lo que hizo fue cambiar el tipo de movimiento: caminó, subió a pie algunos repechos del barrio, rodó tres veces por semana en llano sin objetivo de tiempo. Mejía lo había llamado antes del cierre para decirle que el cuerpo necesitaba vaciarse antes de llenarse de nuevo, que el error más común de los corredores jóvenes era no saber descansar. Santi lo anotó. No lo entendió del todo hasta la segunda semana, cuando el cuerpo empezó a relajar esa tensión de fondo que llevaba meses acumulada y que uno solo reconoce cuando desaparece.
+Nadie que había subido Santa Elena y el Boquerón y el Alto de Minas tres veces por semana durante once meses podía parar del todo en veintiún días. Lo que hizo fue cambiar el tipo de movimiento: caminó, subió a pie algunos repechos del barrio, rodó tres veces por semana en llano sin objetivo de tiempo. Mejía lo había llamado antes del cierre para decirle que el cuerpo necesitaba vaciarse antes de llenarse de nuevo, que el error más común de los corredores jóvenes era no saber descansar. Santi lo anotó sin discutirlo. Lo que no anotó, porque no tenía palabras todavía, fue lo que pasó en la segunda semana: una mañana se sentó al borde de la cama y notó que los hombros le bajaban solos, como si algo que llevaba meses apretado por dentro hubiera encontrado, por fin, dónde soltarse.
 
 ---
 
@@ -76,9 +76,11 @@ No era una pregunta.
 
 —Sí.
 
-Rodrigo asintió. Tomó el segundo sorbo del tinto.
+Rodrigo asintió. Tomó el segundo sorbo del tinto, despacio, mirando hacia los hombres del parqués como si la conversación ya hubiera dicho todo lo que tenía que decir.
 
-—Eso está bien —dijo—. Eso es lo que hay que hacer.
+—Eso está bien —dijo, sin mirarlo—. Eso es lo que hay que hacer.
+
+No agregó nada más. Afuera, alguien gritó un seis doble y los otros se rieron.
 
 ---
 
@@ -92,11 +94,9 @@ Desde ahí, San José era un conjunto de luces pequeñas en el fondo del valle. 
 
 Pensó en su padre corriendo el Clásico RCN tres veces sin ganarlo. En Ospina que había sido gregario toda su carrera y nunca campeón. En Rodrigo estudiando por internet en el negocio de su padre. En Julián preparándose para Bogotá y comunicación social y el periodismo deportivo que todavía no existía pero que en su cabeza ya tenía forma.
 
-Pensó en los cuarenta y tres segundos que lo separaban de Arroyave en el Alto de la Línea.
+Pensó en los cuarenta y tres segundos que lo separaban de Arroyave en el Alto de la Línea, en cómo esos segundos no pesaban nada y pesaban todo al mismo tiempo, dependiendo de la hora del día en que los recordara.
 
-*Los nombres se trabajan*, había escrito. Era verdad. Pero trabajarlos no garantizaba alcanzarlos.
-
-Lo que garantizaba era que si no los trabajabas, la distancia crecía.
+*Los nombres se trabajan*, había escrito. No volvió a escribir nada esa noche. Se quedó ahí, parado donde terminaba el pavimento, hasta que el frío de la trocha le subió por los tobillos y tuvo que volver.
 
 ---
 
@@ -138,11 +138,9 @@ Las luces de Medellín desde la autopista que bajaba del norte. La ciudad que se
 
 —¿Vas a ir?
 
-Hernando tardó un segundo.
+Hernando tardó un segundo, los ojos fijos en la carretera, las manos quietas sobre el timón.
 
-—Claro que voy —dijo.
+—Claro que voy —dijo, como si la pregunta no tuviera ningún sentido.
 
-Como si la pregunta no tuviera ningún sentido.
-
-Como si hubiera sido siempre la única respuesta posible.
+No dijo más. Subió el volumen de la radio dos rayitas, lo justo para llenar el silencio sin tener que llenarlo con palabras, y los dos se quedaron mirando las luces de la ciudad acercarse.
 

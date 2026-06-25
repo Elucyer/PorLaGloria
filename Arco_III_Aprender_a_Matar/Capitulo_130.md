@@ -15,11 +15,11 @@ El día después del Col de la Loze, Roglič llegó al briefing de la mañana an
 
 Ferretti lo encontró en la sala de reuniones del hotel de Méribel a las ocho menos diez — el líder del Tour sentado en la silla de siempre, el café en la mano, sin el portátil ni el tablet ni nada sobre la mesa excepto el café y la mirada del corredor que la noche anterior había perdido veinticuatro segundos en la montaña más alta del Tour y que había dormido con ese número.
 
-No fue Ferretti quien llegó primero a la sala.
+Roglič, no Ferretti, había llegado primero a la sala vacía. Las sillas todavía sin acomodar, las cortinas a medio abrir, el vapor del café subiendo derecho en el aire quieto del cuarto.
 
-Fue Roglič.
+Eso decía algo que Ferretti no necesitó preguntar.
 
-Eso decía algo.
+El director del Jumbo-Visma, que pasó por la puerta un minuto después que Ferretti, encontró a su líder en la misma posición: el café, la mirada fija en algún punto de la pared, el cuerpo todavía. No le preguntó cómo había dormido. Roglič no tenía la costumbre de contestar esa pregunta con algo que no fuera un número, y esa mañana no había número que dar todavía — solo los veinticuatro segundos del día anterior, que ya estaban donde tenían que estar: en el cuaderno de Rusconi, no en la cara de Roglič.
 
 ---
 
@@ -39,7 +39,7 @@ Santi asintió.
 
 Era la certeza que en la reunión de la noche anterior Ferretti había dicho sin decirla: que el líder que pierde veinticuatro segundos en el Loze no llega a la etapa siguiente y se sienta a esperar la crono. El líder que ha ganado tres Vueltas a España consecutivas llega a la etapa siguiente y ataca para demostrar que el Loze fue un momento y no un síntoma.
 
-Roglič lo iba a atacar.
+Afuera, el autobús del equipo ya tenía el motor encendido. Roglič lo iba a atacar; de eso no había duda en la mesa.
 
 ---
 
@@ -65,11 +65,9 @@ El ataque de Roglič en el kilómetro diecinueve del Cormet de Roselend fue dife
 
 El mensaje que el cuerpo de Roglič enviaba: *lo del Loze fue un momento. No un síntoma.*
 
-Pogačar respondió en 1,7 segundos.
+Pogačar saltó detrás de la rueda en 1,7 segundos. Santi, casi pegado a él, en 1,9.
 
-Santi respondió en 1,9 segundos.
-
-Los tres solos en el kilómetro diecinueve del Cormet de Roselend — el ataque de Roglič había dejado atrás a los seis corredores que quedaban del grupo de nueve.
+Los seis corredores que quedaban del grupo de nueve se quedaron mirando la espalda de los tres que se iban — el Cormet de Roselend reducido de golpe a la carrera de siempre.
 
 El dato: 1,7 y 1,9 de respuesta. Los números del Tour de los Pirineos, no los números del Loze. Los cuerpos de los tres que después del Loze respondían como respondían antes del Loze — porque el día después del Loze no era el Loze, y el corredor que el día siguiente de la etapa más dura del Tour responde en menos de dos segundos tiene el cuerpo que el corredor necesita para la crono de mañana.
 
@@ -88,6 +86,12 @@ No la guerra de los ataques — la guerra del ritmo. Roglič subiendo el ritmo e
 Kwiatkowski llegó a La Roche-sur-Foron con tres minutos y veintidós segundos de ventaja sobre el grupo de los favoritos — el polaco del Ineos que ese día supo que tenía el cuerpo que en otro Tour, con menos Corredores en el pelotón, habría ganado tres etapas en lugar de una.
 
 Los tres Corredores llegaron juntos.
+
+En la línea, antes de que los soigneurs los rodearan, Pogačar le dijo algo a Roglič en esloveno — la lengua que entre los dos era el idioma de las cosas que no necesitaban traducirse para el resto del pelotón. Roglič no respondió, la cara fija en algún punto del asfalto, la mano ya en el bolsillo trasero buscando el ciclocomputador para desmontarlo él mismo antes de que el mecánico llegara. Pogačar se encogió de hombros, se giró hacia Santi y repitió en inglés, como si quisiera que también él lo escuchara:
+
+— Mañana la crono lo dice todo. Hoy solo confirmamos que seguimos vivos.
+
+Lo dijo sin la sonrisa esta vez — la frase salió seria, los labios apretados antes de cada palabra, el corredor que sabía que el día siguiente era el único que importaba.
 
 La GC sin cambio.
 
@@ -131,13 +135,11 @@ Rusconi: — Si Roglič sube La Planche al nivel del Loze: perdés treinta en lu
 
 — Si Roglič va muy bien en La Planche — dijo Rusconi — el margen se reduce a entre diez y quince segundos. En ese escenario, el Tour se gana por muy poco.
 
-Ferretti lo miró a Santi.
+Ferretti se quedó mirando la pantalla del portátil un momento más de lo necesario antes de cerrarla.
 
-— Ganamos igual — dijo Ferretti.
+— Ganamos igual.
 
-Santi asintió.
-
-Guardó el cuaderno.
+Santi guardó el cuaderno sin decir nada más.
 
 *La crono de La Planche: GC +1:01 sobre Roglič. Margen proyectado: +41". Margen mínimo posible: +11".*
 

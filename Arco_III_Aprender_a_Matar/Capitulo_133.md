@@ -46,9 +46,9 @@ El irlandés del Deceuninck-Quick Step que en el Tour del COVID había esperado 
 
 Los tres Corredores llegaron en el pelotón.
 
-Roglič a la derecha de Santi — el esloveno del Jumbo que en la crono de La Planche había hecho lo que los especialistas del cronómetro hacen cuando el Tour se juega en los treinta kilómetros del llano, y que a pesar de eso no había sido suficiente. Catorce segundos. El margen más pequeño de los que Santi había tenido en ninguna carrera.
+Roglič a la derecha de Santi — el esloveno del Jumbo que en la crono de La Planche había hecho lo que los especialistas del cronómetro hacen cuando el Tour se juega en los treinta kilómetros del llano, y que a pesar de eso no había sido suficiente. Catorce segundos. El margen más pequeño de los que Santi había tenido en ninguna carrera. En la línea de salida de los Campos Elíseos, antes del kilómetro cero protocolario, Roglič le había dado la mano y dicho solo: — Buen Tour. — Dos palabras. Ni felicitación más larga ni excusa por los catorce segundos. El número ya estaba dicho y repetirlo con más palabras no lo iba a cambiar.
 
-Pogačar a la izquierda — el corredor de veintiún años que en La Planche había subido a 7,3 vatios por kilogramo y que en los últimos cincuenta metros había cerrado la diferencia con Santi a cincuenta segundos. El corredor que en la zona mixta de La Planche, cuando el periodista le preguntó cómo procesaba el resultado, había dicho: *"Santi Reyes ganó el Tour que se podía ganar. Yo gané la crono. El Tour fue suyo."*
+Pogačar a la izquierda — el corredor de veintiún años que en La Planche había subido a 7,3 vatios por kilogramo y que en los últimos cincuenta metros había cerrado la diferencia con Santi a cincuenta segundos. El corredor que en la zona mixta de La Planche, cuando el periodista le preguntó cómo procesaba el resultado, se había tomado un segundo —los labios apretados, buscando en inglés la frase que en esloveno ya tenía completa— antes de decir: *"Santi Reyes ganó el Tour que se podía ganar. Yo gané la crono. El Tour fue suyo."* Lo dijo sin la sonrisa de siempre. Esa frase no la sonrió.
 
 ---
 
@@ -56,21 +56,21 @@ El podio de la Place du Trocadéro.
 
 La ceremonia — el traje de los tres finalistas, los representantes de los patrocinadores, las flores, el oso de peluche de la tradición.
 
-Primero Roglič — el segundo. El esloveno que en los Campos Elíseos subió al podio de 2.º con la cara del corredor que perdió catorce segundos en los cinco kilómetros más cortos y más decisivos del Tour. El mismo gesto de siempre — la economía del tiburón que en la derrota no explica.
+Primero Roglič — el segundo. El esloveno que en los Campos Elíseos subió al podio de 2.º con la cara del corredor que perdió catorce segundos en los cinco kilómetros más cortos y más decisivos del Tour. El mismo gesto de siempre — la economía del tiburón que en la derrota no explica. No buscó la cámara que lo seguía de cerca para captar el primer gesto del subcampeón. Dio la mano a Santi una sola vez, firme, sin agregar nada, y se quedó de pie en el escalón con las manos cruzadas al frente — la misma postura con la que había subido a otros podios de segundo lugar en quince años de carrera, treinta años de vida que ya sabían que la derrota también se corre con dignidad y sin necesidad de que nadie lo viera sufrir.
 
-Después Pogačar — el tercero. El corredor de veintiún años que al subir al podio de 3.º levantó la mano hacia el público con la naturalidad del corredor que en este Tour aprendió algo sobre sí mismo y sobre los otros dos que en los Tours siguientes iba a usar.
+Después Pogačar — el tercero. El corredor de veintiún años que al subir al podio de 3.º levantó la mano hacia el público con la naturalidad del corredor que en este Tour aprendió algo sobre sí mismo y sobre los otros dos que en los Tours siguientes iba a usar. Y aun en el tercer escalón, con la decepción todavía fresca de los cincuenta segundos, la sonrisa se le escapó al mirar hacia arriba, hacia Santi — la misma sonrisa de niño que no distinguía bien entre ganar y estar cerca de ganar.
 
 Y Santi.
 
 Santiago Reyes Cardona de San José de la Montaña, Antioquia. Veinte años. El maillot amarillo del Tour de France 2020 sobre el traje del podio.
 
-El primer español en ganar el Tour... no. El primer colombiano en ganar el Tour en 2020 — en 2019 había sido Bernal. En 2020 fue Santi. Los dos en años consecutivos. El ciclismo colombiano que en dos años había producido los dos ganadores del Tour de France más jóvenes de la era moderna.
+El segundo colombiano en ganar el Tour, dos años seguidos: en 2019 había sido Bernal, en 2020 era Santi. El ciclismo colombiano que en dos años había producido los dos ganadores del Tour de France más jóvenes de la era moderna.
 
 Santi subió al podio más alto.
 
 No levantó los brazos de golpe — los levantó despacio, como el corredor que todavía está procesando que la carrera terminó y que el resultado es el resultado. Los brazos abiertos, el maillot amarillo, el jersey arcoíris que llevaba debajo visible en las mangas, el fondo del Sena y la Torre Eiffel detrás del podio.
 
-El public de los Campos Elíseos — reducido, con mascarillas, con el aforo del protocolo pandémico — aplaudió con las palmas sobre la tela, el aplauso más sordo de la historia del podio del Tour de France, el aplauso del año que había sido.
+El público de los Campos Elíseos — reducido, con mascarillas, con el aforo del protocolo pandémico — aplaudió con las palmas sobre la tela, un sonido apagado que se perdía rápido en el espacio abierto de la plaza, el aplauso más sordo de la historia del podio del Tour de France, el aplauso del año que había sido.
 
 ---
 
@@ -99,6 +99,24 @@ El public de los Campos Elíseos — reducido, con mascarillas, con el aforo del
 *Carmen lo miró.*
 
 *Era la misma respuesta de siempre. Pero esta vez Hernando no estaba mirando el cuaderno — estaba mirando el Valle de Aburrá por la ventana del balcón, las montañas, el cielo de Medellín a las tres de la tarde que en septiembre tenía el azul que en el invierno de los Alpes no existe.*
+
+---
+
+En Bogotá, en el apartamento de Chapinero, Julián Estrada vio el podio solo.
+
+Sus dos compañeros de redacción habían salido. No le importó —prefería verlo así, sin nadie comentando al lado, sin tener que traducir lo que sentía en una frase que sirviera para otro. Vio a Santi subir al escalón más alto, vio el maillot amarillo, vio el oso de peluche que alguien le entregó y que Santi sostuvo un segundo de más, sin saber bien qué hacer con él.
+
+Cuando terminó el himno, Julián se levantó del sofá y fue al cuarto.
+
+En el armario, detrás de la ropa de invierno que en Bogotá nunca terminaba de guardar porque siempre hacía el mismo frío templado de todos los meses, estaba el tubo de cartón que había traído de Medellín en julio de 2017, cuando se fue a estudiar. Lo abrió. El afiche de Nairo Quintana —el del maillot de puntos del Tour 2014, comprado con la plata de dos meses de mesada en una tienda de deportes de la avenida Oriental— todavía conservaba el doblez de los tres años que pasó enrollado, primero en el cuarto de la pensión de la calle 45, después en este apartamento.
+
+Lo había guardado para un día. Nunca le dijo a Santi cuál.
+
+Lo desenrolló sobre la cama, buscó la cinta en el cajón del escritorio, y lo pegó en la pared frente al escritorio donde grababa el podcast —no reemplazando nada, porque no había nada que reemplazar, solo encontrando el espacio vacío que durante tres años había estado esperando sin que Julián lo supiera.
+
+Le tomó una foto. Se la mandó a Santi sin escribir nada más que la fecha: *20.09.2020.*
+
+Santi no respondió esa noche —no iba a ver el teléfono hasta la cena del equipo— pero Julián no esperaba respuesta. El afiche no era un mensaje. Era un cierre, de los que uno se da a sí mismo cuando lleva tres años cargando un papel enrollado de un lado a otro de la ciudad sin saber bien para qué.
 
 ---
 
@@ -134,7 +152,7 @@ Santi lo miró.
 
 — Catorce segundos del Tour de France — dijo Clarke. — El año que viene son más.
 
-Santi asintió.
+Santi asintió, los ojos todavía cansados de la crono.
 
 Clarke se fue hacia su habitación.
 

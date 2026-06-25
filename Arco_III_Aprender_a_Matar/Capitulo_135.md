@@ -115,7 +115,9 @@ El que te marca no puede ganar.
 
 **MERCKX:** El cronómetro era la carrera más honesta. En la montaña, el rival puede tener el día malo por razones que no son tuyas. En el cronómetro, el resultado es solo tuyo. Si ganás la crono, ganaste porque eras el mejor ese día. Si perdés la crono, perdiste porque alguien era mejor. No hay excusas.
 
-**SANTI:** En el Tour perdí cuarenta y siete segundos con Roglič en la crono. En treinta y seis kilómetros.
+**SANTI:** En el Tour perdí cuarenta y siete segundos con Roglič en la crono. En treinta y seis kilómetros. Pogačar me ganó la etapa y todavía me dijo que el Tour fue mío. Sin que se lo preguntara dos veces.
+
+**MERCKX:** *(asintió, despacio)* Ese es un corredor que no le tiene miedo a perder en público. Hay pocos así. La mayoría esconde la cara cuando pierde. Él la muestra entera — la sonrisa y todo. *(pausa)* Eso, con los años, lo va a hacer más peligroso, no menos.
 
 **MERCKX:** Lo sé. Vi los splits.
 
@@ -155,9 +157,9 @@ Era la pregunta que en veinte años de ciclismo nadie le había hecho exactament
 
 — Depende de la carrera.
 
-Merckx asintió.
+Merckx golpeó dos veces la mesa con el dedo, del otro lado de la pantalla, como quien cierra un trato.
 
-— Esa — dijo Merckx — es la respuesta correcta. El corredor que siempre corre para ganar termina siendo predecible. El corredor que corre para decir algo de vez en cuando es el corredor que el pelotón nunca puede anticipar del todo.
+— Esa es la respuesta correcta. El corredor que siempre corre para ganar termina siendo predecible. El corredor que corre para decir algo de vez en cuando es el corredor que el pelotón nunca puede anticipar del todo.
 
 ---
 

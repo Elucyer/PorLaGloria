@@ -146,8 +146,6 @@ El doce de octubre. La Clásica de Lombardía — el monumento de las hojas muer
 
 — Con el ochenta y seis llegás a pelear el resultado. No te reservés — la Lombardía es la última carrera. Lo que gastés ahí, lo reconstruís en noviembre.
 
-Santi anotó en el cuaderno los perfiles que Rusconi le había mandado por correo la semana anterior: el Ghisallo al kilómetro noventa y uno, el Civiglio al doscientos trece, el San Fermo alla Battaglia a nueve kilómetros del final. Los puertos del otoño italiano en el papel, el lápiz de Santi marcando los kilómetros del ataque posible.
-
 La Lombardía era en ocho días.
 
 Ocho días en Medellín y después el vuelo de vuelta.

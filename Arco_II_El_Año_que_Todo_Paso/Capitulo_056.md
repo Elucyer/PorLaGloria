@@ -76,7 +76,7 @@ Santi caminó sin que nadie lo reconociera.
 
 Eso también era nuevo, o más exactamente era la misma normalidad de siempre, pero notada de manera diferente después del Giro. En Italia, en los últimos días de la carrera, había sido imposible ir a cualquier parte sin que alguien lo señalara. En la zona mixta de Roma, en el hotel de Milán, en el aeropuerto de Fiumicino: el colombiano del segundo puesto, el que había llevado la maglia rosa, el chico de dieciocho años. Aquí, en Waregem, era el corredor del equipo Élan que vivía en el apartamento 14 de la rue des Acacias.
 
-Era suficiente.
+Le gustaba más esta versión de sí mismo.
 
 Entró al bar de la esquina de la Grand'Place.
 
@@ -580,7 +580,7 @@ Ospina, esa tarde: — Trescientos doce.
 
 No dijo *perfecto*. No dijo *excelente*. Dijo *bien* con el tono específico de Ospina que significaba: el proceso está dentro de los parámetros esperados y el proceso va a producir el resultado esperado si seguís haciendo lo que tenés que hacer.
 
-Era suficiente.
+Santi no necesitó más que eso.
 
 ---
 

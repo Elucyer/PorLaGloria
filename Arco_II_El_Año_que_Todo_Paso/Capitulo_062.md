@@ -146,6 +146,20 @@ Miró el lago.
 
 Era la primera vez que lo veía desde la bicicleta en movimiento con esas piernas y ese cielo y ese olor a octubre. Lo había visto en videos. Lo había visto en fotos. Pero la diferencia entre ver el lago de Como en una pantalla y verlo desde la bicicleta después de un Monumento con el cuerpo en ese estado específico de los finales de los Monumentos — más definitivo que los finales de etapa, más sin-vuelta-atrás — era la diferencia entre saber que algo existe y conocerlo.
 
+En la zona de firma de autógrafos, mientras los mecánicos guardaban las bicicletas en los furgones, Nibali se acercó. Llevaba la chaqueta del equipo sobre los hombros y esa manera de caminar que tenían los corredores sicilianos después de un Monumento ganado — sin prisa, como si las doscientas treinta kilómetros no le hubieran costado nada, aunque Santi sabía, por haberlo seguido seiscientos metros, que sí le habían costado.
+
+— *Diciotto anni* — dijo Nibali. No era una pregunta.
+
+— Sí.
+
+— *Cinquecento metri dietro me al Civiglio.* — Nibali sonrió, apenas, con la comisura izquierda — . A los dieciocho años. Yo a los dieciocho todavía estaba en Mesina pensando si el ciclismo me iba a dar de comer. — Hizo una pausa breve, midiendo las palabras como medía las rampas — . El Civiglio no se aprende en un año. Yo lo subí mal las primeras cinco veces. Vos lo subiste bien la primera.
+
+— Quinto no es bien.
+
+— *Quinto è cazzate.* — Nibali se rio, un sonido corto, casi privado — . Quinto es el número. Lo que vi fue otra cosa: seiscientos metros a mi rueda en el último puerto de un Monumento, sin haber corrido nunca este Monumento. Eso no es cazzate. Eso es lo que hay debajo del número. — Le puso la mano en el hombro, el mismo gesto que un minuto después iba a repetir Ferretti, como si los dos hombres que más sabían de montañas en esa carretera hubieran llegado, sin hablarlo, a la misma conclusión — . El año que viene, en el Giro, no me vas a ver a seiscientos metros. Me vas a ver a la rueda.
+
+Se fue antes de que Santi pudiera responder. Era, Santi entendería más tarde, exactamente el tipo de cosa que decía un corredor que ya no necesitaba demostrar nada y que reconocía, sin envidia, cuándo estaba mirando al que iba a venir después.
+
 Ferretti llegó en el coche y bajó.
 
 — *Quinto* — dijo.

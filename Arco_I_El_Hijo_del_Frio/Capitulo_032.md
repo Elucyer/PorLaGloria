@@ -16,9 +16,9 @@ El último entrenamiento oficial fue un jueves de diciembre, el catorce.
 
 Santi subió Santa Elena por la vertiente de Medellín —dieciséis kilómetros, pendiente media del seis punto siete, máxima del dieciséis, el sol de la mañana antioqueña golpeando de frente en los tramos orientados al este— en cuarenta y cuatro minutos y once segundos. Era su mejor tiempo personal en ese puerto por dos minutos y diecisiete segundos. Llegó a la cima con el pecho trabajando fuerte y las piernas en ese estado de agotamiento satisfecho que distingue el esfuerzo completo del esfuerzo a medias.
 
-Ospina llegó en el carro cuatro minutos después.
+Ospina llegó en el carro cuatro minutos después, con el motor todavía tosiendo por la altura.
 
-Bajó. Lo miró. Anotó algo en la libreta.
+Bajó. Lo miró sin decir nada —un repaso rápido, de arriba abajo, como quien evalúa una bicicleta antes de comprarla. Anotó algo en la libreta.
 
 —¿Cuánto? —preguntó Santi.
 
@@ -32,7 +32,7 @@ Bajó. Lo miró. Anotó algo en la libreta.
 
 —Y te faltaron tres minutos y siete segundos para el absoluto.
 
-Santi miró el valle. Medellín abajo, extendida entre las montañas, con el smog de la mañana atrapado en el fondo del cañón y el sol por encima de todo.
+Santi miró el valle. Medellín abajo, extendida entre las montañas, con el smog de la mañana atrapado en el fondo del cañón y el sol por encima de todo. El sudor se le enfriaba en la espalda, un frío repentino que contrastaba con el calor todavía vivo en las piernas.
 
 —El año que viene subo eso en cuarenta —dijo.
 
@@ -44,13 +44,13 @@ Ospina no respondió de inmediato. Cerró la libreta. La guardó en el bolsillo 
 
 —Siéntate —dijo.
 
-Se sentaron en el capó del carro. El viento de Santa Elena a dos mil quinientos metros olía a pino y a algo eléctrico que no tenía nombre.
+Se sentaron en el capó del carro, el metal todavía tibio del sol que empezaba a calentarlo. El viento de Santa Elena a dos mil quinientos metros olía a pino y a algo eléctrico que no tenía nombre, y abajo, muy lejos, un gallo cantaba fuera de horario, como si no le importara que ya fueran las nueve de la mañana.
 
 —Tengo que decirte algo —dijo Ospina— antes de que te vayas.
 
 —Diga.
 
-—Dos cosas. La primera: lo que has hecho en dos años —desde que llegaste al club hasta hoy— es lo más rápido que he visto progresar a un corredor en treinta años. No es un elogio. Es un dato. Los elogios te los van a dar otros.
+—Dos cosas. —Levantó un dedo, como si necesitara el gesto para no perder la cuenta—. La primera: lo que has hecho en dos años, desde que llegaste al club hasta hoy, es lo más rápido que he visto progresar a un corredor en treinta años. No es un elogio. Es un dato. Los elogios te los van a dar otros.
 
 —¿Y la segunda?
 
@@ -96,6 +96,8 @@ Ospina volvió a guardar silencio. Era un hombre que se tomaba las preguntas en 
 
 —Porque mientras estás corriendo, la gloria tiene el tamaño del mundo entero. Y eso no lo da ninguna otra cosa.
 
+Un colibrí cruzó entre los dos, bajo y rápido, hacia las flores de un arbusto al borde de la carretera. Ninguno de los dos lo siguió con la mirada por mucho tiempo.
+
 ---
 
 La última tarde en La América fue el veintidós de diciembre.
@@ -106,7 +108,7 @@ Santi llevó la bicicleta al taller del hermano de Ospina para una revisión fin
 
 Ospina dudó. Luego la empujó hacia él.
 
-Era una libreta de espiral, con la tapa azul oscura desgastada en las esquinas. La mayoría de las páginas tenían datos: tiempos, potencias, cadencias, comentarios breves escritos en la letra apretada de Ospina. Pero en la última página con escritura —no la última hoja, sino la última que tenía algo— había una sola frase, escrita en el margen derecho con bolígrafo rojo:
+Era una libreta de espiral, con la tapa azul oscura desgastada en las esquinas y una mancha de aceite vieja en una punta. La mayoría de las páginas tenían datos: tiempos, potencias, cadencias, comentarios breves escritos en la letra apretada de Ospina. Pero en la última página con escritura —no la última hoja, sino la última que tenía algo— había una sola frase, escrita en el margen derecho con bolígrafo rojo:
 
 *Este es el mejor que he visto. Y le falta la mitad.*
 
@@ -130,7 +132,7 @@ El mecánico asomó la cabeza desde el taller: la bicicleta estaba lista.
 
 Santi se levantó. Extendió la mano.
 
-Ospina la estrechó. Firmemente. Sin más.
+Ospina la estrechó. Firmemente. Sin más. Sostuvo el apretón un segundo más de lo necesario antes de soltarlo.
 
 —Ospina —dijo Santi.
 
@@ -140,6 +142,8 @@ Ospina la estrechó. Firmemente. Sin más.
 
 —No me des gracias. Gana cosas.
 
+Se quedó en la puerta del taller, con las manos en los bolsillos, viendo cómo Santi cargaba la caja de la bicicleta hasta el carro de su padre. No se movió hasta que el carro dio la vuelta en la esquina.
+
 ---
 
 El veinticuatro de diciembre, Santi fue a San José de la Montaña con su familia por última vez antes del viaje.
@@ -148,7 +152,7 @@ Esta vez la niebla estaba más densa que nunca —su madre dijo que era porque h
 
 Salió a correr a las seis de la mañana.
 
-Sin bicicleta esta vez —solo corriendo, por las carreteras del pueblo, con los pies en el asfalto y la respiración haciendo vapor en el frío de dos mil quinientos metros. Pasó por el lote donde había estado la casa de bahareque. Por la plaza. Por la carretera que salía hacia las veredas del norte y que de niño había recorrido siguiendo a su padre en bicicleta.
+Sin bicicleta esta vez: solo corriendo, por las carreteras del pueblo, con los pies golpeando el asfalto mojado y la respiración haciendo vapor en el frío de dos mil quinientos metros, ese frío que se le metía por la nariz y bajaba directo hasta algún lugar del pecho donde se quedaba un rato antes de disolverse. Pasó por el lote donde había estado la casa de bahareque, ya cubierto de maleza nueva. Por la plaza, todavía vacía a esa hora salvo por un perro que dormía bajo un toldo. Por la carretera que salía hacia las veredas del norte y que de niño había recorrido siguiendo a su padre en bicicleta, agarrado al sillín cuando las piernas no le daban más.
 
 Corrió durante cuarenta minutos. No marcó el tiempo. No llevaba el pulsómetro.
 
@@ -210,7 +214,7 @@ Carmen rodeó el pocillo con las dos manos, aunque ya no estaba caliente.
 
 —¿Tienes miedo? —dijo.
 
-Era la primera vez que se lo preguntaba directamente. En todos los años anteriores —las madrugadas en el Alto de Minas, el primer torneo, el Tour de l'Avenir— nunca se la había hecho.
+Era la primera vez que se lo preguntaba directamente. En todos los años anteriores —las madrugadas en Santa Elena, el primer torneo, el Tour de l'Avenir— nunca se la había hecho.
 
 Santi pensó si decir que no.
 
@@ -233,5 +237,7 @@ Le puso la mano en la mejilla. Un segundo. La retiró.
 —Llama cuando llegues —dijo.
 
 —Llamo cuando llegue.
+
+Hernando ya tenía el carro encendido en la puerta. Carmen se quedó en el umbral, los brazos cruzados sobre el suéter, mirando cómo subían el equipaje al taxi en la oscuridad casi total de la calle. No salió a despedirlos en la acera. Se quedó justo ahí, en el marco de la puerta, hasta que las luces traseras del carro desaparecieron en la curva.
 
 Salieron.

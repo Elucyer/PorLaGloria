@@ -32,7 +32,7 @@ Rusconi tomó la palabra.
 
 Santi escuchó eso sin reaccionar. No era una sorpresa — era la confirmación de lo que había escrito en el cuaderno en el avión de Tokio a Helsinki, en el avión de Milán a Barcelona, en cada noche desde julio.
 
-*Siempre la crono.*
+La crono. Otra vez la crono.
 
 ---
 
@@ -204,7 +204,7 @@ Hernando procesó el número con la misma atención con que había procesado, me
 
 *Un kilómetro más que la semana pasada.*
 
-*Cerró el cuaderno.*
+*Dejó el bolígrafo sobre la página abierta y se quedó mirando el número un momento más antes de apagar la lámpara.*
 
 *Afuera, Girona tenía el frío seco de diciembre, las calles del Barri Vell vacías a esa hora, las luces de Navidad que el ayuntamiento había puesto en la Rambla la semana anterior, el primer año desde 2019 que Santi pasaba las fiestas en Europa en lugar de volver a Medellín, porque el plan de Rusconi para el túnel de viento de enero no dejaba margen para un vuelo intercontinental de ida y vuelta.*
 

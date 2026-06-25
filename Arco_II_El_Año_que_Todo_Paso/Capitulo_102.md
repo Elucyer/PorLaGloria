@@ -224,7 +224,7 @@ Un silencio más largo.
 
 — ¿Cómo estás, papá?
 
-— Bien — dijo Hernando. Y luego, en el tono que usaba para las cosas que eran más de lo que parecían: — El ferrocarril antioqueño llegó a Barbosa en mil novecientos dieciocho. Cien años antes de que vos nacieras.
+— Bien — dijo Hernando. Y luego, en el tono que usaba para las cosas que eran más de lo que parecían: — El ferrocarril antioqueño llegó a Barbosa en mil novecientos dieciocho. Ochenta y dos años antes de que vos nacieras.
 
 Santi tardó un momento en entender la conexión.
 

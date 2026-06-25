@@ -97,6 +97,8 @@ Vidal trabajó en el Hourcère.
 
 El español de Vitoria-Gasteiz que en los últimos cuatro kilómetros del puerto subió con el ritmo que Ferretti había pedido — no el ritmo del ataque, el ritmo del filtro. El equipo llevando al líder sin gastar lo que el Soudet y la Marie-Blanque iban a necesitar.
 
+Los Pirineos del sur, en la ladera francesa, no se parecían a los puertos vascos donde Vidal había aprendido a subir bicicleta antes de aprender a conducir un coche — pero el verde de los prados a los lados de la carretera, el ganado disperso en las laderas, el olor de la hierba mojada que el calor de septiembre no había terminado de secar, le recordaban algo que no podía nombrar del todo mientras pedaleaba al setenta y cuatro por ciento de esfuerzo. Su padre, en Vitoria-Gasteiz, iba a estar viendo esto mismo seis horas después por la diferencia horaria, en la tele de la cocina, con el mismo cuaderno de toda la vida donde anotaba los puertos que su hijo subía y los que él mismo había subido treinta años antes sin que ningún equipo WorldTour lo hubiera fichado nunca. Vidal pensó que algún día tendría que explicarle a su padre que el Hourcère no era nada — que el trabajo de hoy era guardar piernas para otro puerto, no ganar nada en este. Su padre lo iba a entender. Llevaba toda la vida entendiendo trabajos de gregario que nadie aplaudía.
+
 El Col d'Ichère: un repecho de cuatro kilómetros entre el descenso del Hourcère y el inicio del Soudet. El pelotón de cuarenta corredores que sobrevivía se mantendría compacto aquí — los cuarenta que sabían que los tres puertos restantes iban a decidir.
 
 ---
@@ -119,7 +121,7 @@ Los doce que subían el Col du Soudet con los equipos de los favoritos eran los 
 
 Los tres Corredores en los doce. Bernal también — el colombiano del Ineos que en los cuatro días de transición había recuperado algo del déficit de Orcières. Adam Yates del Mitchelton. Mas y Landa del Movistar. Y Jonas Vingegaard — el danés de veintitrés años del Jumbo-Visma que en su primer Tour de France había rodado ocho etapas sin que los medios pronunciaran su nombre y que en la cima del Col du Soudet apareció en el grupo de los doce sin que nadie del pelotón lo hubiera convocado.
 
-Roglič en la cima del Soudet — el primero del grupo, el hombre que había fijado el ritmo. No lo había acelerado para abrir una brecha: lo había fijado para que los que no podían con ese ritmo cedieran antes del puerto donde la carrera se decidía de verdad.
+Roglič en la cima del Soudet — el primero del grupo, el hombre que había fijado el ritmo. No lo había acelerado para abrir una brecha: lo había fijado para que los que no podían con ese ritmo cedieran antes del puerto donde la carrera se decidía de verdad. En la cima, antes del descenso, miró un segundo el pequeño display del manillar — los vatios promedio del tramo, el dato que confirmaba lo que el cuerpo ya sabía — y lo guardó sin decir nada a los gregarios que llegaban detrás. No hacía falta explicarles lo que el número decía. El número era para él.
 
 Santi en la cima del Soudet: tercero del grupo, a rueda de Pogačar.
 
@@ -303,23 +305,11 @@ Pogačar tercero, a treinta y uno.
 
 *"¡Santi Reyes gana en Laruns! ¡Santiago Reyes Cardona gana la novena etapa del Tour de France 2020! El primer colombiano que gana una etapa pirenaica del Tour desde... señores, ¡Santi Reyes ataca en la cima de la Marie-Blanque y llega solo a Laruns! Roglič segundo, a veinte segundos. Pogačar tercero, a treinta y uno. Y señores — la GC. Santi Reyes, que llegó al Tour a doce segundos de Roglič, sale de Laruns con el maillot amarillo virtual. Con ocho segundos de ventaja sobre Roglič. Santi Reyes lidera el Tour de France 2020."*
 
-*Hernando escribió en el cuaderno — el bolígrafo:*
+*Hernando se quedó con el bolígrafo a medio camino del cuaderno, sin escribir todavía, como si necesitara un segundo más de la imagen antes de convertirla en tinta.*
 
-*E9. Marie-Blanque. Santi primero. Roglič +20". Pogačar +31". Amarillo.*
+*Cuando por fin escribió, la letra le salió más grande de lo normal: E9. Marie-Blanque. Santi primero. Roglič +20". Pogačar +31". Amarillo.*
 
-*Una sola palabra más, debajo:*
-
-*Amarillo.*
-
-*Carmen desde la cocina: — ¿Ganó?*
-
-*— Ganó — dijo Hernando. — Y lleva el amarillo.*
-
-*Carmen se asomó al balcón.*
-
-*— ¿El amarillo del Tour?*
-
-*— El amarillo del Tour.*
+*Carmen entró sin que la llamaran, secándose las manos en el delantal, y se quedó parada detrás de la silla leyendo por encima del hombro de Hernando. No dijo nada. Apoyó la mano en su espalda, entre los hombros, el mismo gesto de siempre, y los dos se quedaron mirando la palabra Amarillo como si fuera un nombre propio.*
 
 ---
 
@@ -335,13 +325,15 @@ El periodista de *L'Équipe*:
 
 — Primož, cediste dieciocho segundos. ¿Cómo cambia el Tour?
 
-Roglič, con la economía de siempre: — El Tour no termina en Laruns.
+Roglič, con la economía de siempre, los ojos un instante en el ciclocomputador que un mecánico le había desmontado del manillar y le había puesto en la mano: — El Tour no termina en Laruns.
+
+No agregó nada sobre los veinte segundos perdidos en el descenso ni sobre lo que el kilómetro seis de la Marie-Blanque le había costado. El número ya estaba ahí, en la pantalla pequeña que sostenía. No necesitaba decirlo dos veces.
 
 El periodista de *Sporza*:
 
 — Tadej, segundo en la etapa. ¿Santi Reyes es el favorito ahora?
 
-Pogačar: — Santi ganó la etapa más dura del día. Eso dice algo. — Pausa. — Pero el Tour tiene once etapas más.
+Pogačar: — Santi ganó la etapa más dura del día. Eso dice algo. — Pausa. — Pero el Tour tiene once etapas más. — Y agregó, sin que el periodista lo pidiera, con la generosidad verbal de quien prefiere reconocer al rival en voz alta antes de que se lo preguntan dos veces: — Atacó en la cima donde nadie más tenía piernas para responder. Eso no se entrena. Eso se nace con eso, o no.
 
 La zona mixta fue ocho minutos. Santi respondió las preguntas con la economía del corredor que lleva el amarillo por primera vez en el Tour y que sabe que el amarillo del día nueve del Tour es el amarillo que la montaña da y que la crono puede quitar.
 
@@ -351,17 +343,17 @@ En el hotel de Laruns esa noche.
 
 Ferretti, Rusconi, Santi.
 
-Rusconi con el portátil: — Los números. Km 4 respuesta Roglič: 3,2 — en Orcières fue 2,8. La tendencia continúa. — Proyectó el cuadro. — El amarillo: ocho segundos sobre Roglič, cuarenta y seis sobre Pogačar.
+Rusconi tenía el portátil abierto antes de que los otros dos se sentaran, como si llevara veinte minutos esperando ese momento exacto para hablar. — I numeri. Km 4, respuesta de Roglič: 3,2. En Orcières fue 2,8. La tendencia sigue, *capisci*. — Proyectó el cuadro sin que nadie lo pidiera. — El amarillo: ocho segundos sobre Roglič, cuarenta y seis sobre Pogačar.
 
 Ferretti: — ¿Es suficiente?
 
 Rusconi: — No. Con el perfil del Tour, Roglič puede recuperar ocho segundos en la crono de La Planche con los ojos cerrados. — Pausa. — Lo que hoy empieza es el proceso de construir el margen que la crono no puede borrar. Ocho segundos no alcanza. Hace falta más.
 
-Santi lo escuchó.
+Santi lo escuchó sin moverse, los codos en las rodillas, mirando un punto fijo del piso de la habitación.
 
-— ¿Cuánto? — dijo.
+— Entonces dame el número que sí alcanza.
 
-— Para ganar el Tour con la crono de La Planche — dijo Rusconi — necesitás llegar a la E20 con más de un minuto sobre los dos. Con noventa segundos mínimos sobre Roglič, el Tour es tuyo aunque la crono cueste.
+Rusconi no dudó. — Para ganar el Tour con la crono de La Planche en contra, necesitás llegar a la E20 con más de un minuto sobre los dos. Noventa segundos mínimos sobre Roglič y el Tour es tuyo aunque la crono te cueste lo que tiene que costarte.
 
 Noventa segundos.
 
@@ -383,44 +375,24 @@ El Tour de France 2020 empezaba mañana de verdad.
 
 Las once y media de la noche de Colombia.
 
-Hernando cerró el cuaderno.
+El café de la tarde se había enfriado del todo en la taza, sin que Hernando lo notara hasta que fue a tomar un sorbo y encontró solo el líquido tibio y amargo del fondo. Cuatro páginas del cuaderno llenas — los kilómetros del Soudet, los tiempos del Hourcère, el perfil de la Marie-Blanque con las flechas de cada ataque, los splits que el narrador había dado en vivo y que él había transcrito con el bolígrafo sin levantar apenas la vista de la pantalla.
 
-Tenía el análisis de la etapa en las últimas cuatro páginas — los kilómetros del Soudet, los tiempos del Hourcère, el perfil de la Marie-Blanque con los puntos de ataque marcados, los splits de cada movimiento que el narrador había dado en vivo y que Hernando había registrado con el bolígrafo mientras el café de la tarde se enfriaba en la taza.
+Carmen entró en pijama, el pelo ya suelto de la trenza del día.
 
-La última línea, con letra más apretada que el resto:
+— ¿Comiste algo?
 
-*Marie-Blanque: nadie mostró todo. Los tres llegaron juntos. Ninguno cedió.*
+— La arepa de las seis.
 
-Y debajo, con el bolígrafo y no con el lápiz — los datos definitivos, no los provisionales:
+— Una arepa no es cenar, Hernando.
 
-*Roglič: 3,2 en el km 4. Orcières: 2,8. La diferencia es acumulación. En el Loze, con cuatro puertos antes, ese número es otro.*
+Él no respondió. Tenía los ojos en el último renglón que había escrito: *Roglič: 3,2 en el km 4. Orcières: 2,8. La diferencia es acumulación.* Y debajo, subrayado dos veces porque le parecía que el subrayado era la única forma de decir lo que sentía sin decirlo: *El danés aguantó más que Bernal. No sé qué es todavía. Pero va a molestar.*
 
-*Pogačar: 1,7 sin degradación. Eso es diferente.*
+Carmen se sentó al borde de la cama, esperando.
 
-*El danés. Vingegaard. 23 años, primer Tour. Aguantó km 3,4 de la Marie-Blanque en el 12%. Más que Bernal.*
+Hernando finalmente levantó la cara del cuaderno, y por un momento, antes de hablar, fue solo el padre cansado de un hombre que vive el Tour de France entero a través de un televisor y un cuaderno, y no el estratega que anotaba tiempos de respuesta en décimas de segundo.
 
-*No sé qué es todavía. Pero ese corredor va a molestar.*
+— Diez días para el Loze — dijo, casi para sí mismo.
 
-*El Loze en diez días.*
-
-Carmen desde la puerta entreabierta: — ¿Comiste algo?
-
-— El arepita de las seis.
-
-— Un arepita no es cenar.
-
-Era el mismo intercambio de siempre.
-
-Hernando no respondió.
-
-Miraba las cuatro páginas del cuaderno — los perfiles, los números, las flechas que indicaban los puntos de ataque y los tiempos de respuesta de los tres Corredores.
-
-La Marie-Blanque decía algo que Orcières no había dicho: que el costo de cada respuesta de Roglič crecía con cada etapa de montaña. No en cada respuesta individual — en el acumulado. Y que el acumulado del Loze, con cuatro puertos antes de la cima, iba a ser un acumulado que en la Marie-Blanque todavía no existía.
-
-Diez días para el Loze.
-
-Hernando lo sabía.
-
-Santi también.
+Carmen apagó la lámpara de la mesa de noche, no la de él, y se quedó mirando el techo en la oscuridad parcial, escuchando el sonido del bolígrafo que todavía garabateaba algo en la última línea de la página.
 
 ---

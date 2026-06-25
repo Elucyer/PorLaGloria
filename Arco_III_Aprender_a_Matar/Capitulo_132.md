@@ -22,7 +22,7 @@ El comedor del hotel de Lure. Colombo al lado — el veterano de Bérgamo que en
 
 — Al ochenta y dos.
 
-— Alcanza.
+Colombo asintió una sola vez, sin más comentario, y siguió comiendo.
 
 Era la misma conversación de Villard-de-Lans, con los números cambiados. El ochenta y dos era el cuerpo que llegaba a la crono final del Tour con el peso de tres semanas y tres victorias de etapa. El cuerpo que en la crono necesitaba distribuir lo que tenía en treinta y seis kilómetros y que al final de esos treinta y seis kilómetros tenía que haber defendido cuarenta y un segundos.
 
@@ -152,6 +152,8 @@ Cincuenta segundos.
 
 Pogačar había terminado — había salido cinco minutos antes y había terminado mientras Santi todavía subía. Había ganado la etapa. Había hecho los treinta kilómetros de llano más rápido de lo proyectado y los seis kilómetros de La Planche a 7,3 vatios por kilogramo. Y aun así: cincuenta segundos.
 
+En la zona de meta, todavía sin aire, Pogačar miró hacia la pantalla gigante que proyectaba el tiempo provisional de Santi en el kilómetro cuatro. No apartó la vista. La sonrisa del que acababa de ganar la etapa más importante de su carrera se le borró sin que nadie le preguntara nada — el gesto que en él era el opuesto exacto de la victoria, el cálculo silencioso de cuánto le faltaba todavía.
+
 El rango del escenario que Hernando había calculado en el balcón de Laureles — entre once y cuarenta y un segundos, cualquier punto del rango era ganar el Tour. Cincuenta estaba por encima del rango.
 
 Santi subió.
@@ -161,6 +163,8 @@ No calculó. Pedaleó.
 ---
 
 El kilómetro cinco.
+
+En la zona de meta, Roglič había cruzado la línea minutos antes que Pogačar y se había quitado el casco sin esperar el resultado de Santi en la pantalla — el esloveno que en treinta años de carrera había aprendido que mirar el marcador antes de que el rival termine no cambia el número que va a aparecer. Se sentó en el borde del autobús del Jumbo, el sudor todavía cayendo, los ojos en el suelo del asfalto y no en la pantalla gigante. Cuando alguien del equipo le dijo el tiempo provisional de Santi, Roglič solo asintió una vez, sin palabras, y se quedó esperando el número definitivo con la misma cara con la que había esperado los catorce segundos del Col de la Loze.
 
 Rusconi: — Roglič cruzó. Tiempo final: 55 minutos y 11 segundos. — Pausa. — Cuarenta y siete segundos más rápido que tu proyección. Tu ventaja sobre Roglič en el Tour: de 1:01 a 14 segundos.
 
@@ -188,11 +192,9 @@ Cruzó la línea.
 
 El cronómetro: 55 minutos y 58 segundos.
 
-Santi cerró los ojos.
+Santi cerró los ojos un segundo — el sudor frío en la nuca, el pulso todavía martillando en los oídos, el silencio repentino de las piernas que ya no tenían que empujar nada.
 
-Un segundo.
-
-Luego los abrió.
+Los abrió a la multitud reducida del protocolo pandémico, las banderas, las cámaras.
 
 ---
 

@@ -158,7 +158,7 @@ Santi tampoco.
 
 Rodaron cinco kilómetros más en silencio y luego el pelotón se reorganizó para una rotunda y quedaron separados por cuatro posiciones, y eso fue toda la conversación que tuvieron en tres semanas de Giro.
 
-Era suficiente.
+Entre corredores de ese nivel, no hacía falta más.
 
 ---
 

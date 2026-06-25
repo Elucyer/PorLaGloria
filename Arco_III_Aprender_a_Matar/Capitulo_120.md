@@ -58,9 +58,11 @@ Santi estaba tercero del echelon.
 
 Detrás de Duchêne, que tiraba por el FCV. Clarke: quinto del echelon, dos posiciones detrás de Santi. El australiano había entrado en el primer grupo en el kilómetro sesenta y ocho con los movimientos del corredor que en los echelons de las clásicas flamencas sabía exactamente cuándo abrir el hueco y cuándo ocuparlo — el rouleur que en el briefing de la mañana había escuchado *me ponéis a Santi en el primer grupo* y que ahora lo hacía con la economía del veterano que no gasta un vatio más de lo necesario. Rensen detrás de Clarke — el danés que ajustaba a la rueda del australiano con la regularidad del corredor que en las etapas de viento no improvisa: Clarke abre el espacio, Rensen mantiene el orden, Santi llega sin haber gastado lo que Clarke y Rensen habían gastado para él.
 
-Delante de Pogačar, que había entrado en el echelon cuatro posiciones detrás de Santi y que en los primeros kilómetros de la formación diagonal había escalado dos posiciones con los movimientos laterales del corredor que conoce exactamente cuánto espacio necesita y cuándo el espacio está.
+Delante de Pogačar, que había entrado en el echelon cuatro posiciones detrás de Santi y que en los primeros kilómetros de la formación diagonal había escalado dos posiciones con los movimientos laterales del corredor que conoce exactamente cuánto espacio necesita y cuándo el espacio está. En un tramo donde el viento amainó dos segundos, miró hacia Santi y le dijo algo en inglés que el viento se llevó antes de que llegara completo — Santi solo alcanzó a leerle los labios, no a oírlo, y no le preguntó después qué había sido.
 
 A la izquierda de Santi: Roglič, dos posiciones adelante, el jersey del Jumbo-Visma amarillo y negro en la parte delantera del echelon, el esloveno que subía el ritmo cada vez que el viento cedía un punto y que bajaba exactamente cuando volvía para mantener al grupo en el límite máximo de lo que los del echelon podían sostener.
+
+No miraba atrás para medir el daño que hacía. Lo sabía sin mirar — el cuerpo del exsaltador de esquí que en quince años de bicicleta había aprendido a leer el viento con la misma precisión con que antes leía el aire bajo los esquís, sin necesitar la confirmación de los ojos.
 
 Era la manera de Roglič de atacar en el llano.
 
@@ -90,11 +92,13 @@ Carmen: — ¿Es peligroso para Santi?
 
 — Para los que no están en el grupo bueno.
 
-Carmen miró la pantalla. La formación diagonal del echelon desde el helicóptero — la imagen de treinta corredores volando por la carretera de Provenza en diagonal, el viento que empujaba desde la izquierda, los jerseys de colores en la fila inclinada.
+Carmen miró la pantalla. La formación diagonal del echelon desde el helicóptero — la imagen de treinta corredores volando por la carretera de Provenza en diagonal, el viento que empujaba desde la izquierda, los jerseys de colores en la fila inclinada, un solo organismo que respiraba al ritmo del viento y no al de las piernas.
 
 — ¿Cuánto pueden aguantar así?
 
-— Lo que el viento aguante — dijo Hernando.
+Hernando no respondió de inmediato. Tenía los ojos fijos en la franja de corredores que se inclinaba contra el viento como un campo de trigo maduro.
+
+— Lo que el viento aguante.
 
 ---
 
@@ -122,6 +126,8 @@ El periodista de *Eurosport*:
 
 Roglič: — El viento era el viento. Nosotros solo corrimos.
 
+No hubo nada después de esa frase — ni la explicación de la táctica del Jumbo en el echelon, ni el mérito reclamado de haber leído el mistral mejor que los demás. Roglič ya se daba la vuelta hacia el autobús cuando el periodista intentó una segunda pregunta. El esloveno no la escuchó, o no quiso escucharla.
+
 El periodista de *L'Équipe*:
 
 — Santi, ¿fue una sorpresa el echelon?
@@ -135,6 +141,20 @@ El periodista de *Sporza*:
 Van Aert, que había estado en el echelon delantero con el Jumbo de Roglič: — La etapa de hoy decidió el Tour. Los que están en el grupo bueno tienen el Tour en sus manos. Los otros... — Se encogió de hombros. — Es el ciclismo.
 
 Era la respuesta directa del flamenco que entiende el viento como un elemento de la táctica y no como una circunstancia aleatoria.
+
+---
+
+En el autobús del equipo, camino al hotel de Sisteron, Clarke se dejó caer en el asiento junto a Rensen — los dos todavía con el sudor seco de la sal en la piel, las piernas extendidas en el pasillo del autobús con la pesadez específica de los setenta y dos kilómetros de echelon.
+
+— Hoy nadie nos vio — dijo Clarke. — Setenta y dos kilómetros al límite y en la transmisión hablan del viento, de Roglič, de Van Aert. De nosotros, nada.
+
+Rensen miró por la ventanilla la carretera de Provenza que se quedaba atrás.
+
+— En Dinamarca — dijo — el viento no necesita que alguien lo mire para existir.
+
+Clarke lo miró un segundo, esperando que siguiera. Rensen no siguió. Volvió a mirar la ventanilla, y esa fue toda la frase — la más larga que el danés había dicho en cuatro días de Tour, y la única vez en toda la carrera en que alguien lo oyó explicar, sin que se lo pidieran, por qué hacía lo que hacía sin necesitar que nadie lo notara.
+
+Clarke no insistió. Cerró los ojos y dejó que el autobús hiciera el resto del trabajo.
 
 ---
 
@@ -201,5 +221,7 @@ Y el kilómetro seis del ascenso a Orcières-Merlette era el kilómetro donde lo
 Lo que los datos no podían predecir era en qué kilómetro exacto iba a decidir Santi que la condición existía.
 
 Probablemente el cinco.
+
+Afuera, en la calle del hotel de Gap, un perro ladraba a algo que nadie más oía. Santi apagó la luz de la mesa de noche y se quedó mirando el techo, contando en la oscuridad los kilómetros que le faltaban para saber si su padre, a siete mil kilómetros de distancia y dos husos horarios atrás, tenía razón otra vez.
 
 ---

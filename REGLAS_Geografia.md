@@ -75,8 +75,7 @@ Las carreras reales se narran con las rutas, etapas, ciudades, puertos y resulta
 
 | Puerto | Longitud | Altitud cima | Pendiente media | Variante narrativa |
 |--------|----------|--------------|-----------------|---------------------|
-| Alto de Minas (Medellín, vía La Ceja) | ~23 km desde Medellín | 2.500 m | ~5,5% | Entrenamiento habitual de Santi |
-| Alto de Minas por Caldas (desde Neira) | 41 km | ~2.500 m | 4,2% (tramo final 7–8%) | Etapa reina Clásico RCN juvenil 2016 |
+| Alto de Minas por Caldas (desde Neira) | 41 km | 2.352 m | 4,2% (tramo final 7–8%) | Etapa reina Clásico RCN juvenil 2016. NO existe un "Alto de Minas" cercano a Medellín — ver `REFERENCIA_Puertos_Colombia_Medellin.md`. El entrenamiento habitual de Santi es Santa Elena, Boquerón o Las Palmas. |
 | Alto de Palmas (Medellín–Rionegro) | 18 km desde CC San Diego | 2.486 m | 5,7% | Entrenamiento; etapa reina Porvenir Antioqueño |
 | Santa Elena (vía Buenos Aires) | 14 km | 2.550 m | 6,8% | Entrenamiento semanal de Santi |
 | Boquerón (vía Caldas–Amagá) | 9,7 km (punto partida: km 33 vía Caldas) | 2.560 m | 9,2% promedio, tramo máx. 14% | Récord sub-17 de Santi en dic. 2015 |

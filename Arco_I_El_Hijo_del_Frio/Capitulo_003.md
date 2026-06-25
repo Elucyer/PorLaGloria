@@ -32,7 +32,7 @@ Hernando intervino entonces:
 
 Santi lo miró.
 
-—Muchos —dijo su padre—. El Alto de Minas. El Boquerón. El Alto de Letras. Más puertos de los que hay aquí. Y mejores.
+—Muchos —dijo su padre—. Santa Elena. El Boquerón. Las Palmas. Más puertos de los que hay aquí. Y mejores.
 
 Eso no resolvió nada, pero cerró la conversación. Santi pasó las semanas siguientes en un silencio que su madre interpretó como aceptación y que en realidad era otra cosa: el proceso de un niño de doce años inventariando todo lo que va a perder y calculando si lo que va a ganar lo vale. Un cálculo imposible, porque a los doce años uno todavía no sabe qué es lo que tiene hasta que ya no lo tiene.
 
@@ -56,13 +56,13 @@ Rodrigo vivía a cuatro casas. Fueron al kiosco, como siempre, y pidieron dos ga
 
 —No hay metro en San José para haberme acostumbrado.
 
-Rodrigo se rió un poco. Luego se puso serio otra vez, con esa seriedad torpe de los niños de doce años que no saben cómo manejar las emociones grandes.
+Rodrigo se rió un poco, con la botella todavía en la boca, y el sonido le salió raro, mezclado con la gaseosa. Luego se puso serio otra vez.
 
 —Va a ser raro sin ti —dijo.
 
 —Va a ser raro sin acá —dijo Santi.
 
-No dijeron más. Terminaron las gaseosas. Caminaron de vuelta. En la puerta de su casa, Rodrigo le extendió la mano como si fueran adultos cerrando un trato, y Santi se la estrechó, y se separaron sin abrazarse porque tenían doce años y ninguno de los dos sabía todavía que los abrazos no son de adultos sino de personas que entienden que algunas despedidas no tienen vuelta atrás.
+No dijeron más. Terminaron las gaseosas mirando la calle, donde doña Petra barría el frente del kiosco como todas las tardes, ajena a que esa fuera la última vez. Caminaron de vuelta sin apurarse. En la puerta de su casa, Rodrigo le extendió la mano como si fueran adultos cerrando un trato, y Santi se la estrechó, y se separaron sin abrazarse. Ninguno volvió la cabeza al doblar la esquina.
 
 ---
 
@@ -76,7 +76,7 @@ No porque no quisiera. Sino porque sabía, con esa sabiduría instintiva que a v
 
 La carretera bajaba entre potreros verdes, con las vacas indiferentes a cada lado, y la niebla de la mañana enredada en los árboles de los bordes. Santi lo fue mirando todo con una atención que no era normal en él —la quebrada que cruzaban por el puente de cemento, el caserío de tres casas y una tienda a mitad de la bajada, la curva donde siempre había una mata de heliconias que florecía rojo intenso contra el verde de todo lo demás. Lo miraba todo como quien hace un inventario. Como quien sabe que esto es lo último.
 
-Ochenta kilómetros después, cuando la autopista empezó a llenarme de señales de Medellín y los apartamentos comenzaron a aparecer a los lados de la vía como dientes apretados, Santi apartó la frente del vidrio.
+Ochenta kilómetros después, cuando la autopista empezó a llenarse de señales de Medellín y los apartamentos comenzaron a aparecer a los lados de la vía como dientes apretados, Santi apartó la frente del vidrio.
 
 Ya estaban en otro mundo.
 
@@ -96,13 +96,11 @@ No era San José.
 
 No era nada parecido a San José.
 
-Pero su padre había dicho que había puertos de montaña cerca. El Alto de Minas. El Boquerón. Y Santi decidió, en esa cama del cuarto de depósito que olía a cajas viejas, que eso era lo único que necesitaba saber por ahora. La situación en casa del primo era temporal —su padre ya estaba buscando apartamento propio, en pocas semanas estarían instalados de verdad. El resto —el colegio nuevo, los compañeros que no lo conocían, la ciudad que no tenía ninguna de sus geografías familiares— era ruido de fondo.
+Pero su padre había dicho que había puertos de montaña cerca. Santa Elena. El Boquerón. Y Santi decidió, en esa cama del cuarto de depósito que olía a cajas viejas, que eso era lo único que necesitaba saber por ahora. La situación en casa del primo era temporal —su padre ya estaba buscando apartamento propio, en pocas semanas estarían instalados de verdad. El resto —el colegio nuevo, los compañeros que no lo conocían, la ciudad que no tenía ninguna de sus geografías familiares— era ruido de fondo.
 
 Lo que importaba estaba afuera de la ciudad, en esas montañas que desde ninguna ventana del apartamento podía ver pero que sabía que estaban ahí, esperándolo, indiferentes y perfectas como todas las montañas que valen la pena.
 
-Mañana, pensó.
-
-Mañana busco el camino.
+Afuera, el perro seguía ladrándole a lo que fuera. Santi cerró los ojos y, antes de dormirse, ya estaba calculando cuántas cuadras habría entre el apartamento nuevo y la primera subida de verdad.
 
 ---
 
@@ -110,6 +108,6 @@ Lo que Santi dejó en San José de la Montaña: a Rodrigo Torres, con quien sigu
 
 Lo que llevó consigo: el frío en los huesos. El hambre. La voz de su padre diciéndole que las piernas aprenden solas si uno les da tiempo.
 
-Y la certeza, que a los doce años ya era tan parte de él que no podía distinguirla del resto, de que en algún lugar de este mundo había una montaña que estaba esperando que él llegara a subirla.
+Y algo más difícil de nombrar: la certeza de que, en algún lugar de ese territorio nuevo y desconocido, había una montaña esperándolo, indiferente a si él llegaba o no, indiferente a todo lo que acababa de dejar atrás.
 
 Solo tenía que encontrarla.

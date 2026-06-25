@@ -32,7 +32,7 @@ El esloveno llevaba el número dos — el UAE Team Emirates lo asignaba por rank
 
 Los dos se habían cruzado en el inicio, en el área de firmas de la Piazza Dante, con la formalidad de los corredores que se conocen bien y que no necesitan palabras para comunicar lo que comunicarían.
 
-Pogačar había dicho algo en inglés — en el inglés que era el idioma neutro del pelotón, el idioma donde todos estaban en igualdad de condiciones de no ser completamente fluidos —, algo que Santi había respondido con dos palabras, y que se había quedado ahí, en el área de firmas, antes de que los dos se movieran hacia el pelotón.
+Pogačar había dicho algo en inglés — en el inglés que era el idioma neutro del pelotón, el idioma donde todos estaban en igualdad de condiciones de no ser completamente fluidos —, apretando los labios antes de soltarlo, como hacía siempre que la frase le importaba de verdad: *"Last one before winter. Let's make it good."* La última antes del invierno. Que valga la pena. Santi había respondido con dos palabras — "Va a valer" — y se había quedado ahí, en el área de firmas, antes de que los dos se movieran hacia el pelotón.
 
 Ferretti había visto el intercambio desde el coche y no había preguntado.
 

@@ -20,7 +20,7 @@ El jersey arcoíris en el interior del pelotón — no en la punta, no en la col
 
 Van Aert estaba a ocho posiciones.
 
-Pogačar a doce.
+Pogačar a doce. El esloveno con la cabeza ligeramente inclinada hacia el grupo de cabeza, los ojos entrecerrados contra el sol de la mañana lombarda — el gesto que Santi ya había visto en él en Yorkshire, el corredor que mide a los rivales antes de que la carrera le pida nada, como si memorizara posiciones para usarlas después.
 
 Alaphilippe — el francés del Deceuninck que era el especialista en los finales de clásica y que había ganado dos etapas del Tour ese verano — estaba a seis. Fuglsang — el danés del Astana, treinta y cuatro años, el corredor que había ganado la Flecha Valona en mayo — a cuatro.
 
@@ -107,6 +107,10 @@ Alaphilippe reaccionó.
 Valverde no — el murciano que llevaba el ritmo de los treinta y nueve años y del Ghisallo diecisiete veces subido se quedó en su cadencia, la evaluación del veterano que en el kilómetro cuatro del Ghisallo sabe que el ataque del campeón del mundo tiene el riesgo de quemar a quien lo persigue.
 
 Nibali no — el siciliano que tres posiciones atrás calibró la brecha en el segundo uno y eligió no moverse, la misma elección que en el Tour de France le había dado los segundos para el contraataque.
+
+Pogačar tampoco fue.
+
+No por cálculo idéntico al de Nibali — por algo más simple. El esloveno de veintiún años miró la espalda de Santi abrirse del grupo y, en lugar de lanzarse, sonrió. No la sonrisa del que se rinde. La de quien acaba de confirmar un dato que llevaba meses esperando confirmar — la misma sonrisa breve que en los años siguientes el pelotón aprendería a reconocer en él incluso cuando perdía, como si la derrota también le pareciera, en algún rincón que no compartía con nadie, una cosa interesante de mirar. Murmuró algo en esloveno que nadie en el grupo entendió, y nadie le pidió que lo tradujera.
 
 Fuglsang y Alaphilippe fueron.
 

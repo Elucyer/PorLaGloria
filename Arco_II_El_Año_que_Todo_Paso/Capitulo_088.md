@@ -231,7 +231,7 @@ No era lo que decía Hernando. Hernando decía *bien* con el peso de toda la eva
 
 — Gracias — dijo Santi.
 
-Y colgaron.
+Carmen no alargó la llamada. Nunca lo hacía cuando mentir un minuto más le costaba más de lo que valía.
 
 Carmen se quedó con el teléfono en la mano en el pasillo de la UCI del Pablo Tobón.
 
@@ -399,7 +399,7 @@ Era el tipo de cosa que decía Carmen cuando no podía decir lo que quería deci
 
 — Bien — dijo Santi.
 
-Y colgaron.
+Esa fue toda la llamada.
 
 Santi se quedó con el teléfono en la mano en el cuarto del hotel de Marcon durante un minuto. Pensó en llamar de nuevo. Pensó en preguntar directamente — ¿qué está pasando, mamá?, ¿qué no me estás diciendo? Pero el pensamiento llegó y se fue con la rapidez de los pensamientos que el corredor de GC en la decimonovena etapa de un Giro no puede sostener, porque el corredor de GC en la decimonovena etapa de un Giro tiene exactamente la energía mental necesaria para lo que viene mañana y no una unidad más para lo que no puede resolver desde un hotel en la llanura veneta.
 

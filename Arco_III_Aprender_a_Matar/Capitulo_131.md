@@ -49,6 +49,12 @@ Ferretti lo miró.
 
 — Santi puede ganar los últimos seis kilómetros. — Pausa. — La crono de 36,2 es diferente.
 
+Rusconi, sin levantar la vista del portátil: — Pogačar le dijo a la prensa esta mañana que va a "intentar ganar la etapa, no defender nada." — Pausa. — Lo dijo así, directo, sin la diplomacia que otros usan antes de una crono decisiva.
+
+— Roglič no dijo nada — dijo Clarke.
+
+— Roglič nunca dice nada — dijo Ferretti. — Pogačar dice todo. Las dos cosas son ciertas en la misma carrera. — Pausa. — Quince años de carrera te enseñan eso o el otro extremo. A Roglič le tocó esto: que la palabra de más es la palabra que el rival se queda con gratis.
+
 Era la respuesta que en el cuaderno de Santi ya estaba escrita: *La crono. El llano: pierdo 45" con Roglič. La Planche: recupero 20". Balance: -25" sobre Roglič en la etapa.*
 
 Un minuto y un segundo de ventaja sobre Roglič en la GC menos veinticinco que iba a perder en la crono: seguía primero. Con treinta y seis segundos de margen.
@@ -69,7 +75,7 @@ El danés solo, el sol del Jura de septiembre, los campos de girasoles marchitos
 
 Los tres Corredores llegaron en el pelotón.
 
-Roglič con la cara del corredor que ha administrado el día sin gastar lo que mañana necesita. Pogačar con la cara de siempre — sin gesto visible, sin el procesamiento externo que en otros corredores se leía en los ojos. Santi en el interior del grupo, los ojos al frente, el cuaderno esperando en la maleta del hotel de Champagnole.
+Roglič con la cara del corredor que ha administrado el día sin gastar lo que mañana necesita — el ciclocomputador revisado dos veces en las últimas horas, no porque hiciera falta sino porque revisarlo era, para él, una forma de pensar sin tener que pensarlo en voz alta. Pogačar con la cara de siempre — sin gesto visible, sin el procesamiento externo que en otros corredores se leía en los ojos. Santi en el interior del grupo, los ojos al frente, el cuaderno esperando en la maleta del hotel de Champagnole.
 
 La GC al inicio de la etapa 20:
 - Santi: líder.
@@ -94,17 +100,19 @@ La GC al inicio de la etapa 20:
 
 *La segunda para memorizar cada curva, cada rampa, cada punto de frenado.*
 
-*Carmen trajo el café de las cinco.*
+*Carmen trajo el café de las cinco, la taza humeando contra el frío que ya bajaba del Volador.*
 
 *— ¿Mañana el Tour?*
 
-*— Mañana el Tour — dijo Hernando.*
+*Hernando no levantó la vista del perfil dibujado.*
+
+*— Mañana el Tour.*
 
 ---
 
 En el hotel de Champagnole, a las diez de la noche.
 
-Santi en la habitación.
+Santi en la habitación, la lámpara del escritorio encendida y el resto del cuarto en sombra, la maleta a medio empacar para la madrugada de mañana.
 
 El cuaderno abierto en la última entrada:
 
@@ -122,7 +130,7 @@ El cuaderno abierto en la última entrada:
 
 Cerró el cuaderno.
 
-El Tour de France 2020 empezaba mañana de verdad — en 36,2 kilómetros donde el reloj hablaba sin intermediarios y donde el ciclismo mostraba lo que en la montaña solo se mostraba en partes: el corredor completo, el que sube y el que cronometra, el que gana en el Loze y el que pierde en el llano de La Planche.
+El Tour de France 2020 empezaba mañana de verdad. Treinta y seis kilómetros. El reloj sin intermediarios. El ciclismo entero, no en partes: el que sube y el que cronometra, el que gana en el Loze y el que pierde en el llano de La Planche.
 
 Santi sabía lo que iba a pasar.
 

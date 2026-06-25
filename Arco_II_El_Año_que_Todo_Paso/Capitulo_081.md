@@ -68,6 +68,8 @@ Las etapas en el perfil de Duchêne: los picos azules del Izoard y el Agnello y 
 
 Broeckx miró a Santi. Santi no respondió al gesto.
 
+Pensó, sin decirlo, que la palabra *comodín* le quedaba corta al ecuatoriano. Un comodín era impredecible porque carecía de plan. Lo que Santi había visto en los cinco días entre Frascati y San Marino no era ausencia de plan sino un plan que no se anunciaba — que se ejecutaba un poco cada día, en dosis pequeñas, como quien va probando una cerradura sin prisa porque sabe que tiene las tres semanas completas para encontrar la combinación. Eso, para Santi, era más peligroso que el ataque explosivo de Nibali en el puerto largo. Lo anotaría esa noche en el cuaderno, debajo del nombre, con la letra apretada que reservaba para lo que de verdad le importaba: *No es comodín. Es paciencia.*
+
 — La catorce: Courmayeur — dijo Ferretti. — Aquí es donde podemos tomar la Maglia Rosa. La diferencia con Conti va a ser de tres y cuarenta. En ocho kilómetros y medio al nueve punto uno, si hacemos la subida correcta, recuperamos tres cuarenta y tomamos la maglia y ponemos a Roglič a doce segundos. — Una pausa. — Eso cambia el Giro. Eso convierte a Santi en el líder que Roglič tiene que cazar en lugar de al revés.
 
 El cambio de posición táctica que cambia la psicología de la carrera: no el perseguidor sino el perseguido. El líder que marca el ritmo en lugar del candidato que sigue el ritmo del líder.
@@ -214,7 +216,7 @@ No tenía las palabras para la pregunta que habría que hacer, o si las tenía n
 
 — Bien — dijo Hernando.
 
-Y colgaron.
+La línea se cortó sin despedida, como siempre entre los dos.
 
 Santi se quedó con el teléfono en la mano en el cuarto del hotel de Rávena durante un momento.
 

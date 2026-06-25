@@ -110,7 +110,7 @@ No era pregunta. Era la versión de Carmen de lo que decía Hernando cuando decl
 
 — Sí.
 
-Y colgaron.
+Carmen colgó primero, como siempre.
 
 ---
 
@@ -310,7 +310,7 @@ Escribió:
 
 Pensó qué más escribir. No escribió nada más.
 
-Era suficiente.
+Cerró el cuaderno y apagó la luz.
 
 Dejó el cuaderno en la mesa.
 

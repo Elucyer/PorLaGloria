@@ -38,7 +38,7 @@ Egan Bernal al frente de la fila — el otro colombiano, el que en 2019 había g
 
 El FCV salió en la posición diecinueve, casi al final.
 
-Santi al frente.
+Santi al frente. Detrás, en la fila de ocho, no estaba Arnheim — el alemán se había quedado en Girona, otra vez fuera de la convocatoria, otra vez en su propio bloque de fondo que para esta altura del año ya llevaba meses de duración y que Rusconi, en privado, llamaba "el proyecto a tres años" sin que el resto del equipo entendiera todavía bien qué quería decir con eso.
 
 Cuando el presentador dijo *Santiago Reyes Cardona, Colombia, el ganador del Tour de France 2020*, la plaza no rugió como había rugido con Bernal.
 
@@ -46,7 +46,7 @@ Rugió más.
 
 Y en ese segundo de más volumen — el segundo en que doce mil personas en una plaza de Turín gritaban el nombre de un colombiano de San José de la Montaña, Antioquia, que dos años atrás todavía corría carreras de categoría Élite Sub-23 en caminos sin pavimentar — Santi hizo lo que hacía siempre en estos momentos.
 
-No sonrió hacia la tribuna como hacía Pogačar.
+No sonrió hacia la tribuna como hacía Pogačar — esa sonrisa que al esloveno se le escapaba sola, sin que pareciera un gesto preparado para el público, la misma que le aparecía después de perder una etapa como después de ganarla.
 
 No levantó los brazos como hacía Bernal.
 
@@ -59,6 +59,14 @@ Lo que dijo fue:
 — Doce mil personas. Y la mitad apostó a que ganás.
 
 Santi no respondió.
+
+Más atrás en la fila de equipos, mientras los del Ineos volvían a subir al autobús, Bernal lo encontró un segundo entre la multitud de prensa que se cerraba alrededor de los dos. No fue un saludo largo — apenas un gesto con la cabeza, el mentón hacia arriba, el mismo con el que en Zipaquirá se saluda a alguien al cruzarse en la plaza sin necesidad de detenerse a hablar.
+
+— Quiubo, paisa — dijo Bernal, y se rió él solo de la palabra, porque sabía que a Santi, de Antioquia de verdad, el "paisa" cundinamarqués le sonaba más a chiste que a saludo.
+
+Santi no se rió. Pero algo en el pecho se le aflojó un grado, el mismo grado que se le aflojaba cuando alguien decía "frío de páramo" y no tenía que explicar a qué se refería — ese frío que no era el de Europa, húmedo y gris, sino el otro, el seco y filoso de los tres mil metros, el que conocían sin haberlo hablado nunca entre ellos dos.
+
+— Quiubo — contestó, y fue suficiente.
 
 ---
 
@@ -178,16 +186,12 @@ Y ciento veinte millones de italianos, colombianos, eslovenos, daneses y belgas 
 
 ---
 
-*Cuaderno de Santi, esa noche, en el hotel:*
+Santi se quedó un momento más junto a la ventana del hotel, mirando las luces de Turín que todavía no se habían apagado del todo — la ciudad despidiéndose de un día que para ella había sido una fiesta y para él había sido, apenas, el primer número de muchos.
 
-*Turín. E1: 6.º a 22". Ganna 1.º. Bernal 14.º a 28".*
+Seis segundos. Los repitió para sí mismo, en silencio, sin necesidad de escribirlos en ningún lado. Ferretti decía que no significaban nada. Tenía razón. Pero el cuerpo, que no sabe de estadísticas ni de proyecciones, los había guardado en algún lugar de todos modos — el mismo lugar donde guardaba el frío de Bélgica, la voz de Hernando al teléfono, la sensación exacta de la mano abierta saludando a una plaza que gritaba su nombre más fuerte que el de nadie.
 
-*Seis segundos sobre Bernal. El primer número.*
+Ocho días hasta el Zoncolan.
 
-*Ferretti dice que no significa nada. Tiene razón.*
-
-*Pero lo anoto igual.*
-
-*Ocho días hasta el Zoncolan.*
+Apagó la luz.
 
 ---

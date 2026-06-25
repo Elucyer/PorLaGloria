@@ -24,7 +24,7 @@ La última página de la mitad derecha decía:
 *Strade Bianche: 1.º*
 *Tirreno-Adriatico: 1.º*
 *Amstel Gold Race: 2.º (Pogačar 1.º)*
-*Lieja-Bastogna-Lieja: 2.º (Pogačar 1.º)*
+*Lieja-Bastogna-Lieja: 1.º (Pogačar 2.º)*
 *Giro de Italia: 1.º (+2:48 sobre Bernal)*
 *Tour de France: 2.º (Pogačar 1.º, +0:02)*
 *Juegos Olímpicos: 1.º (Medalla de oro)*

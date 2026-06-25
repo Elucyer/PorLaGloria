@@ -185,9 +185,9 @@ Atacó a cuatro kilómetros de la cima.
 
 No con la agresividad de un sprint — no era el cuerpo para eso, no después de lo que había acumulado ese día. Fue una aceleración sostenida: cuatro vatios más por kilogramo durante un minuto, después tres, después la capacidad de mantener esa diferencia de ritmo mientras el cuerpo protestaba en el idioma del ácido láctico y el oxígeno insuficiente.
 
-Pogačar respondió en cuatro segundos.
+Pogačar tardó cuatro segundos en reaccionar — el tiempo suficiente para que, en el Ventoux, con el viento golpeando de costado, la grava blanca pareciera vibrar bajo el peso del esfuerzo.
 
-Vingegaard respondió en dos.
+Vingegaard respondió en dos, sin gesto, la cara inmóvil de quien ha entrenado para que el sufrimiento no se le note.
 
 Los tres juntos otra vez.
 
@@ -197,13 +197,25 @@ Vingegaard cerró la diferencia.
 
 Pogačar cerró la diferencia.
 
-En el último kilómetro — con la roca blanca del Ventoux a ambos lados de la carretera, el viento en la cara, las piernas quemando en el idioma del límite absoluto — los tres llegaron juntos al sprint final.
+En el último kilómetro — con la roca blanca del Ventoux a ambos lados de la carretera, el viento en la cara, las piernas quemando en el idioma del límite absoluto — no quedaba aire para que nadie abriera distancia. El sprint llegó porque tenía que llegar, no porque alguno de los tres lo hubiera decidido.
 
 Y esta vez fue Vingegaard.
 
 El danés, que había esperado durante cuarenta kilómetros de montaña, que había respondido a todos los ataques sin nunca atacar primero, que había guardado en algún lugar de sus piernas algo que Santi y Pogačar habían gastado en intentar soltarse el uno del otro — Vingegaard saltó a ciento cincuenta metros de la cima y ganó por medio cuerpo sobre Santi, con Pogačar a tres décimas del segundo puesto.
 
 Primera victoria de etapa de Vingegaard en el Tour 2021.
+
+Pogačar, todavía con las manos en el manillar y el pecho subiendo y bajando, miró hacia el danés que se alejaba en su celebración corta y se rió — una risa sin aire, casi tos, pero risa de todos modos. — He didn't even look tired —le dijo a Santi, que rodaba a su lado hacia la zona de meta—. Ni siquiera parecía cansado.
+
+— Ninguno de los dos parecíamos cansados hasta que paramos de pedalear —dijo Santi.
+
+— Eso es verdad —dijo Pogačar, y se rió otra vez, esta vez con más aire.
+
+Vingegaard los esperó al pie del podio improvisado, ya con la gorra puesta, la cara todavía sin la euforia que el resultado habría justificado. Cuando Santi pasó a su lado, el danés dijo solo dos palabras, sin mirarlo del todo, los ojos fijos en algún punto del Ventoux que ya quedaba atrás:
+
+— Los dejé gastarse.
+
+No era jactancia. Era, otra vez, el dato dicho en voz alta para que existiera entre los tres.
 
 *Lo que los datos de Rusconi confirmarían esa noche: que Vingegaard había ganado el sprint con la menor potencia relativa de los tres — 6,31 W/kg en los últimos treinta segundos, frente al 6,38 de Santi y el 6,45 de Pogačar. Que el danés había gastado menos. Que había esperado mejor. Que había calculado exactamente cuándo los otros dos habían llegado al límite y había atacado en ese momento.*
 

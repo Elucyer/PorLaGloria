@@ -200,7 +200,7 @@ Hubo una pausa que en el teléfono tenía el ruido del viento de Las Palmas de f
 
 Era la pregunta táctica. La pregunta que Van Aert llevaba semanas mirando en el vídeo y que no entendía del todo.
 
-— Porque si me iba al cien en el descenso y caía — dijo Santi — la carrera se terminaba. Doce segundos de descenso no los cierra nadie en ochocientos metros llanos. Era suficiente.
+— Porque si me iba al cien en el descenso y caía — dijo Santi — la carrera se terminaba. Doce segundos de descenso no los cierra nadie en ochocientos metros llanos. No necesitaba arriesgar más que eso.
 
 Van Aert procesó eso.
 

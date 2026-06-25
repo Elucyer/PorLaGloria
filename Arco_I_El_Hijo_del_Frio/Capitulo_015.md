@@ -90,7 +90,7 @@ Los otros cuatro no respondieron.
 
 Durante doscientos metros fueron solo dos: Santi y Ríos, con tres metros entre ellos, empujando los últimos nueve kilómetros del Alto de Minas por la carretera que venía del otro lado del país.
 
-—Buen ataque —dijo Ríos, sin volver la cabeza, con la voz del que tiene suficiente aire para hablar aunque preferiría no gastar en hablar—. Sabía que ibas a atacar ahí.
+—Buen ataque —dijo Ríos, sin volver la cabeza, con la cadencia pausada de quien mide cada palabra como mide los vatios—. Sabía que ibas a atacar ahí.
 
 —¿Y sabías que ibas a responder?
 
@@ -168,12 +168,10 @@ Santi miró hacia el norte —hacia donde estaba Medellín, aunque no podía ver
 
 Hoy él sí lo cruzó.
 
-Eso era suficiente. Eso era más que suficiente.
+Ríos llegó a la cima, se detuvo junto a él —el pecho subiendo y bajando rápido bajo la camiseta azul, las manos en el manillar todavía temblando un poco— y le extendió la mano sin decir nada al principio.
 
-Ríos llegó a la cima, se detuvo junto a él, y le extendió la mano.
-
-—Bien hecho —dijo Ríos, todavía sin aliento.
+—Bien hecho —dijo después, todavía sin aliento.
 
 —Tu también —dijo Santi, y se la estrechó.
 
-Eso también era el ciclismo: que el rival que más te hace sufrir suele ser el que más respetas al final.
+El viento que se cruzaba en la cima les enfriaba el sudor de la cara mientras los dos seguían ahí, sin soltarse del todo la mano, sin nada más que decirse por ahora.

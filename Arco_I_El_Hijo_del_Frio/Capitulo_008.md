@@ -32,7 +32,7 @@ Ospina lo miró con esa expresión de sus ojos pequeños y cansados que Santi ya
 
 —Si la oportunidad es real, ataca. Pero una oportunidad real solo existe cuando sabes lo que están haciendo todos los demás. Y tú todavía no sabes lo que están haciendo los demás.
 
-Santi asintió. Pero la parte de él que subía el Alto de Minas en la oscuridad antes del amanecer, la parte que no había aprendido a callarse del todo, ya estaba calculando distancias y pendientes.
+Santi asintió, pero por debajo de la respuesta correcta ya estaba haciendo cuentas: cuánto duraba un ataque, cuánto le costaría seguirlo, cuánto le quedaría después.
 
 ---
 
@@ -54,11 +54,7 @@ Eso también lo aprendió esa tarde: que los cuerpos que están bien entrenados 
 
 Llegó segundo en la etapa. Primero fue el chico rubio del Indeportes, que había guardado todas sus fuerzas para los últimos dos kilómetros y los soltó todos al mismo tiempo con una potencia que Santi no supo responder. Treinta y un segundos lo separaban del primero al final de la etapa.
 
-Santi los miró en el cronómetro que le mostraron en la meta.
-
-Treinta y un segundos.
-
-Los memorizó como se memorizan las deudas.
+Santi miró el cronómetro que le mostraron en la meta, todavía con la respiración entrecortada y un hilo de sudor bajándole por la sien hasta la mandíbula. Treinta y un segundos. Los memorizó como se memorizan las deudas, sin necesidad de anotarlos en ninguna libreta.
 
 ---
 
@@ -136,14 +132,10 @@ Silencio.
 
 —El año que viene lo gano.
 
-Su padre no respondió de inmediato. Santi escuchó en la línea algo que podría haber sido el ruido de la casa, o el televisor, o simplemente el silencio de un hombre procesando una frase que lleva toda la vida esperando escuchar dicha con esa certeza.
+Su padre no respondió de inmediato. En la línea se oyó algo —el televisor, tal vez, o solo el aire de la sala— y después nada, varios segundos de nada, hasta que Hernando Reyes dijo:
 
-—Lo sé —dijo finalmente Hernando Reyes.
+—Lo sé.
 
 Y no dijeron más.
 
-El bus cruzó las curvas de la autopista hacia Medellín, el Valle de Aburrá abriéndose en el horizonte con sus luces encendidas, y Santi miró por la ventana con el número 22 todavía prendido al camiseta, sucio de sudor y de carretera, y pensó que nueve segundos era una distancia tan pequeña que casi podía verla desde donde estaba.
-
-El año que viene.
-
-Nueve segundos menos.
+El bus cruzó las curvas de la autopista hacia Medellín, el Valle de Aburrá abriéndose en el horizonte con sus luces encendidas. Santi apoyó la cabeza contra el vidrio frío, el número 22 todavía prendido a la camiseta, sucio de sudor y de carretera, y se quedó mirando esas luces sin pensar en nada en particular, solo dejando que la distancia entre Guarne y Medellín se acortara kilómetro a kilómetro, igual que la otra distancia, la de los nueve segundos, que ya empezaba a sentir suya.

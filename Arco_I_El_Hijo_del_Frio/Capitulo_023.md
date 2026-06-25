@@ -62,13 +62,13 @@ Ospina estaba detrás de él, mirando la pantalla.
 
 —Porque el alivio es para recuperar el ritmo cardíaco. Si lo obligás a saltarse ese alivio —si atacás vos justo cuando él quiere bajar el ritmo— lo cogés en el momento donde tiene menos recursos para responder.
 
-Ospina miró la pantalla. Luego miró a Santi.
+Ospina se quedó mirando la pantalla congelada un momento, como si todavía buscara algo en ella, y solo entonces miró a Santi.
 
 —Eso es exactamente lo que le hiciste a Ríos en la Juventud.
 
 —Sí. Pero Ríos no es Arroyave.
 
-—No. Pero el principio es el mismo. —Ospina cerró el computador—. La diferencia es que Arroyave también puede atacarte a vos en ese momento. El juego es de dos.
+—No. Pero el principio es el mismo. —Cerró el computador de un golpe seco, sin ceremonia—. La diferencia es que Arroyave también puede atacarte a vos en ese momento. El juego es de dos.
 
 ---
 
@@ -110,9 +110,7 @@ La pregunta no era si podía ganarle.
 
 La pregunta era si podía ganarle ahora, con lo que tenía ahora, en este agosto específico que era el último agosto donde la Porvenir era posible entre los dos.
 
-No había respuesta todavía.
-
-Solo había el Puerto de Belmira mañana a las seis de la mañana, y el perfil del Puerto de Boyacá guardado en la tablet, y los tres semanas que quedaban antes de la salida.
+No había respuesta todavía. Santi se quedó parado en mitad de la calle del pueblo, con las manos metidas en los bolsillos del rompevientos y el frío de Belmira mordiéndole las orejas, hasta que un perro flaco le ladró desde un zaguán y lo obligó a seguir caminando.
 
 ---
 
@@ -144,7 +142,5 @@ Santi lo miró.
 
 —Muy parejos —dijo Mejía—. La diferencia en el Puerto de Boyacá la van a decidir los últimos cinco kilómetros. Y eso no lo puedo calcular yo. Lo calculan las piernas de los dos ese día.
 
-No era una respuesta que se pudiera anotar en la libreta.
-
-Era la respuesta que necesitaba.
+No era una respuesta que se pudiera anotar en la libreta. Santi guardó la libreta de todos modos, cerrada, sin escribir nada esa noche, y se quedó un rato sintiendo el frío de Belmira entrarle por la ventana entreabierta del cuarto antes de decidir que ya era suficiente y que el resto se lo iba a contestar agosto.
 

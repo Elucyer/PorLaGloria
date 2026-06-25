@@ -46,11 +46,11 @@ Cuarenta y cuatro segundos.
 
 Santi lo miró.
 
-No dijo nada.
+No dijo nada. Hizo girar el bolígrafo entre los dedos, una vez, dos, sin escribir nada en el cuaderno que tenía abierto frente a él.
+
+Pensó en lo que el esloveno le había dicho en la zona mixta del Tirreno del año anterior, cuando un periodista le preguntó si Santi era su rival principal: Pogačar no había dudado, no había hecho la pausa diplomática de los corredores que cuidan no darle al rival más mérito del necesario. Había dicho que sí, que era él, sin agregar nada más — la respuesta corta del que no necesita adornar lo que ya es evidente. La franqueza que en el pelotón europeo nadie más tenía en esa medida.
 
 — Si la montaña no queda igualada — dijo Rusconi — la diferencia se cierra. Si Santi construye veinte segundos en los Alpes sobre Pogačar, el Tour se decide en el esprint del Champs-Élysées. — Pausa. — Pero el Champs-Élysées no es montaña. Es política de pelotón.
-
-*La crono. Siempre la crono.*
 
 ---
 
@@ -384,9 +384,7 @@ Rusconi no respondió de inmediato.
 
 — Si Vingegaard va libre en los Alpes — dijo Rusconi — y en la montaña esa décima de vatio se convierte en diferencia real, hay un problema. — Pausa. — Pero en el Veleta el treinta de enero, cuando Santi aceleró dos veces, Vingegaard respondió la primera y cedió en la segunda. En un puerto de veinte kilómetros al 8% en julio, la segunda aceleración es donde se decide.
 
-Santi cerró el portátil.
-
-*La crono. Siempre la crono.*
+Santi cerró el portátil sin decir nada más. El número se le había quedado fijo en algún lugar detrás de los ojos, donde se quedaban los números que importaban.
 
 ---
 
@@ -432,7 +430,7 @@ Salió.
 
 *— ¿Cómo está el Minas? — dijo Santi.*
 
-*Hernando tardó un segundo.*
+*Se oyó el chasquido del encendedor de Hernando antes de la respuesta — el padre que todavía fumaba uno al día, el de después de la cena, contra todo lo que Carmen le decía.*
 
 *— El sábado pasado llegué al veinte — dijo Hernando.*
 
@@ -444,23 +442,19 @@ Salió.
 
 *— Strade en marzo. Giro en mayo. Tour en julio.*
 
-*Hernando no respondió de inmediato.*
+*Del otro lado, nada. Solo el sonido del balcón — un carro pasando abajo, en la calle, y después otra vez el silencio de Laureles a esa hora.*
 
-*— Los dos — dijo Hernando.*
+*— Los dos — dijo Hernando, al fin.*
 
 *— Los dos.*
 
-*Silencio de tres segundos.*
-
 *— ¿Y la crono?*
 
-*Santi no respondió de inmediato.*
+*Santi miró la ciudad por la ventana del hotel antes de contestar.*
 
-*— La crono la estamos trabajando — dijo Santi.*
+*— La estamos trabajando — dijo Santi.*
 
-*Hernando no dijo nada durante dos segundos.*
-
-*— El Indurain tenía razón — dijo Hernando.*
+*— El Indurain tenía razón — dijo Hernando, sin que nadie le hubiera preguntado nada de eso.*
 
 *— Ya sé.*
 

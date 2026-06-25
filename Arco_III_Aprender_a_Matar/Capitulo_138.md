@@ -162,9 +162,7 @@ Era verdad. En el Mundial de Yorkshire de 2019, antes del maillot arcoíris, hab
 
 — Ya quedó dicho.
 
-Silencio.
-
-El silencio de San José de la Montaña que en el balcón de Laureles no existía — el de los 2.100 metros, donde lo único que se oía era el viento en los eucaliptos de la calle, los perros del barrio, el bus de las doce pasando frente al parque.
+Afuera, el viento en los eucaliptos de la calle. Un perro ladrando dos cuadras más allá, después otro, después nada. El bus de las doce pasó frente al parque y el motor diésel quedó vibrando un segundo en el vidrio de la ventana — el sonido de los 2.100 metros que en el balcón de Laureles no existía.
 
 — ¿Cómo está Hernando? — dijo Rodrigo.
 
@@ -262,7 +260,7 @@ La ceiba de siempre.
 
 *— ¿Cómo está Rodrigo? — dijo Hernando.*
 
-*— Bien — dijo Santi—. Subió en bicicleta en julio.*
+*— Subió en bicicleta en julio — dijo Santi.*
 
 *Hernando lo procesó.*
 
@@ -288,12 +286,8 @@ La ceiba de siempre.
 
 *— Pero llegó.*
 
-*Silencio.*
+*El Valle de Aburrá en la noche de octubre. Las luces de los barrios bajos, dispersas, parpadeando con el viento que subía desde el río.*
 
-*El Valle de Aburrá en la noche de octubre.*
+*Hernando miró el cielo y se quedó así, con la cabeza echada hacia atrás contra el respaldo de la silla, las manos quietas sobre el cuaderno cerrado.*
 
-*Hernando miró el cielo.*
-
-*— Bien — dijo.*
-
-*Y no dijo más.*
+*Después estiró el brazo y le apretó el hombro a Santi — un segundo, no más — y volvió a mirar el valle.*

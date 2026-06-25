@@ -10,7 +10,7 @@ Era un cuarto detrás del taller de bicicletas que su hermano tenía en el barri
 
 Se reunían los lunes por la tarde, después del entrenamiento físico de la mañana. Ospina revisaba los datos —potencia, cadencia, frecuencia cardíaca en los segmentos clave— y Santi explicaba lo que había sentido. Era esa conversación la que a Santi le costaba más trabajo, no el entrenamiento físico. Hablar de lo que sentía mientras corría era como tratar de describir el sabor del agua: algo que existía con toda certeza pero que las palabras no alcanzaban a cubrir del todo.
 
-—El martes en la subida a Santa Elena —dijo Ospina un lunes de febrero, mirando la pantalla—, tu potencia bajó ciento doce vatios en el kilómetro nueve. Aquí. —Señaló un punto en el gráfico—. ¿Qué pasó?
+—El martes en la subida a Santa Elena —dijo Ospina un lunes de febrero, mirando la pantalla—, tu potencia bajó ciento doce vatios en el kilómetro nueve. Aquí. —Señaló un punto en el gráfico, sin levantar la vista—. ¿Qué pasó?
 
 —Me agarraron las piernas.
 
@@ -18,9 +18,9 @@ Se reunían los lunes por la tarde, después del entrenamiento físico de la ma�
 
 —Ni lo uno ni lo otro. Fue como si... se apagaran un momento.
 
-Ospina asintió.
+Ospina asintió, despacio, como quien confirma algo que ya sospechaba.
 
-Azucar. Te fuiste demasiado rápido en el primer sector. Para la próxima, en el kilómetro cinco de Santa Elena, métete un bocadillo antes de que empiece el repecho del siete. No esperes a sentir que necesitas, porque cuando lo sientes ya es tarde.
+—Azúcar. Te fuiste demasiado rápido en el primer sector. Para la próxima, en el kilómetro cinco de Santa Elena, métete un bocadillo antes de que empiece el repecho del siete. No esperes a sentir que necesitas, porque cuando lo sientes ya es tarde.
 
 —¿Y si no tengo bocadillo?
 
@@ -46,19 +46,19 @@ El padre de Santi lo miró con una expresión que Santi nunca le había visto: s
 
 —Recuerdo el año que quedó undécimo en la general. La etapa del Alto de Minas por Caldas. Usted fue el primero en arrancar la fuga en el kilómetro catorce y la mantuvo durante veintitrés kilómetros antes de que lo absorbieran. Fue la mejor fuga del día aunque al final no llegó.
 
-Hernando miró el suelo un momento. Luego volvió a mirar a Ospina.
+Hernando miró el suelo un momento, las manos quietas a los lados, como si todavía estuvieran sucias de aceite aunque ya no lo estaban. Luego volvió a mirar a Ospina.
 
 —Hace mucho que nadie me habla de eso.
 
 —Es que hace mucho que nadie presta atención a los que llevan la fuga sin llegar primeros —dijo Ospina—. Pero yo sí presto atención. Es donde se aprende qué tiene un corredor adentro.
 
-Santi, que estaba de pie junto a su bicicleta escuchando, no dijo nada. Pero guardó esa frase en algún lugar donde guardaba las cosas que no quería olvidar.
+Santi, de pie junto a su bicicleta, no dijo nada. Olía a grasa de cadena y a aserrín del taller de al lado. Guardó la frase de Ospina en el mismo lugar donde guardaba las pocas cosas que no quería que el tiempo le borrara.
 
 ---
 
 Lo que Ospina sabía del ciclismo colombiano era enciclopédico y particular al mismo tiempo.
 
-Sabía los nombres de los que habían llegado y los que no, pero también sabía —y esto era lo que a Santi le parecía más valioso— por qué los que no llegaron no llegaron. Tenía teorías sobre cada uno. Sobre Lucho Herrera: que su problema nunca fue el físico sino la crono, y que si hubiera nacido diez años después con el entrenamiento especializado que existe hoy, habría ganado el Tour. Sobre Nairo: que era el más completo que Colombia había producido pero que le faltó el equipo correcto en el momento correcto, y que ese tipo de injusticia —la del talento extraordinario que no encuentra la estructura que merece— era la más dolorosa en el deporte porque no tenía responsable claro. Sobre Egan: que el accidente del Giro de 2020 fue el punto de inflexión de su carrera y que lo que vino después fue un corredor diferente, todavía muy bueno pero diferente, reconstruido sobre la fractura.
+Sabía los nombres de los que habían llegado y los que no, pero también sabía —y esto era lo que a Santi le parecía más valioso— por qué los que no llegaron no llegaron. Tenía teorías sobre cada uno. Sobre Lucho Herrera: que su problema nunca fue el físico sino la crono, y que si hubiera nacido diez años después con el entrenamiento especializado que existe hoy, habría ganado el Tour. Sobre Nairo: que era el más completo que Colombia había producido pero que le faltó el equipo correcto en el momento correcto, y que ese tipo de injusticia —la del talento extraordinario que no encuentra la estructura que merece— era la más dolorosa en el deporte porque no tenía responsable claro. Sobre Urán: que el segundo puesto en el Tour de 2014 lo persiguió más que cualquier victoria, y que esa clase de cercanía —llegar hasta ahí y no un centímetro más— pesaba distinto a perder de lejos.
 
 —¿Y yo? —le preguntó Santi una tarde, con la directa que tenía cuando quería saber algo.
 
@@ -114,19 +114,19 @@ Santi lo ganó.
 
 No fue una sorpresa para Ospina, que la semana anterior le había dicho que si perdía ese campeonato sería porque había pasado algo que los dos habrían notado antes. Fue una sorpresa para los otros equipos, que vieron pasar a un chico de quince años —delgado, con la camiseta del Rionegro que le quedaba un poco grande todavía— en la cima del último puerto de la etapa reina, solo, con cuarenta y cinco segundos de ventaja sobre el pelotón de perseguidores.
 
-Fue una sorpresa para su padre, que no estaba en la carrera porque era día de trabajo y no pudo pedir permiso, y que se enteró por el grupo de WhatsApp y llamó a Santi al instante, y cuya voz al teléfono tenía un temblor que Santi fingió no notar para que ninguno de los dos tuviera que hablar de él.
+Fue una sorpresa para su padre, que no estaba en la carrera porque era día de trabajo y no pudo pedir permiso, y que se enteró por el grupo de WhatsApp y llamó a Santi al instante. La voz al otro lado se quebró a la mitad de una palabra y se recompuso enseguida, como si nada, y Santi tampoco dijo nada.
 
 No fue ninguna sorpresa para Santi.
 
-Porque Santi ya sabía —lo había sabido desde el Alto de Minas en la oscuridad, desde los domingos en San José de la Montaña siguiendo a su padre entre la niebla, desde los nueve segundos que le faltaron en enero— que esto era solo el principio. Que el campeonato departamental sub-17 era un punto en el mapa, no el destino. Que el destino era algo que todavía no tenía nombre pero que estaba ahí, esperándolo en alguna montaña que todavía no había subido.
+Porque Santi ya sabía —lo había sabido desde Santa Elena en la oscuridad, desde los domingos en San José de la Montaña siguiendo a su padre entre la niebla, desde los nueve segundos que le faltaron en enero— que esto era solo el principio. Que el campeonato departamental sub-17 era un punto en el mapa, no el destino. Que el destino era algo que todavía no tenía nombre pero que estaba ahí, esperándolo en alguna montaña que todavía no había subido.
 
-Lo que sí notó, esa tarde en el podio con el trofeo en las manos y los flashes de los fotógrafos del periódico local y los aplausos del público que en ese momento era el mundo entero, fue que quería que su padre estuviera ahí.
+Lo que sí notó, esa tarde en el podio —el trofeo frío y pesado contra el pecho, el flash de la cámara del periódico local quemándole los ojos un segundo, los aplausos de un público que en ese momento era el mundo entero— fue el lugar vacío donde debía estar su padre.
 
 No para que lo viera ganar.
 
-Sino para poder mirarlo después de ganar y que los dos supieran, sin necesidad de decirlo, que el camino que empezaron juntos un domingo en San José de la Montaña entre la niebla iba exactamente en la dirección correcta.
+Para mirarlo después, nada más, y que los dos supieran sin decirlo que el camino que empezaron un domingo en San José de la Montaña entre la niebla iba exactamente en la dirección correcta.
 
-Llamó a su padre esa noche, desde el cuarto del hotel.
+Llamó esa noche, desde el cuarto del hotel, con el trofeo todavía sobre la cama deshecha.
 
 —Papá.
 
@@ -142,6 +142,6 @@ Santi apretó el teléfono.
 
 —De Antioquia. De Colombia, si puedo.
 
-Hernando Reyes tardó un momento.
+Hernando Reyes tardó un momento. Al otro lado de la línea se oía, lejano, el televisor encendido en la sala vacía.
 
 —Ya lo sé —dijo—. Por eso te di la bicicleta.

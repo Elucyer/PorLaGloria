@@ -46,6 +46,8 @@ Los dos a quince metros. El presentador hablando. La tribuna aplaudiendo. Y los 
 
 Pogačar asintió, apenas.
 
+Antes de girarse hacia su equipo, el esloveno sonrió — la sonrisa rápida, casi involuntaria, que en él aparecía en los momentos de tensión tanto como en los de victoria, como si el cuerpo no distinguiera bien entre las dos cosas cuando lo que tenía delante era una carrera que de verdad le importaba. Santi ya la conocía de las cronos y de las cámaras del pelotón: la sonrisa que Pogačar no controlaba del todo y que no controlar parecía gustarle.
+
 Santi asintió también.
 
 Colombo apareció a su lado.
@@ -360,11 +362,7 @@ Pogačar tardó más.
 
 Un segundo. Dos.
 
-Cuatro metros de Pogačar sobre Santi en el kilómetro tres de Santa Bárbara.
-
-Cinco.
-
-Ocho.
+El hueco entre Pogačar y Santi se abrió como una grieta que no termina de cerrarse — cuatro metros, después algo más, el sonido de la otra rueda perdiéndose detrás del propio jadeo.
 
 El esloveno que encontraba el límite — no el límite del corredor débil, no el límite que avergüenza, sino el límite específico de Pogačar en las clásicas de un día de ciento ochenta y cuatro kilómetros con grava cuando el ataque llega en el kilómetro ciento sesenta y ocho: el límite que existía y que Santi había estado buscando desde el invierno, desde el túnel de viento de diciembre, desde las semanas en el Veleta donde Rusconi había dicho *en las clásicas puras, Pogačar tiene un techo diferente al de los Grand Tours, y ese techo es tu ventana*.
 
@@ -504,6 +502,8 @@ Buscó a Santi con la mirada.
 
 Lo encontró.
 
+Y aun perdiendo —veintisiete segundos es perder, sin matices— la sonrisa se le escapó otra vez, breve, casi una mueca de quien acaba de confirmar algo que ya sabía. No era la sonrisa de la cortesía. Era la del corredor a quien correr contra alguien mejor todavía le resultaba, antes que nada, un placer.
+
 No hubo palabras — no hacían falta. La guerra entre los dos era lo suficientemente explícita para que una mirada en la zona de llegada de la Strade Bianche dijera todo lo que un idioma no podría decir de manera suficientemente precisa: *esto no ha terminado. Esto está empezando.*
 
 Santi asintió.
@@ -534,7 +534,7 @@ El Tirreno-Adriatico en cuatro días.
 
 *Las matas todavía estaban en el apartamento — la mudanza a la casa del níspero era la semana siguiente. Las matas iban a estresarse con el cambio, le había dicho a Hernando. Las matas siempre se estresaban.*
 
-*Hernando abrió el cuaderno.*
+*Se sentó a la mesa del balcón, todavía con el control del televisor en la mano, y solo entonces fue a buscar el cuaderno.*
 
 *Escribió:*
 
@@ -542,9 +542,7 @@ El Tirreno-Adriatico en cuatro días.
 
 *La ventana que Rusconi calculó: existe.*
 
-*Cerró el cuaderno.*
-
-*Fue al balcón.*
+*Dejó el cuaderno abierto sobre la mesa, junto al control remoto apagado, y se quedó un momento mirando los dos objetos como si pertenecieran a la misma cosa.*
 
 *— Las matas no se estresan — dijo Hernando.*
 

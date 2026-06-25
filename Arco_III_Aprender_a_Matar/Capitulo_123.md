@@ -94,11 +94,13 @@ Santi miró el cuadro de Rusconi.
 
 Ferretti abrió el tablet. El perfil de la Stage 20 — la crono de Lure a La Planche des Belles Filles, 36,2 kilómetros. Los primeros veinte en el llano. Los últimos dieciséis con el ascenso final a La Planche: 5,9 kilómetros al 8,5%, máxima al 24% en los últimos metros antes de la línea.
 
-— El modelo — dijo Rusconi — dice que en el llano de los primeros treinta kilómetros de La Planche, perdés entre cuarenta y cuarenta y cinco segundos con Roglič. En el ascenso final al 8,5%, los recuperás todos y ganás veinte más. — Pausa. — Balance neto contra Roglič: perdés veinticinco segundos en la crono de La Planche.
+— Il modello — Rusconi giró la pantalla hacia Santi — dice que en el llano de los primeros treinta kilómetros de La Planche, perdés entre cuarenta y cuarenta y cinco segundos con Roglič. En el ascenso final al 8,5%, los recuperás todos y ganás veinte más. Balance neto: perdés veinticinco en la crono.
 
-— ¿Y si llego con más de veinticinco sobre Roglič?
+Santi se quedó con eso un momento, haciendo la resta en silencio antes de hablar.
 
-— Si llegás con más de veinticinco — dijo Rusconi — ganás el Tour de France.
+— Si llego con más de veinticinco sobre él...
+
+— Ganás el Tour de France — completó Rusconi, sin necesidad de que Santi terminara la frase.
 
 Santi lo anotó en el cuaderno.
 
@@ -110,9 +112,17 @@ Diecisiete segundos más sobre Roglič.
 
 El número que en el contexto del día de descanso sonaba pequeño y que en la carretera del Tour de France con Roglič respondiendo a cada ataque era exactamente lo que no era pequeño.
 
-— ¿Y Pogačar? — dijo Santi.
+— ¿Y Pogačar?
 
-Rusconi: — Pogačar está a cuarenta y seis segundos vuestros. Con el perfil del Tour, puede recuperar en la crono veinte de esos cuarenta y seis. Para ganar, necesita reducir la diferencia en montaña y esperar que vos cedáis en la crono. — Pausa. — Pogačar no se cansa de la misma manera que Roglič. En la crono tampoco.
+Rusconi se tomó un segundo, como si la pregunta sobre el esloveno joven le exigiera un cálculo distinto al de Roglič. — Está a cuarenta y seis segundos. Con el perfil del Tour puede recuperar veinte de esos en la crono. Para ganar de verdad necesita reducir la diferencia en montaña y esperar que vos cedáis en la crono. *Ma attenzione* — Pogačar no se cansa como Roglič. Ni en la montaña ni en la crono.
+
+Ferretti, sin levantar la vista del tablet: — Esta mañana, en la salida, me dijo que el día de descanso le aburre más que cualquier puerto. — Una sonrisa breve, casi a pesar de sí mismo. — Lo dijo en inglés, buscando la palabra, y se rió de su propio acento antes de que yo me riera.
+
+— ¿Y Roglič? — dijo Santi.
+
+Ferretti negó con la cabeza. — A Roglič no le preguntó nadie nada hoy. Salió a rodar solo, cuarenta minutos, volvió, revisó los datos del rodillo con su propio preparador y se encerró en el cuarto. — Pausa. — El esloveno hace del día de descanso lo mismo que hace de la zona mixta: lo necesario, ni un minuto más.
+
+Santi no comentó nada. Lo anotó, sin embargo, en algún lugar que no era el cuaderno: que el silencioso y el que hablaba de más decían, cada uno a su manera, la misma cosa sobre sí mismos sin saberlo.
 
 El Loze.
 
@@ -180,13 +190,13 @@ Era el inventario del equipo en el medio del Tour — el inventario que en los G
 
 *Todavía no lo ha hecho.*
 
-*Carmen trajo el tinto de las cinco.*
+*Carmen trajo el tinto de las cinco, el vapor subiendo derecho en el aire quieto de la tarde.*
 
 *Hernando no levantó la vista del cuaderno.*
 
-*— Gracias — dijo.*
+*— Gracias — dijo, y la taza quedó un rato sin tocar, enfriándose despacio sobre la baranda de cemento.*
 
-*El Valle de Aburrá al fondo. El parque. El ruido del tráfico de la tarde.*
+*El Valle de Aburrá al fondo, con la luz de septiembre cayendo oblicua sobre los techos de Laureles. El parque. El ruido del tráfico de la tarde, los pitos lejanos, alguien que regaba el antejardín de la esquina.*
 
 *Diez días para el Col de la Loze.*
 

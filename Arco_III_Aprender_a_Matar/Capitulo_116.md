@@ -94,7 +94,7 @@ El moderador: — Una última pregunta.
 
 La traductora de la UCI — la mujer que en la conferencia del Mundial de Yorkshire había estado a la izquierda de Santi y que la organización había traído de nuevo para la Strade Bianche — levantó la vista de sus notas.
 
-No para preguntar — para escuchar la última pregunta, que fue del periodista de *El Colombiano* de Medellín, el mismo medio donde Julián Estrada trabajaba:
+No para preguntar — para escuchar la última pregunta, que fue de un periodista colombiano acreditado, conocido de Julián Estrada desde los tiempos de la Javeriana:
 
 — Santi, ¿Julián Estrada te pidió que dijeras algo del podcast en la rueda de prensa?
 
@@ -352,11 +352,11 @@ La brecha: ocho metros.
 
 Van Aert reaccionó.
 
-El belga miró por el hombro — el gesto del corredor que siente que algo detrás de él se mueve — y ajustó la cadencia. Fue durante cuatro pedaladas, alcanzó tres metros de los ocho, y cedió. No porque no pudiera cerrar los ocho metros — porque para cerrarlos habría tenido que pagar en los nueve kilómetros que quedaban lo que no podía pagar.
+El belga miró por el hombro — el gesto del corredor que siente que algo detrás de él se mueve — y ajustó la cadencia. Fue durante cuatro pedaladas, alcanzó tres metros de los ocho, y cedió. No porque no pudiera cerrar los ocho metros — porque para cerrarlos habría tenido que pagar en los nueve kilómetros que quedaban lo que no podía pagar. Lo que quedó, en el segundo en que soltó, no fue la frustración del corredor que pierde la rueda — fue otra cosa, más cercana a la atención: los ojos de Van Aert siguieron la espalda de Santi alejándose con la misma curiosidad con la que en el podcast había preguntado por qué el asfalto parecía acelerar para los escaladores. Quería entender el gesto, no solo sufrirlo.
 
 Alaphilippe no reaccionó.
 
-La cabeza del francés no se movió — el corredor que en el kilómetro dos y medio del Sante Marie ya estaba en el proceso de sostener lo que tenía y que el ataque de Santi convirtió en el proceso de ver cómo se abría la brecha.
+La cabeza del francés no se movió — el corredor que en el kilómetro dos y medio del Sante Marie ya estaba en el proceso de sostener lo que tenía y que el ataque de Santi convirtió en el proceso de ver cómo se abría la brecha. Lo que sí se movió fue la mandíbula: un apretón breve, casi imperceptible bajo la sal seca de la cara, el gesto del corredor que sabe exactamente cuánto le costó no tener la explosión esa vez — no la rabia del que se siente engañado, sino la contabilidad fría del que ya está pensando en la próxima cita donde sí va a estar entero.
 
 Pogačar reaccionó.
 
@@ -514,9 +514,7 @@ Ferretti llegó corriendo desde el borde de la plaza.
 
 No corrió como corren los directores deportivos en las llegadas festivas — corrió como corre el hombre de sesenta años que tiene las articulaciones del hombre de sesenta años pero que en los metros finales de una victoria grande encuentra la velocidad que el cuerpo reserva para los momentos que no se repiten.
 
-Le puso la mano en el hombro.
-
-No dijo nada.
+Le puso la mano en el hombro y la dejó ahí, sin apretar, el tiempo que tarda un corredor en volver a respirar normal.
 
 Era el gesto de siempre. La mano del director en el hombro del corredor. Treinta años de ciclismo condensados en el gesto que no necesita palabras porque las palabras habrían dicho menos.
 
@@ -544,6 +542,8 @@ Santi respondió en inglés también:
 
 El esloveno asintió.
 
+Y entonces, a pesar de los cuarenta y cuatro segundos que acababa de perder, a pesar del sudor blanco de sal seca en la cara y el calor de cinco horas de carrera, se le escapó la sonrisa — la misma sonrisa breve e involuntaria que el ataque en el Ghisallo le había sacado un año antes, sin haber corrido siquiera esa carrera, solo de oír contarla. Era una sonrisa que no tenía nada que ver con perder bien. Tenía que ver con que la cosa que acababa de pasar le parecía, sinceramente, interesante.
+
 Era el tipo de respuesta que en el mundo del ciclismo dice más que cualquier explicación táctica: *I know* como confirmación de que el ataque en el dos y medio no fue el error del corredor que atacó antes de tiempo, sino la decisión exacta del corredor que leyó la diferencia entre el plan y el momento y eligió el momento.
 
 Pogačar lo entendió.
@@ -553,6 +553,14 @@ Lo registró.
 En los meses que seguían — en el Tour de France de agosto, en las montañas de los Alpes y los Pirineos donde los dos se iban a ver de nuevo — Pogačar recordaría el kilómetro dos y medio del Monte Sante Marie y la respuesta de Santi.
 
 *I know.*
+
+Van Aert llegó quince segundos después, a cincuenta y nueve del ganador. Se quitó las gafas en la línea, se pasó el dorso de la mano por la cara para limpiar el polvo blanco que se le había metido en los pliegues de los ojos, y buscó con la mirada el punto de la plaza donde Santi seguía desacelerando.
+
+— *Twee kilometer en half* — dijo, para nadie en particular, en voz lo bastante alta para que el periodista flamenco que ya estaba ahí con el micrófono lo registrara. Después, en español, para que quedara claro: — Atacó en el kilómetro que nadie había marcado. Eso es lo que me interesa de él. No la potencia. El momento.
+
+Alaphilippe llegó casi veinte segundos más tarde, a un minuto y dieciséis, sin sprint, los hombros caídos sobre el manillar el último medio kilómetro de un modo que no era cansancio sino la forma del cuerpo de aceptar que la carrera ya estaba escrita. Frenó despacio, se quedó sentado en la bicicleta más tiempo del necesario, y cuando un cámara de RCS le acercó el micrófono dijo solo, en francés, con la cortesía exacta del que no quiere que la frustración se le note más de lo permitido:
+
+— *Il a choisi le bon moment. Le mien n'est pas encore venu aujourd'hui.*
 
 ---
 
@@ -568,9 +576,9 @@ Debajo, después de un momento, la letra apretada de la nota al margen:
 
 *Nunca lo voy a poder predecir exactamente. Y eso, pienso, es lo que lo hace diferente.*
 
-Dejó el cuaderno en la mesa.
+Dejó el cuaderno abierto, sin cerrarlo, en esa página.
 
-El parque abajo. La lluvia de las cinco del Valle de Aburrá — la lluvia puntual del trópico que cae cuando tiene que caer, que no distingue el día de la Strade Bianche del día de cualquier martes de agosto.
+Abajo, en la calle, empezó la lluvia de las cinco del Valle de Aburrá — la lluvia puntual del trópico que cae cuando tiene que caer, que no distingue el día de la Strade Bianche del día de cualquier martes de agosto. Carmen, desde la cocina, preguntó si quería que cerrara la ventana del balcón antes de que el agua le mojara las páginas. Hernando no contestó enseguida. Cuando contestó, dijo que no, que dejara la ventana así, que el cuaderno aguantaba un poco de agua.
 
 El Tour en veintiocho días.
 

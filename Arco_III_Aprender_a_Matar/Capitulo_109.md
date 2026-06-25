@@ -26,25 +26,25 @@ Rusconi con el portátil abierto antes de que Santi se sentara.
 
 — Los datos del túnel de viento de diciembre — dijo Rusconi, sin preámbulo, la frase que en el lenguaje de Rusconi era el saludo. — El ángulo de tres grados en el tronco te da cuatro vatios menos de resistencia aerodinámica. En condiciones reales de carrera, con viento lateral y cambio de pendiente, el beneficio se reduce a entre tres y tres y medio. En sesenta kilómetros de crono plana: entre veintisiete y treinta y un segundos.
 
-Santi sirvió la pasta.
+Santi sirvió la pasta y dejó que el suizo siguiera — sabía que Rusconi necesitaba terminar el párrafo entero antes de aceptar una pregunta.
 
-— ¿Y en la crono de montaña del Tour?
+— El Tour 2020 tiene dos cronómetros — siguió Rusconi, sin que se lo pidieran. La primera: veintisiete kilómetros de Sisteron a Orciéres-Merlette, con veinte kilómetros de montaña al final. No es una crono plana. Es mixta. En la parte plana, el ajuste aerodinámico aplica entero. En la montaña, ya no — la pendiente cambia el ángulo natural del corredor, y ahí el dato que importa no es el viento, es la potencia relativa contra los especialistas. Y el especialista más difícil del análisis tiene nombre.
 
-— El Tour 2020 tiene dos cronómetros. La primera: veintisiete kilómetros de Sisteron a Orciéres-Merlette, con veinte kilómetros de montaña al final. No es una crono plana — es mixta. En la parte plana inicial, el ajuste aerodinámica aplica. En la montaña, la posición de crono ya no es la posición óptima porque la pendiente cambia el ángulo natural del corredor.
+— Roglič.
 
-— ¿Cuánto gano en esa crono con el ajuste?
+Rusconi asintió, casi imperceptible, la cabeza inclinada sobre la pantalla del portátil. El esloveno del Jumbo-Visma había terminado cuarto en el Tour 2019 y ganado esa misma temporada su primera Vuelta a España — el corredor que en el llano hacía lo que los escaladores puros no podían hacer, y que en la montaña sostenía los vatios suficientes para que el llano alcanzara a decidir la carrera.
 
-— En los primeros siete kilómetros planos: dieciocho a veintidós segundos. En los veinte de montaña: dependé de tu potencia relativa contra los especialistas de crono. Roglič en la montaña de crono es el corredor más difícil del análisis.
+— En los primeros siete kilómetros planos, le cedés entre dieciocho y veintidós segundos. En los veinte de montaña de Orciéres-Merlette, el modelo te da cuatro minutos veinticinco contra los cuatro cuarenta de él. Quince segundos a tu favor.
 
-Roglič. El esloveno del Jumbo-Visma que en el Tour 2019 había terminado cuarto y que en la Vuelta de dos mil diecinueve había ganado por cuarta vez consecutiva. El especialista del cronómetro que en el llano hacía cosas que los escaladores puros no podían hacer y que en la montaña sostenía los vatios suficientes para que el llano lo pudiera haber decidido.
+— ¿Y Pogačar?
 
-— ¿Cuánto vale Roglič en la crono de montaña?
+— Pogačar no tiene un número fijo todavía — dijo Rusconi. — Es el único de los tres cuyo modelo cambia cada vez que corre. No porque el cuerpo sea inconsistente. Porque no respeta el patrón que el resto del pelotón respeta. Ataca donde el modelo dice que es pronto, y a veces funciona.
 
-— Cuatro minutos cuarenta en los veinte kilómetros de montaña de Orciéres-Merlette, según el modelo. Vos: cuatro minutos veinticinco. Diferencia a favor tuyo: quince segundos.
+Santi hizo la cuenta antes de que Rusconi la cerrara.
 
-— Y en el llano de los siete kilómetros previos, pierdo con él.
+— Pierdo diecinueve en el llano, gano quince en la montaña.
 
-— Pierdo diecinueve — dijo Rusconi. — Balance total de la etapa: cuatro segundos a tu favor.
+— Balance de la etapa: cuatro segundos a tu favor — confirmó Rusconi.
 
 Cuatro segundos.
 
@@ -54,13 +54,15 @@ Cuatro segundos en una sola etapa de veintisiete kilómetros.
 
 En las etapas de montaña del Tour, donde los escaladores de la talla de Santi y Bernal y Pogačar podían abrir diferencias de uno o dos minutos contra los especialistas del cronómetro, cuatro segundos era un número casi invisible. Casi.
 
-— ¿Y la segunda crono? La de La Planche des Belles Filles.
+— ¿Y La Planche?
 
-— Treinta y seis kilómetros. La parte plana: veintidós kilómetros. La montaña: catorce kilómetros al ocho y al diecisiete en el tramo final. — Rusconi cambió la pantalla. — En esa crono, el análisis es diferente. La Planche es la crono que puede decidir el Tour. Si llegás con ventaja acumulada de las etapas de montaña, la crono de La Planche puede mantenerte en la posición o quitártela.
+Rusconi cambió la pantalla sin levantar la vista.
 
-— ¿Cuánto necesito llegar antes de la crono?
+— Treinta y seis kilómetros. Veintidós planos, catorce de montaña al ocho y al diecisiete en el tramo final. Esa es la que puede decidir el Tour. Si llegás con ventaja acumulada de la montaña, te mantiene en la posición. Si llegás corto, Roglič te la quita ahí.
 
-— Más de cuarenta segundos sobre Roglič. Si llegás con más de cuarenta, el balance de la crono de La Planche es tuyo. Si llegás con menos, Roglič puede ganar el Tour en esa etapa.
+— ¿Cuánto necesito acumular antes?
+
+— Más de cuarenta segundos sobre él. Con menos, gana el Tour en esa etapa. Con más, el balance es tuyo.
 
 La aritmética del Tour de France.
 
@@ -83,6 +85,8 @@ El quinto día del campo, en la subida al Veleta.
 La carretera del Veleta desde Sierra Nevada Alta — cuarenta y cinco kilómetros hasta los tres mil trescientos noventa y seis metros de la cima más alta de Europa con acceso por carretera. No la ruta turística del verano sino la ruta de entrenamiento de enero: el asfalto que en los últimos kilómetros antes de la cima estaba bajo la nieve, la carretera bordeada de postes que en los meses de invierno marcaban la ruta para los quitanieves y que los ciclistas del campo usaban como referencia cuando la visibilidad bajaba.
 
 El objetivo del día: dos horas al umbral aeróbico. No al máximo — la zona tres del corredor que en el quinto día del campo todavía está construyendo la base y que tiene tres semanas más para el trabajo de intensidad.
+
+El aire a esa altura entraba seco en la garganta y dejaba un sabor metálico en cada respiración profunda — el sabor que los corredores de los campos de invierno conocían y que ninguna máscara ni ningún gel evitaba del todo. Las manos, incluso con los guantes térmicos, perdían sensibilidad en los primeros veinte minutos. Era parte del trabajo: el cuerpo aprendiendo a funcionar donde el cuerpo no quiere funcionar.
 
 El equipo salió junto.
 
@@ -127,6 +131,46 @@ Primera semana: base aeróbica. Zona dos y tres. Los cuerpos reajustándose a la
 Segunda semana: umbral. Zona tres y cuatro. Las sesiones largas en el Veleta — la subida completa de cuarenta y cinco kilómetros al ritmo de carrera, los intervalos en los últimos diez kilómetros, los datos de Rusconi que al final de la sesión se convertían en el gráfico de potencia que comparaba el dia con el día anterior y el campo con el campo anterior.
 
 Tercera semana: intensidad. Zona cuatro y cinco. Las simulaciones de etapa — el corredor que en los últimos días del campo hacía lo que haría en el Tour: atacar, responder, gestionar, sufrir con la precisión del esfuerzo calculado.
+
+El miércoles de la tercera semana, el doctor Marchetti interrumpió la sesión de la mañana antes de que Santi llegara a la bicicleta.
+
+— La frecuencia cardíaca en reposo —dijo, con la tablet en la mano y la cara de quien ha estado mirando el mismo número desde las cinco y media—. Cuarenta y ocho. Hace cuatro días estaba en cuarenta y dos.
+
+— Es la altitud —dijo Santi.
+
+— La altitud explica dos o tres pulsaciones. No explica seis. —Marchetti no levantó la voz; nunca la levantaba. Eso era parte de lo que hacía que sus advertencias pesaran—. La variabilidad de la frecuencia cardíaca bajó dieciocho por ciento esta semana. El cuerpo está acumulando algo que no está soltando por la noche.
+
+Ferretti, que había llegado al rodillo con el café todavía en la mano, escuchó sin interrumpir.
+
+— ¿Qué proponés? —dijo, finalmente, a Marchetti.
+
+— Bajar la sesión de hoy a zona tres. Y la de mañana.
+
+Santi ya tenía el casco en la mano.
+
+— Faltan cuatro días de campo —dijo—. Si bajo ahora, no llego al objetivo del bloque.
+
+— Si no bajás ahora —dijo Marchetti—, el objetivo del bloque deja de importar porque vas a llegar a Medellín con el sistema nervioso quemado, y eso no se arregla en dos semanas de descanso. Se arregla en seis.
+
+Ferretti miró a Santi. No dijo nada todavía — esperaba a que los dos terminaran de exponer el problema antes de decidir, la misma costumbre que tenía en las reuniones de equipo.
+
+— Treinta minutos a zona tres —dijo Santi—. Después subo el Veleta a mi ritmo, sin intervalos. Si en el kilómetro veinte el cuerpo no responde, paro ahí.
+
+Marchetti consideró la propuesta con la misma calma con que había dado la advertencia.
+
+— Treinta minutos a zona tres. Pulsómetro visible para el coche todo el tiempo. Si la frecuencia cardíaca no baja al patrón normal en los primeros diez kilómetros del Veleta, Ferretti te llama de vuelta y no se discute.
+
+— No se discute —confirmó Ferretti, mirando a Santi.
+
+Santi asintió.
+
+No era la victoria de nadie. Era el tipo de acuerdo que en un campo de altitud se construye entre el cuerpo que quiere demostrar algo y los dos hombres cuyo trabajo es impedir que esa demostración cueste más de lo que vale.
+
+La frecuencia cardíaca bajó al patrón normal en el kilómetro siete del Veleta.
+
+Ferretti no llamó.
+
+Esa noche, en el cuaderno: *Cuarenta y ocho en reposo, miércoles. Bajé el bloque treinta minutos. El cuerpo respondió en el Veleta. Marchetti tenía razón en preocuparse y yo tenía razón en seguir. Las dos cosas a la vez — aprender eso.*
 
 El campo de Sierra Nevada terminó el veintiocho de enero.
 

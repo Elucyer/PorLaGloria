@@ -274,7 +274,7 @@ El Tour de France en sesenta y dos días.
 
 Pogačar también iba a estar en el Tour de France.
 
-El mismo Pogačar que en el boulevard le había puesto la mano en el hombro y había dicho *bien jugado* y que en sesenta y dos días iba a estar en otra carretera con el mismo motor y con el mismo combustible de no querer perder.
+El mismo Pogačar que en el boulevard le había puesto la mano en el hombro y había dicho *bien jugado*, apretando los labios un segundo antes de la frase como hacía siempre que buscaba la palabra exacta en un idioma prestado, y que en sesenta y dos días iba a estar en otra carretera con el mismo motor y con el mismo combustible de no querer perder. El esloveno que sonreía hasta perdiendo y que decía lo que pensaba sin la cautela de los demás — el rival más fácil de entender fuera de la carretera y el más difícil de leer dentro de ella.
 
 Lo que hoy había sido el Lieja en sesenta y dos días iba a ser el Tour.
 

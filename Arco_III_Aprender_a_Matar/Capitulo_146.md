@@ -228,6 +228,8 @@ El cronómetro: 44:36.
 
 Un minuto y dos segundos.
 
+Roglič se bajó de la bicicleta de crono sin el gesto del triunfo — ni el puño, ni la mirada al cielo. Se quitó el casco, se pasó la mano por el pelo aplastado, y miró el número en la pantalla de la organización con la misma cara seca con la que en el Tour 2020 había mirado el catorce que lo dejó segundo. Ganar la crono del Ézaro no le cambiaba el gesto. Era, simplemente, lo que su cuerpo hacía cuando el terreno era el suyo.
+
 El narrador:
 
 — *¡Roglič gana la crono del Ézaro! 44 minutos 36 segundos. Y la diferencia con Santi Reyes es de un minuto y dos segundos. En la clasificación general: Roglič suma sobre todos. La nueva GC: Roglič líder. Carapaz a treinta y un segundos. Mas a cincuenta y ocho. Carthy a un minuto treinta y ocho. Santi Reyes quinto a tres minutos diez.*
@@ -270,7 +272,7 @@ Esa noche, Santi llamó a las nueve.
 
 — Un minuto dos — dijo Hernando.
 
-Silencio.
+Se oía la lluvia contra la ventana del balcón, el único sonido entre los dos hasta que Santi volvió a hablar.
 
 — GC.
 
@@ -300,9 +302,9 @@ El hotel de Galicia. La habitación de la crono. El cuerpo que en treinta y tres
 
 — La corrés igual — dijo Hernando. — No porque el podio esté. Sino porque sos vos.
 
-Silencio.
+Santi dejó pasar el silencio, el del teléfono pegado a la oreja y la mirada fija en la pared del hotel.
 
-— Bien — dijo Santi.
+— Listo — dijo Santi.
 
 Y colgó.
 

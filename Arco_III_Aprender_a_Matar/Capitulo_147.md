@@ -37,7 +37,7 @@ El hotel de Galicia. La ventana. La Costa da Morte en la oscuridad de noviembre.
 
 — La Covatilla la podés ganar — dijo Ferretti. — Roglič no necesita atacar — ya tiene la Vuelta. Carapaz va a intentar la etapa. Carthy va a intentar la etapa. Vos corrés tu carrera.
 
-— Bien — dijo Santi.
+Santi asintió, sin decir más.
 
 ---
 
@@ -115,7 +115,7 @@ El hombro al dos y medio no cedió en el 5,2% — la tracción del manillar al 5
 
 Cuatro corredores en el kilómetro once: Carapaz, Carthy, Santi, Mas.
 
-Roglič cedió — el campeón de la Vuelta que en la Covatilla no tenía razón para gastar y que en el kilómetro once del último puerto grande de la carrera se dejó ir con la elegancia del corredor que ya tiene lo que vino a buscar.
+Roglič cedió — el campeón de la Vuelta que en la Covatilla no tenía razón para gastar y que en el kilómetro once del último puerto grande de la carrera se dejó ir con la elegancia del corredor que ya tiene lo que vino a buscar. No miró atrás al ceder, no levantó la mano para que sus gregarios lo esperaran — simplemente cambió el ritmo de las piernas un grado, el gesto mínimo del que ya ganó la guerra y no necesita pelear la última batalla.
 
 El narrador:
 
@@ -257,7 +257,7 @@ Carmen:
 
 — ¿Ganó?
 
-— Ganó — dijo Hernando.
+— Ganó — confirmó Hernando, el bolígrafo todavía suspendido sobre la página.
 
 Y por primera vez en los veintidós días de la Vuelta a España 2020, Hernando sonrió.
 
@@ -273,7 +273,7 @@ El pelotón desde el Hipódromo de la Zarzuela hasta la Plaza de Cibeles — el 
 
 Roglič de rojo.
 
-La tercera Vuelta a España del esloveno — el corredor que en la crono y en la montaña había dominado la carrera con excepción de Formigal y la Covatilla, los dos momentos donde Santi había dicho algo.
+La tercera Vuelta a España del esloveno — el corredor que en la crono y en la montaña había dominado la carrera con excepción de Formigal y la Covatilla, los dos momentos donde Santi había dicho algo. En el podio final, Roglič levantó el trofeo sin el grito que otros campeones reservaban para Madrid — el brazo alzado dos segundos, la foto de rigor, y después la mirada hacia el suelo, hacia las flores que alguien le había puesto en las manos. La economía de siempre. Ganar la Vuelta tres veces consecutivas no le había cambiado la cara — seguía siendo el mismo hombre que en el Tour de France hablaba poco y que ahora, en la victoria, hablaba todavía menos.
 
 Carapaz de blanco — el segundo de la clasificación general.
 
@@ -307,9 +307,15 @@ Carapaz asintió.
 
 — La crono — confirmó Santi.
 
+Carapaz sonrió, el tipo de sonrisa que entre dos latinoamericanos en un pelotón europeo no necesitaba traducción.
+
+— A los dos nos toca lo mismo, hermano. El día que entrenemos la crono igual que entrenamos las subidas, ese día les ganamos en todo.
+
+— Ese día — dijo Santi, casi sonriendo también.
+
 Los dos sin decir más.
 
-El apreón de manos del ciclismo — el gesto que en el pelotón profesional dice más que el discurso.
+El apretón de manos del ciclismo — el gesto que en el pelotón profesional dice más que el discurso. Pero antes del apretón, Carapaz lo atrajo un instante con el otro brazo, el medio abrazo rápido de quien viene de un continente donde la distancia entre dos hombres que se respetan se mide distinto que en Europa.
 
 ---
 
@@ -349,9 +355,7 @@ El primer timbre.
 
 — Quinto — confirmó Hernando.
 
-Silencio.
-
-No el silencio de la decepción — el silencio de los dos hombres que en el ciclismo de veinte años compartido habían aprendido que hay resultados que no se explican con la GC sino con lo que ocurrió entre el kilómetro cero y la línea de llegada.
+No era el silencio de la decepción el que siguió, sino el de los dos hombres que en el ciclismo de veinte años compartido habían aprendido que hay resultados que no se explican con la GC sino con lo que ocurrió entre el kilómetro cero y la línea de llegada.
 
 — La Covatilla — dijo Hernando.
 
@@ -379,7 +383,7 @@ El hotel de Madrid. La habitación. El maillot del FCV-WorldTour colgado en la s
 
 — Y la crono — dijo Hernando.
 
-Una pausa.
+Una pausa larga, del tamaño de los veintiún días que los dos acababan de cruzar.
 
 — Bien — dijo Hernando.
 
@@ -389,9 +393,7 @@ Esta vez el tono del hombre que en el balcón de Laureles con el cuaderno de set
 
 El bien que decía todo eso sin decir nada más.
 
-— Bien — dijo Santi.
-
-Y colgaron.
+Santi no respondió con palabras. Colgó, y en el gesto de bajar el teléfono ya estaba la respuesta.
 
 ---
 

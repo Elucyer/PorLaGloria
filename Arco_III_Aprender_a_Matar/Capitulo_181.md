@@ -100,6 +100,8 @@ Pogačar rodó en el UAE con la misma actitud. Vingegaard en el Jumbo, igual.
 
 Los tres, durante doscientos siete kilómetros, no se miraron. No hubo intercambio de posiciones, no hubo acercamiento. Era el tipo de día en el que el Tour pedía que los protagonistas guardaran la energía para el día siguiente.
 
+Solo una vez, en un repostaje a mitad de etapa, las dos ruedas se cruzaron a la altura de un coche de equipo. Pogačar levantó la vista, reconoció a Santi, y en lugar del saludo de cortesía habitual entre rivales dijo algo que solo Santi escuchó, con la sonrisa ya puesta antes de que terminara la frase: — Tomorrow's the big one, eh? — Mañana es el día grande, ¿no? Santi asintió, sin sonreír, y los dos volvieron a separarse en el pelotón sin decir nada más.
+
 Mohorič llegó solo a Libourne con cuatro minutos de ventaja. Segunda victoria de etapa del esloveno en el Tour 2021 — y la escapada más larga de la carrera.
 
 El pelotón llegó cuatro minutos después, en grupo compacto.
@@ -166,45 +168,39 @@ La única variable no controlable era la naturaleza.
 
 ---
 
-Después de la cena, Santi subió a la habitación. Llamó a Hernando a las nueve y media.
+Después de la cena, Santi subió a la habitación. Se quedó un momento sentado al borde de la cama, el teléfono todavía apagado en la mesa de noche, postergando la llamada de una manera que no le era habitual — como si llamar antes de tiempo le robara minutos a una conversación que esa noche necesitaba durar más que las otras.
 
-— Mañana — dijo Hernando, sin más.
+Cuando por fin marcó, eran casi las diez. Hernando contestó al segundo tono, y antes de que Santi dijera nada, se oyó de fondo el ruido inconfundible de la tienda — la reja a medio bajar, el roce metálico, los pasos de Carmen guardando algo en un estante.
 
-— Mañana.
+— Esperá que termino de cerrar — dijo Hernando, sin saludo. Hubo un minuto entero de silencio parcial, el sonido de cosas moviéndose, antes de que la voz volviera, ya más cerca del teléfono. — Ya. Contame.
 
-— ¿Cómo estás?
+Santi no contó nada todavía. Se quedó callado, escuchando la respiración de su padre al otro lado del Atlántico, y por primera vez en toda la conversación de esa noche fue Hernando quien esperó.
 
-— Nervioso — dijo Santi, con la honestidad directa que reservaba para esas llamadas. — Más que ayer. Más que en la víspera del Portet.
+— Tengo miedo — dijo Santi finalmente. No era una palabra que usara casi nunca con nadie, y mucho menos por teléfono.
 
-— ¿Por qué más?
+Hernando no respondió de inmediato. El silencio, esta vez, no era el de buscar las palabras exactas — era distinto, más largo, el de un hombre que reconoce algo en la voz de su hijo que no esperaba reconocer todavía.
 
-— Porque en el Portet y en Luz-Ardiden dependía de mis piernas — dijo Santi. — En la crono depende de las piernas y del viento y de la posición aerodinámica y de los parciales de Pogačar que van a llegar a la radio en tiempo real. Hay más variables.
+— ¿De perder?
 
-— ¿Y eso te gusta o no?
+— De que dependa de algo que no puedo controlar. El viento. Los parciales de otro. — Santi se pasó la mano por la cara. — En el Portet dependía de mis piernas. Acá depende de eso y de quince cosas más.
 
-Santi pensó.
+— Entonces no pienses en las quince cosas — dijo Hernando. — Pensá en las piernas. Es lo único que siempre fue tuyo.
 
-— No lo sé.
+Santi cerró los ojos.
 
-— Yo te voy a decir algo — dijo Hernando.
+— ¿Y si no alcanza?
 
-— Decí.
+— Si no alcanza, hijo, vas a ser el segundo mejor corredor del mundo en una crono de treinta kilómetros, en la tercera semana de un Tour que ya tiene tu nombre escrito en dos sitios. — Una pausa, distinta a las anteriores, casi áspera. — Yo no te llamo cada noche para que ganes. Te llamo para que sepas que estoy ahí, ganes o no. Eso no cambia mañana.
 
-— La crono que más recuerdo de mi vida, no como espectador sino como corredor — en una carrera menor, nada del nivel de esto — fue una crono que perdí. Por tres segundos. El director me iba dando los parciales y a mitad de recorrido iba por delante. Y en la segunda mitad intenté correr la crono del otro en vez de la mía, y llegué segundo.
+Santi no dijo nada por un rato.
 
-Santi escuchó.
+— Quiero ganarlo —dijo, al fin.
 
-— No estoy diciéndote que vayas a perder — aclaró Hernando. — Te estoy diciendo que si perdés mañana, va a ser porque Pogačar fue más rápido. No porque vos hiciste algo mal. Y si eso pasa... — Hernando hizo una pausa — ese Tour de France igual va a ser el mejor Tour de France que se corrió en años. Y vos igual vas a ser el corredor que lo hizo posible.
+— Ya sé que querés —dijo Hernando—. Dormite. Mañana hablamos, gane quien gane.
 
-Santi no respondió de inmediato.
+La llamada terminó distinto a las otras — sin la repetición final, sin el eco de la última frase. Santi se quedó con el teléfono en la mano un momento, después lo dejó sobre la mesa de noche y se acostó vestido, mirando el techo, hasta que el cansancio del cuerpo ganó la conversación que la cabeza todavía quería seguir teniendo.
 
-— Quiero ganarlo — dijo finalmente.
-
-— Lo sé — dijo Hernando. — Lo querés desde antes de empezar. Lo querés desde el 2018. — Pausa. — Corré mañana y vemos.
-
-— Corré mañana y vemos — repitió Santi.
-
-La llamada terminó. Santi se quedó en la habitación del hotel de Libourne, con la ventana abierta hacia el olor de los viñedos que en julio era verde y húmedo, diferente al olor de vendimia de septiembre.
+Se quedó en la habitación del hotel de Libourne, con la ventana abierta hacia el olor de los viñedos que en julio era verde y húmedo, diferente al olor de vendimia de septiembre.
 
 Mañana era la crono.
 

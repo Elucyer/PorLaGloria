@@ -81,9 +81,9 @@ Entonces Pogačar atacó.
 
 No el ataque progresivo de Andorra. El ataque de Tignes: brusco, brutal, sin aviso, la aceleración del corredor que decide que ahora es ahora. Un salto de cuarenta vatios que en la carretera se tradujo en una separación inmediata — Pogačar con dos metros de ventaja en cuatro segundos.
 
-Santi respondió en dos décimas.
+El cuerpo de Santi reaccionó antes que la cabeza — dos décimas de retraso, el tiempo exacto que tardan los músculos en obedecer una orden que el cerebro todavía no terminó de dar.
 
-Vingegaard respondió en tres.
+Vingegaard tardó una décima más. El danés lo cerraría en kilómetros, no en el instante.
 
 Bernal, Carapaz, Mas y Valverde se quedaron.
 
@@ -101,9 +101,9 @@ No fue la aceleración de Andorra. Fue algo diferente — más total, más hones
 
 El medidor: 6,78 W/kg. Cincuenta y cuatro vatios por encima del promedio de los doce kilómetros previos.
 
-Pogačar respondió en cinco segundos. Los cinco segundos fueron suficientes para que Santi abriera cuatro metros.
+Pogačar tardó cinco segundos en reaccionar — cinco segundos que en la pantalla del medidor de Santi se tradujeron en cuatro metros de ventaja, pero que en la carretera se sintieron como algo más simple: el silencio detrás, la ausencia de un jadeo que un kilómetro antes le había sonado pegado a la nuca.
 
-Vingegaard respondió en seis. Los seis segundos fueron suficientes para que la diferencia entre el danés y Santi llegara a seis metros antes de que Vingegaard comenzara a cerrarla.
+Vingegaard necesitó uno más. No fue una cuestión de potencia sino de la fracción de segundo que un cuerpo gasta en decidir que todavía puede doler más — y esa fracción, multiplicada por la pendiente, abrió seis metros entre el danés y Santi antes de que Vingegaard empezara, despacio, a cerrarlos.
 
 En los tres kilómetros del muro — la carretera al diez y al once por ciento, el asfalto gris oscuro de la alta montaña pirenaica, sin árboles, con el viento del suroeste de cara en los tramos expuestos — la diferencia se mantuvo.
 
@@ -175,9 +175,9 @@ La primera pregunta fue para Santi: ¿cuándo había decidido atacar?
 
 La segunda pregunta fue para Pogačar: ¿qué pasó en el ataque de Santi?
 
-Pogačar respondió con la honestidad directa que lo caracterizaba:
+Pogačar respondió con la honestidad directa que lo caracterizaba, apretando los labios un segundo antes de encontrar la palabra exacta que quería en inglés:
 
-— Reyes hoy fue más fuerte que yo en ese tramo. Hoy. Mañana es otro día. Después de mañana, la crono.
+— Reyes hoy fue más fuerte que yo en ese tramo. Hoy. Mañana es otro día. Después de mañana, la crono. — Y sonrió, aunque acababa de perder el amarillo, como si la sola idea de lo que faltaba le diera más ganas que miedo.
 
 La tercera pregunta fue para Vingegaard: ¿podía ganar el Tour?
 
@@ -277,16 +277,8 @@ El Tour, por tres segundos, era suyo.
 
 Por cuánto tiempo dependía de lo que pasara en las rampas de una montaña pirenaica que Santi había subido una vez, en reconocimiento, dos semanas antes del inicio del Tour, y que en ese momento había pensado: *aquí es donde se decide todo*.
 
-Abrió el cuaderno.
+No encendió la luz del cuarto. Se quedó sentado en el borde de la cama, todavía con la camiseta térmica puesta, sintiendo cómo el frío de la noche pirenaica le bajaba la temperatura de la piel más rápido de lo que el cuerpo, agotado, podía compensar. Tres segundos de ventaja le parecían, en la oscuridad, una cifra casi física — algo que se podía sostener en la mano y que pesaba menos de lo que pesaba el miedo a perderla.
 
-Escribió:
-
-*Portet: +0:03. Maillot amarillo.*
-
-Después, debajo, después de un espacio:
-
-*Necesito quince. Tengo uno.*
-
-Cerró el cuaderno.
+Se acostó sin terminar de procesar el día. El sueño le llegó antes de lo que esperaba, el tipo de sueño que solo conoce un cuerpo que ha gastado, esa tarde, todo lo que tenía.
 
 ---

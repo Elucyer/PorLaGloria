@@ -74,7 +74,7 @@ Santi: — ¿Y si no hubieras ganado en 2018?
 
 — Hubiera vuelto en 2019 — dijo Valverde. — Y en 2020. Y en 2021. Porque en el fondo el Mundial es el Mundial y uno siempre quiere ganarlo, pero la urgencia de ganarlo ya no me controlaba. — Pausa. — La urgencia de ganar las cosas es lo que más arruina las cosas.
 
-Silencio.
+Se oyó, del otro lado, el ladrido lejano de un perro en el jardín de Murcia, y después nada.
 
 Julián dejó el silencio correr.
 
@@ -158,7 +158,7 @@ Valverde preguntó antes de colgar si iban a invitar también a corredores más 
 
 Julián: — Ya hablamos con Pogačar.
 
-Valverde: — Ese muchacho va a ganar el Tour antes de los veinticinco. — Pausa. — Y a Wout Van Aert, si no lo han invitado, invítenlo. Ese es otro tipo de corredor completamente diferente a todos los que corremos en montaña. Tiene algo que ver en este podcast.
+Valverde: — Ese muchacho va a ganar el Tour antes de los veinticinco. — Pausa. — Y habla sin estrategia. Le pregunté una vez en una crono de equipos qué pensaba de mí, así, directo, esperando la respuesta diplomática de siempre. Me dijo que yo gastaba demasiado los primeros cinco kilómetros de cada etapa de montaña. En la cara, sin que se lo pidiera. — Risa corta. — Y a Wout Van Aert, si no lo han invitado, invítenlo. Ese es otro tipo de corredor completamente diferente a todos los que corremos en montaña. Tiene algo que ver en este podcast.
 
 Santi: — Ya lo anotamos.
 
@@ -210,14 +210,10 @@ En el cuaderno de esa noche, debajo de las notas del episodio con Valverde:
 
 *"A los 39 sabe cuándo el rival mira el asfalto y ya no lo mira a él. Aprender a ver eso antes."*
 
-Santi cerró el cuaderno.
+Dejó el cuaderno abierto sobre la mesa, la tapa levantada, y se quedó un rato mirando la última línea sin agregar nada más.
 
-La catedral de Santa María marcó las once.
+Once de la noche en Laureles. No la catedral de Santa María de Girona — el ruido distinto de Medellín: un bus subiendo la cuesta con el motor forzado, un perro respondiéndole a otro tres cuadras más allá, el parque abajo respirando la humedad que dejaba la lluvia de la tarde.
 
-Santi estaba en Medellín — ya no era Girona ni la catedral, era el ruido de Laureles y los perros y el bus y el parque abajo.
-
-Pero el hábito del cuaderno era el hábito de siempre.
-
-Independiente de donde estuviera.
+El hábito del cuaderno seguía siendo el mismo, aunque la ciudad de afuera hubiera cambiado por completo.
 
 ---

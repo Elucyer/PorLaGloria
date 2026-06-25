@@ -42,7 +42,7 @@ Julián consideró eso.
 
 —El Tour no está en el plan todavía.
 
-—El plan cambia —dijo Julián—. Siempre cambia.
+—El plan cambia —dijo Julián, ya con medio cuerpo metido en la maleta de libros, buscando un espacio que no existía—. Siempre cambia.
 
 ---
 
@@ -106,7 +106,7 @@ Santi lo miró.
 
 —¿Por qué "cuando" y no "si"?
 
-—Porque con vos ya no hay ifs —dijo Julián—. Solo hay cuándos.
+—Porque con vos ya no hay ifs —dijo Julián, masticando despacio, como saboreando la frase antes de soltarla del todo—. Solo hay cuándos.
 
 ---
 
@@ -160,9 +160,9 @@ Se dieron un abrazo en la puerta del bus, que en los hombres de diecisiete años
 
 —El Porvenir en agosto —dijo Santi.
 
-El bus cerró las puertas.
+El bus cerró las puertas con ese silbido neumático que tienen todas las despedidas en terminal, y Julián se quedó de pie en el pasillo, buscando un puesto, sin volver a mirar por la ventana.
 
-Santi esperó hasta que arrancó.
+Santi esperó hasta que arrancó, hasta que la luz trasera se perdió entre los demás buses de la fila, y solo entonces se dio media vuelta.
 
-Luego salió a la calle y llamó a un taxi de vuelta a Floresta, porque quedaban tres semanas para el Porvenir y mañana había entrenamiento a las seis.
+Salió a la calle y llamó a un taxi de vuelta a Floresta. Quedaban tres semanas para el Porvenir y mañana había entrenamiento a las seis, y esa certeza —el entrenamiento, la hora fija, la bicicleta esperando contra la pared— era lo único a lo que podía aferrarse esa tarde para no quedarse pensando demasiado en lo vacía que iba a sonar la ciudad sin Julián en ella.
 

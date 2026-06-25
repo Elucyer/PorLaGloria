@@ -86,9 +86,9 @@ Silencio.
 
 Su madre apretó el volante.
 
-—Tu padre —dijo, y luego paró. Respiró. Empezó de nuevo—. Cuando tu padre corría, yo me quedaba dormida las noches de antes de las carreras rezando para que no le pasara nada. Nunca le pasó nada grave. Y yo siempre pensé que era porque yo rezaba. Ahora me doy cuenta que era suerte.
+—Tu padre —dijo, y luego paró. Respiró. Empezó de nuevo—. Cuando tu padre corría, yo no dormía las noches antes de las carreras. Rezaba. Nunca le pasó nada grave, y yo siempre pensé que era porque yo rezaba. Ahora me doy cuenta que era suerte.
 
-Santi no dijo nada.
+Santi miró por la ventana del carro. Los postes de luz pasaban uno tras otro, regulares, indiferentes a lo que se decía adentro.
 
 —¿Sabes lo que es la suerte? —siguió su madre—. Es una cosa que se acaba. No se recarga, no se renueva. Se acaba. Y uno no sabe cuándo.
 
@@ -132,9 +132,9 @@ Era simple. Era obvio. Era lo que cualquier ciclista con experiencia le habría 
 
 ---
 
-El día quince, con la muñeca todavía un poco sensible pero funcional, Santi salió de madrugada al Alto de Minas.
+El día quince, con la muñeca todavía un poco sensible pero funcional, Santi salió de madrugada a Santa Elena.
 
-No al Alto de Palmas. El Alto de Minas primero —terreno conocido, sin sorpresas, la montaña que más respetaba y con la que tenía la relación más honesta. Subió despacio, calibrando, escuchando el cuerpo que protestaba en los sitios raspados y callaba en los que no. Llegó arriba. Bajó.
+No al Alto de Palmas. Santa Elena primero —terreno conocido, sin sorpresas, la montaña que más respetaba y con la que tenía la relación más honesta. Subió despacio, calibrando, escuchando el cuerpo que protestaba en los sitios raspados y callaba en los que no. Llegó arriba. Bajó.
 
 En la bajada, en cada curva, frenó antes de tiempo. Entró despacio. Salió controlado.
 
@@ -166,14 +166,8 @@ Camilo lo miró desde la bicicleta, con las manos en el manubrio y todavía resp
 
 No fue una predicción. Fue la manera que tienen los jóvenes de decir que ven algo en alguien que no saben nombrar de otra manera.
 
-Santi no respondió.
+Santi no respondió de inmediato. Miró hacia el valle, Medellín abajo brillando en la mañana, el aire todavía frío subiéndole por las mangas del buzo.
 
-Miró hacia el valle. Medellín abajo, brillando en la mañana.
+—Un día —dijo, al fin.
 
-Pensó en su padre.
-
-Pensó en el tejado de zinc de San José de la Montaña cantando bajo la lluvia.
-
-—Un día —dijo.
-
-Y no dijo más.
+Y se quedó mirando ese horizonte de techos y antenas como si ya pudiera distinguir, entre toda esa luz, el lugar exacto donde algún día iba a estar.

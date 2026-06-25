@@ -176,6 +176,8 @@ Froome, que estaba escuchando la traducción por el auricular, la miró a ella y
 
 Santi no respondió. Pero lo guardó.
 
+Más tarde, cuando los fotógrafos pidieron la foto protocolaria de los dos juntos —el nuevo líder y el segundo, hombro con hombro frente al logo del Giro— Froome le tendió la mano antes de que el fotógrafo terminara de pedirlo. Fue un apretón corto, funcional, sin la solemnidad que algunos rivales fabrican para las cámaras. Mientras sonreían para el flash, sin mover los labios, sin que el micrófono más cercano pudiera captarlo, Froome dijo en inglés: —*Three weeks ago nobody outside Colombia knew your name.* No era pregunta. No esperaba respuesta. Era, Santi entendería después, la manera en que un corredor de cinco Grandes Vueltas le decía a otro que el tablero había cambiado de forma permanente.
+
 La sexta pregunta volvió a Froome. La séptima también. La octava fue para Santi, de un periodista italiano de La Stampa.
 
 —Santiago, con el segundo lugar en la general asegurado, ¿cuáles son tus objetivos para el sábado y el domingo?

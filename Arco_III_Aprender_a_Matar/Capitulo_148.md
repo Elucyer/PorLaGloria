@@ -86,11 +86,7 @@ Hernando lo miró.
 
 — Voy — dijo Santi.
 
-Silencio.
-
-El Valle de Aburrá abajo en la mañana de noviembre con las nubes que en esa época del año llegaban temprano desde el oriente.
-
-— Bien — dijo Hernando.
+Hernando no insistió. Se quedó mirando el Valle de Aburrá abajo en la mañana de noviembre, las nubes que en esa época del año llegaban temprano desde el oriente, y solo después asintió con la cabeza, despacio, como quien cierra un trato sin necesidad de la palabra.
 
 ---
 
@@ -116,11 +112,11 @@ Al final, de vuelta a la puerta del edificio, Hernando se detuvo.
 
 — ¿La cadera? — dijo Hernando.
 
-— Bien — dijo Santi. — Ya no duele al caminar.
+— Ya no duele al caminar — dijo Santi.
 
-Hernando asintió.
+Hernando asintió, la mano en el pasamanos de la entrada.
 
-— Bien — dijo Hernando.
+— Ya veo — dijo Hernando.
 
 Y entraron.
 
@@ -188,11 +184,9 @@ Después Carmen se detuvo.
 
 Hernando la miró.
 
-— Bicicleta — dijo Hernando.
+— Bicicleta — repitió, probando el peso de la palabra en la boca como quien prueba un zapato nuevo.
 
-Santi los miró a los dos.
-
-No dijo nada.
+Santi los miró a los dos, las manos en los bolsillos de la chaqueta.
 
 Pero en el cuaderno — que no estaba en la mochila del Pablo Tobón sino en el apartamento de Laureles — ya estaba la línea que iba a escribir esa noche:
 
@@ -258,11 +252,11 @@ Los mismos dos idiomas — el del padre y el del director deportivo — que en e
 
 — La temporada — dijo Ferretti. — Empezamos el plan de invierno el primero de diciembre. El túnel de viento está reservado para el tres y el cuatro. Rusconi ya tiene el modelo de posición.
 
-— Bien — dijo Santi.
+— Listo — dijo Santi.
 
 — Descansá hasta el primero.
 
-— Bien.
+— Ya está.
 
 — Santi.
 
@@ -270,7 +264,7 @@ Los mismos dos idiomas — el del padre y el del director deportivo — que en e
 
 — Lo del padre: bien de verdad.
 
-Santi colgó.
+Santi no contestó. Colgó.
 
 Abrió el cuaderno.
 
@@ -310,8 +304,8 @@ Escribió:
 
 *— ¿Bien? — dijo Carmen.*
 
-*— Bien — dijo Hernando.*
+*Hernando no contestó con palabras. Se sentó a su lado, le puso la mano en la rodilla un momento, y eso fue la respuesta.*
 
-*Y se fue a dormir.*
+*Después se fue a dormir.*
 
 ---

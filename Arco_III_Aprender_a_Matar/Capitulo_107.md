@@ -56,9 +56,11 @@ El agua del lago y el viento y las ruedas sobre el asfalto y el mecanismo de la 
 
 El pinganillo de Ferretti: *Un minuto veinte. Están tirando. Fuglsang y Van Aert al frente del grupo. El ritmo subió.*
 
-— ¿Cuánto queda al Civiglio?
+Santi rompió el silencio del pinganillo.
 
-— Doce kilómetros. En el pie del Civiglio tenés que tener noventa segundos. Si llegás con menos de noventa, cerramos la diferencia en la subida.
+— ¿Doce hasta el Civiglio?
+
+— Doce. Al pie tenés que tener noventa segundos. Menos de noventa y la subida nos come la diferencia.
 
 — Bien.
 
@@ -150,11 +152,11 @@ Los doce kilómetros entre el Civiglio y el San Fermo fueron los doce kilómetro
 
 El cálculo de Ferretti en el pinganillo: *Treinta y ocho sobre Fuglsang. En el descenso te va a recuperar ocho, diez. Llegás al San Fermo con treinta. Fuglsang puede subir el San Fermo en veintinueve minutos. Con treinta segundos de ventaja, si vos subís en veintisiete —*
 
-— ¿En cuánto subo el San Fermo?
+Rusconi habló antes de que Santi preguntara, la costumbre del que ya sabe qué número quiere el corredor.
 
-— Rusconi dice veintisiete. Quizás veintiséis y medio.
+— El San Fermo te lo doy en veintisiete minutos. Veintiséis y medio si las piernas regalan algo.
 
-— Entonces llego.
+— Entonces llego — dijo Santi.
 
 Ferretti no respondió de inmediato.
 
@@ -270,9 +272,7 @@ Santi desaceleró.
 
 Las piernas que seguían pedaleando por inercia — el cuerpo que no sabe parar de repente después de cinco horas y seis minutos de carrera. La bicicleta rodando lenta en la avenida del lago, los tifosi en las vallas, el ruido del mundo que entraba de golpe cuando el esfuerzo cedía.
 
-Ferretti llegó corriendo desde el coche.
-
-No dijo nada.
+Ferretti llegó corriendo desde el coche, sin aliento, con la chaqueta del equipo a medio cerrar.
 
 Le puso la mano en el hombro.
 
@@ -286,17 +286,15 @@ El agua gris de octubre. Los Alpes suizos al fondo, apenas visibles entre las nu
 
 ---
 
-A las cuatro y veintidós en Medellín, Hernando abrió el cuaderno.
+A las cuatro y veintidós en Medellín, Hernando no tocó el cuaderno.
 
-Escribió:
+Se quedó mirando la pantalla apagada — el panel de resultados que ya había desaparecido, sustituido por la publicidad de un banco italiano — como si todavía pudiera ver algo ahí. Carmen le quitó el cuaderno de las rodillas, lo abrió ella misma, y escribió con su letra, más redonda que la de Hernando, más lenta:
 
-*Como. 12 de octubre.*
+*Como. 12 de octubre. Il Lombardia. Primero.*
 
-*Il Lombardia.*
+Se lo devolvió.
 
-*Primero.*
-
-Lo puso sobre la mesita, al lado del café frío.
+Hernando lo leyó una vez y lo cerró sin agregar nada — la primera entrada del cuaderno que no era suya, y la dejó así, sin corregirla.
 
 Carmen seguía con la mano sobre su rodilla.
 
@@ -324,11 +322,9 @@ Era la pregunta que no era pregunta.
 
 El lago de Como al fondo de la llamada — el viento del lago que en el micrófono del teléfono llegaba como estática, el ruido del mundo que rodeaba a Santi en la avenida de la meta con los tifosi y los coches y las motos y el helicóptero que todavía giraba.
 
-Silencio de los Reyes.
+Ninguno de los dos colgaba. Ninguno de los dos hablaba. Del otro lado del teléfono, Hernando oía el motor del helicóptero todavía girando sobre Como, y Santi oía, debajo de la estática, la respiración lenta de su padre — la respiración que en veinte años había aprendido a leer mejor que cualquier dato de Rusconi.
 
-El silencio que no era silencio.
-
-— Il Lombardia — dijo Hernando. — El Giro. El Mundial. — Una pausa. — Tres.
+— Il Lombardia — dijo Hernando, al fin. — El Giro. El Mundial. — Una pausa. — Tres.
 
 Era la contabilidad del año. La contabilidad de Hernando que en los años de las carreras grandes era la contabilidad de los que observan desde afuera y que saben exactamente lo que cada número significa.
 

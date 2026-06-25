@@ -76,7 +76,7 @@ Un silencio.
 
 —El jueves —dijo Hernando.
 
-Santi calculó. Hoy era miércoles 23 de mayo en Italia —jueves 24 en Colombia por la diferencia de horario cuando llamaba a esta hora. El examen era al día siguiente en Medellín.
+Santi calculó. Acá en Italia ya era noche del miércoles 23; en Medellín, por las siete horas de diferencia, todavía era media tarde del mismo miércoles. El examen era al día siguiente, jueves 24, en los dos lugares a la vez aunque a horas distintas.
 
 —Entonces mañana cuando corra ya vos ya sabés los resultados.
 

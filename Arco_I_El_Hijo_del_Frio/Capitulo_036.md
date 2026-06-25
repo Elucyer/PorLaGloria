@@ -20,11 +20,11 @@ Era un hotel de cuatro estrellas con vista al mar —desde la habitación de San
 
 El desayuno del hotel era diferente al del cuartel: más fruta, más aceite de oliva, pan con tomate en lugar del pan de corteza gruesa de Bélgica, y café de máquina que era mejor que el café de máquina del cuartel aunque inferior, por supuesto, a cualquier café colombiano que Santi hubiera tomado en su vida. Pero tomado bajo el sol de Mallorca en una terraza que daba al jardín del hotel, con el olor del mediterráneo en el aire y las palmeras, el café del hotel era perfectamente suficiente.
 
-—Mejor que Waregem —dijo Tom el primer desayuno, con la cara levantada hacia el sol de las nueve de la mañana.
+—Mejor que Waregem —dijo Tom el primer desayuno, con la cara levantada hacia el sol de las nueve de la mañana, los ojos cerrados como si quisiera fotografiar la sensación.
 
-—Todo es mejor que Waregem en marzo —dijo Clarke desde atrás.
+—Todo es mejor que Waregem en marzo —dijo Clarke desde atrás, sin levantar la vista del periódico que había encontrado en la recepción.
 
-—Incluso Waregem es mejor que Waregem en enero —dijo Marek, que era la primera vez en tres semanas que Santi lo escuchaba hacer algo parecido a un chiste.
+—Incluso Waregem es mejor que Waregem en enero —dijo Marek, despacio, saboreando la frase como si la hubiera traducido tres veces antes de soltarla. Era la primera vez en tres semanas que Santi lo escuchaba hacer algo parecido a un chiste.
 
 Los once corredores del equipo desayunaron en la terraza bajo el sol mediterráneo de principios de marzo con la expresión colectiva de personas que han sobrevivido algo y que ahora están procesando que sobrevivieron. Los belgas del equipo —acostumbrados al clima de Flandes de la manera en que uno se acostumbra a una condición crónica— también se veían distintos: más livianos, menos comprimidos hacia adentro. El sol hace eso con la gente del norte de Europa: la descomprime.
 
@@ -128,7 +128,7 @@ Los primeros tres kilómetros del Puig Major están al cinco por ciento —la pe
 
 En el kilómetro cuatro la pendiente subió al siete.
 
-Santi la sintió en los cuádriceps —no como esfuerzo máximo sino como el esfuerzo correcto, el que tiene el peso justo de lo que el cuerpo puede sostener si no lo desperdicia. Mantuvo la cadencia. Dejó que la potencia llegara a trescientos diez vatios sola, sin empujarla. En Colombia había aprendido a leer la diferencia entre el puerto que duele de manera productiva —el que te está construyendo— y el que duele de manera vacía —el que te está consumiendo sin darte nada a cambio. Este era productivo.
+Santi la sintió subir por las piernas. No como esfuerzo máximo. Como el esfuerzo correcto, el que tiene el peso justo de lo que el cuerpo puede sostener si no lo desperdicia. Mantuvo la cadencia. Dejó que la potencia llegara a trescientos diez vatios sola, sin empujarla. En Colombia había aprendido a leer la diferencia entre el puerto que duele de manera productiva —el que te está construyendo— y el que duele de manera vacía —el que te está consumiendo sin darte nada a cambio. Este era productivo.
 
 El kilómetro seis fue donde el Puig Major mostró su cara real: un tramo al nueve por ciento que duraba cuatrocientos metros y que sin aviso convertía la subida confortable en una pregunta directa. Santi cambió al piñón veintiuno. La cadencia bajó a ochenta y siete. Los pulmones empezaron a trabajar de verdad —el tipo de trabajo donde la respiración deja de ser un proceso automático y se convierte en algo que requiere atención, donde cada exhalación tiene que ser completa para que la siguiente inhalación sea eficiente.
 
@@ -136,7 +136,7 @@ En el kilómetro ocho la carretera se abrió y apareció el Mediterráneo.
 
 No al frente —al costado derecho, a través de los pinos que bordeaban la carretera, el mar de un azul que era difícil de procesar después de seis semanas de gris. Santi lo vio. No detuvo el ritmo —no era el momento de detenerse— pero lo registró con la parte del cerebro que registra las cosas que importan aunque el cuerpo esté haciendo otra cosa. El azul del Mediterráneo desde el kilómetro ocho del Puig Major. La diferencia entre ese color y el color del cielo de Flandes era la diferencia entre dos ideas del mundo.
 
-Los últimos cuatro kilómetros los subió en el límite —no en el límite del colapso sino en el límite del rendimiento óptimo, ese umbral donde el esfuerzo es máximo sostenible y cualquier décima de más empieza a costar más de lo que da. Los cuádriceps ardían con ese ardor limpio que distingue el esfuerzo muscular real del daño —la diferencia entre el fuego de una hoguera bien controlada y el de algo que se está quemando sin control.
+Los últimos cuatro kilómetros los subió en el límite. No en el límite del colapso. En el del rendimiento óptimo, ese umbral donde el esfuerzo es máximo sostenible y cualquier décima de más empieza a costar más de lo que da. Por dentro ardía con ese ardor limpio que distingue el esfuerzo muscular real del daño: el fuego de una hoguera bien controlada, no el de algo que se quema sin control.
 
 Llegó a la cima en veintidós minutos y cuarenta segundos.
 
@@ -150,7 +150,7 @@ Esa noche le mandó un mensaje a Santi:
 
 *22:40 Puig Major. Primera vez. Buena señal para mayo.*
 
-Santi leyó el mensaje. Lo archivó en la carpeta de su teléfono donde guardaba los mensajes que quería releer.
+Santi leyó el mensaje dos veces, sentado al borde de la cama con la ventana abierta y el ruido distante del mar entrando junto con el aire tibio de la noche. Lo archivó en la carpeta del teléfono donde guardaba los mensajes que quería releer.
 
 ---
 
@@ -192,7 +192,7 @@ Simon sonrió.
 
 —Yo voy a ganar Grand Tours.
 
-No fue arrogancia. Fue una declaración del tipo que se hace cuando uno realmente cree lo que está diciendo y no tiene motivo para fingir modestia que no siente.
+Lo dijo mirando la mermelada en su propia tostada, sin levantar la voz, de la misma manera en que habría dicho que iba a llover.
 
 Simon lo miró durante un momento.
 
@@ -299,4 +299,4 @@ Santi tomó el vino. Era seco, de la isla —*Binissalem*, ponía en la etiqueta
 
 Chocaron los vasos con el sonido limpio del cristal. En la mesa larga, Tom estaba explicando algo sobre Australia con los brazos abiertos —el radio de sus gestos siempre era el doble de lo necesario—, Marek miraba el mar con una expresión que podría haber sido contento o podría haber sido simplemente la cara que Marek tenía cuando estaba bien. Verstraeten hablaba con el médico del equipo sobre algo que Santi no alcanzó a escuchar. Pieter, el del Limburg, estaba comiendo el último trozo de *tumbet* con la concentración de alguien que sabe que no va a encontrar otro plato así hasta la próxima temporada.
 
-Afuera el Mediterráneo estaba oscuro y tranquilo, y en el horizonte que ninguno de los dos podía ver desde la terraza, Italia esperaba.
+Afuera el Mediterráneo estaba oscuro y tranquilo. Alguna luz de barco parpadeaba muy lejos, sin moverse, y en el horizonte que ninguno de los dos podía ver desde la terraza, Italia esperaba.

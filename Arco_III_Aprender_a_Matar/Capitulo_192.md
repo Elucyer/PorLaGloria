@@ -300,6 +300,10 @@ Santi se quedó pensando la respuesta.
 
 — Por un minuto cincuenta y tres sobre Carapaz —dijo Santi—. Menos que en 2021 contra Bernal, pero en un Giro con un perfil más parejo, sin un Zoncolan ni un Bondone que rompieran la carrera de manera definitiva.
 
+— ¿Hablaste con él después del Fedaia?
+
+— Esa noche no —dijo Santi—. Al día siguiente, en la salida. Me dijo lo mismo que me dijo en la Vuelta del año veinte, casi palabra por palabra: "Otra vez la misma vaina, hermano." —Sonrió, el primer gesto suelto de la entrevista—. Carapaz tiene esa manera de perder sin que parezca derrota. En Madrid, en Cibeles, me había dicho que el día que entrenáramos la crono igual que entrenamos las subidas, les ganábamos a todos. Yo ya lo había hecho. Él, no. Pero no lo dijo con rencor. Lo dijo riéndose, como quien ya sabe que la cuenta entre los dos sigue abierta.
+
 — ¿Cómo te sentiste en el podio de Verona?
 
 — Tranquilo —dijo Santi—. Era mi tercer Giro. Mi madre y mi papá estaban ahí, en la zona de meta, como en el de 2021. Y por primera vez, en lugar de pensar inmediatamente en lo que venía después, me permití disfrutar el momento durante toda la noche, sin abrir el cuaderno hasta el día siguiente.

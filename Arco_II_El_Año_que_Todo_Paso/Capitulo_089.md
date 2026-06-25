@@ -43,7 +43,7 @@ Del ocho en adelante solo. Era la condición del Giro en el decimonoveno día: e
 
 Santi asintió.
 
-Era suficiente.
+Sabía leer un plan cuando se lo daban completo.
 
 ---
 
@@ -247,7 +247,7 @@ El Monte Avena mañana. Verona el domingo.
 
 — Sí — dijo Santi. — Ya sé.
 
-Y colgaron.
+No quedaba nada más que decirse esa noche.
 
 ---
 

@@ -163,6 +163,18 @@ El dato real: no cero. Cuatro coma seis en el kilómetro nueve del Col de la Cro
 
 Kämna ganó la etapa en Villard-de-Lans con dos minutos y dieciocho segundos de ventaja sobre los tres Corredores que llegaron juntos. El alemán del Bora-Hansgrohe que en la zona mixta de Villard-de-Lans iba a decir: *"salí solo en el kilómetro treinta y uno porque si esperaba al grupo de los favoritos, los favoritos me iban a destruir. Hoy fue mi Tour."*
 
+Pogačar pasó al lado de Santi en la zona de firma, todavía con la respiración alta, y antes de que un micrófono lo alcanzara le dijo en inglés, con el acento que nunca limaba las vocales:
+
+— Cuatro coma seis. Lo escuché en tu radio.
+
+No era pregunta ni reclamo. Era el dato, dicho en voz alta porque a Pogačar le gustaba decir los datos en voz alta — al contrario de Roglič, que los guardaba como si decirlos en público fuera regalar algo.
+
+— Lo escuchaste bien — dijo Santi.
+
+Pogačar sonrió, esa sonrisa rápida que no distinguía entre ganar y casi perder, y siguió caminando hacia su autobús sin esperar nada más.
+
+Roglič pasó cerca, sin detenerse, el ciclocomputador ya desmontado y guardado en el bolsillo trasero del maillot — no quería que nadie del Jumbo le preguntara nada sobre el descenso ni sobre los cuatro coma seis del Col de la Croix antes de que él mismo terminara de procesarlo. Subió al autobús sin mirar atrás.
+
 La GC sin cambio.
 
 ---
@@ -195,7 +207,9 @@ La GC sin cambio.
 
 *— ¿Qué pasa mañana?*
 
-*— El Loze — dijo Hernando.*
+*Hernando dio vuelta el cuaderno hacia ella, el dedo sobre el perfil dibujado.*
+
+*— El Loze.*
 
 *El Valle de Aburrá fuera del balcón. La tarde de septiembre de Medellín con sus luces encendiéndose.*
 
@@ -229,7 +243,7 @@ Santi: — El problema es Pogačar.
 
 — Sí.
 
-Silencio en la habitación.
+Afuera, en el pasillo del hotel, una puerta se cerró. Ferretti no apartó los ojos de la pantalla.
 
 Era la conversación que los datos habían llevado hasta ahí: que el Tour 2020 no se decidía entre Santi y Roglič. Se decidía entre Santi y Pogačar, en el Col de la Loze, donde los dos corredores que respondían sin degradación visible iban a encontrarse sin el tercero para separar la batalla.
 

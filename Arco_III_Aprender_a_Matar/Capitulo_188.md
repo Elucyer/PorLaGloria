@@ -240,7 +240,7 @@ Santi frenó más allá, dio la vuelta, fue hacia donde estaba el esloveno.
 
 Los dos hombres se miraron.
 
-Pogačar dijo algo en inglés. No para las cámaras — para Santi, en voz baja, en el inglés del pelotón que era el idioma donde los dos se entendían sin que ninguno estuviera en su terreno.
+Pogačar dijo algo en inglés. No para las cámaras — para Santi, en voz baja, en el inglés del pelotón que era el idioma donde los dos se entendían sin que ninguno estuviera en su terreno. Apretó los labios antes de decirlo, como hacía siempre que quería la palabra exacta y no la primera que se le ocurría.
 
 Lo que dijo fue:
 
@@ -284,9 +284,25 @@ Ferretti encontró a Santi en la zona de equipo después del podio.
 
 El director tenía la cara del hombre que ha visto doscientos treinta y nueve kilómetros desde un coche y que en los últimos cinco kilómetros ha dejado de respirar.
 
-— Bien — dijo.
+— Bien — dijo, y por un momento no añadió nada más, como si las palabras le costaran después de doscientos treinta y nueve kilómetros mirando por el parabrisas del coche.
 
-— Bien — dijo Santi.
+Santi solo asintió.
+
+Colombo estaba sentado en el escalón del coche de equipo, todavía con el casco puesto, la bolsa de agua vacía a un lado. Había cruzado la línea casi una hora antes, descolgado en la Colma, sin que nadie en la zona de prensa le preguntara nada — el destino habitual del gregario que rinde su trabajo lejos de las cámaras.
+
+No se levantó cuando Santi se acercó. Solo lo miró, el casco todavía atado, el sudor seco en la cara después de las dos horas que llevaba esperando en la zona de equipo.
+
+— La carretera por la que entraste al Civiglio — dijo Colombo — pasa a cuatro kilómetros de la casa de mi abuela.
+
+Santi no dijo nada. Esperó.
+
+— Crecí viendo este Lombardia desde el borde de esa carretera, con mi papá, antes de que yo corriera una bicicleta en serio. — Colombo se quitó el casco, despacio, el gesto del cuerpo que ya no tiene prisa porque el día de trabajo terminó. — Treinta años viendo pasar a otros por el Civiglio. Y ahora paso yo. Y ahora ganás vos. En mi pueblo.
+
+— ¿Te molesta? — dijo Santi.
+
+— ¿Que gane un colombiano en Bérgamo? — Colombo sonrió, el cansancio todavía visible bajo la sonrisa. — Me molestaría si ganara cualquier otro. Con vos da lo mismo que si ganara yo.
+
+No era una frase hecha. Colombo la dijo mirando el lago, no a Santi, con la voz de quien no necesita que el otro le devuelva nada.
 
 Silencio de cinco segundos.
 
@@ -306,7 +322,7 @@ El director asintió despacio.
 
 Santi miró el lago de Como — el agua que en esa hora, con el sol en el horizonte de las montañas del oeste, era de un gris dorado que no parecía real.
 
-— Mañana — dijo — es el invierno.
+— Mañana empieza el trabajo que nadie ve — dijo.
 
 Ferretti esperó.
 
@@ -374,9 +390,7 @@ Y más al norte, invisible en la oscuridad, los puertos.
 
 El Stelvio. El Mortirolo. El Gavia. El Galibier. El Tourmalet. El Portet.
 
-La carretera del Tour 2022.
-
-*El invierno.*
+La carretera del Tour 2022, esperando bajo la nieve que todavía no había caído.
 
 ---
 

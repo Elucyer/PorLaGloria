@@ -35,7 +35,7 @@
 | Pos. | Corredor | Equipo | Diferencia |
 |------|----------|--------|------------|
 | 1 | Chris Froome | Team Sky | — |
-| **2** | **Santiago Reyes** | **Arkéa-Samsic** | **+2:08** |
+| **2** | **Santiago Reyes** | **Élan Cycliste** | **+2:08** |
 | 3 | Miguel Ángel López | Astana | +4:57 |
 | 4 | Tom Dumoulin | Team Sunweb | +5:28 |
 | 5 | Domenico Pozzovivo | BMC | +7:02 |
@@ -414,7 +414,7 @@
   3. Jean-Pierre Drucker (BMC)
 - **Maglia Rosa:** **Chris Froome** — victoria final
 - **Notas técnicas:** Etapa ceremonial. Los favoritos de la GC llegan juntos en el pelotón, la rosa de Froome es intocable. El Coliseo de fondo. Viviani, que había ganado tres etapas, pierde el sprint ante Bennett.
-- **🎯 Santi (ficción):** Santi llega en el pelotón con la maglia bianca y la maglia rosa en los bolsillos de la historia — fue 2º. En el podio final de Roma: un chico de 18 años de San José de la Montaña, Antioquia, Colombia, subido al podio del Giro de Italia como **segundo clasificado**, junto a Froome y López. La imagen que el fotógrafo de La Gazzetta dello Sport captura en ese momento — el chico con los ojos entrecerrados mirando al Coliseo — es la que Mariana Lopez recortará años después y pegará en su cuaderno de trabajo.
+- **🎯 Santi (ficción):** Santi llega en el pelotón con la maglia bianca y la maglia rosa en los bolsillos de la historia — fue 2º. En el podio final de Roma: un chico de 18 años de San José de la Montaña, Antioquia, Colombia, subido al podio del Giro de Italia como **segundo clasificado**, junto a Froome y López. La imagen que el fotógrafo de La Gazzetta dello Sport captura en ese momento — el chico con los ojos entrecerrados mirando al Coliseo — es la que Mariana Castañeda recortará años después y pegará en su cuaderno de trabajo.
 
 ---
 

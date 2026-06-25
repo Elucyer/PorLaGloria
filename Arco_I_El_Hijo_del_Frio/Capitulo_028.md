@@ -60,7 +60,7 @@ Santi miró la pantalla de Mejía, que todavía mostraba las gráficas de la tem
 
 —Sí —dijo.
 
-Así de simple. Una sílaba. La decisión más importante que había tomado en diecisiete años de vida.
+Una sola sílaba. Ospina, al otro lado, no dijo nada más; solo se quedó mirando el teléfono sobre la mesa como si la palabra todavía estuviera ahí, suspendida, antes de guardarlo en el bolsillo de la chaqueta.
 
 ---
 
@@ -100,11 +100,9 @@ No porque no tuviera qué decir. Sino porque entendió, viéndolo ahí, que su p
 
 Hernando Reyes se volvió hacia él.
 
-No dijo nada.
+No dijo nada. Extendió los brazos, torpe, como quien hace un gesto que no practica casi nunca y por eso le sale más brusco de lo que quisiera.
 
-Extendió los brazos.
-
-Y Santi, que tenía diecisiete años y no recordaba cuándo había sido la última vez que su padre lo abrazaba de esa manera —sin razón, sin ceremonia, sin que ninguno de los dos supiera bien cómo manejar la intensidad de lo que sentían— aceptó el abrazo y lo sostuvo durante el tiempo que las cosas importantes necesitan para asentarse.
+Santi aceptó el abrazo. Olía a la distribuidora, a cartón y a sudor de jornada, y debajo de eso a la colonia de siempre que su padre se ponía sin falta cada mañana. No dijeron nada más. Lo sostuvieron el tiempo que hizo falta, hasta que en la cocina se escuchó la olla de Carmen chocar contra la hornilla y los dos se soltaron al mismo tiempo, sin necesidad de señal.
 
 ---
 
@@ -174,4 +172,4 @@ Y lo entendió, porque él también lo sentía: que la siguiente vez que se sent
 
 Que el porvenir, al que la carrera debía su nombre, ya no estaba en el horizonte.
 
-Estaba en la puerta.
+Estaba en la puerta, con las maletas todavía sin hacer y el martes acercándose más rápido de lo que ninguno de los tres hubiera querido.

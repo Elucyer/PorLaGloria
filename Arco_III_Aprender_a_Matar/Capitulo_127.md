@@ -145,7 +145,13 @@ Clarke hizo ademán de irse. Se detuvo.
 
 — Una cosa más. Hoy yo llego hasta donde llegue. Puede ser el kilómetro ocho, puede ser el diez. Cuando me veas ceder, no mires. Ya hice el trabajo. Vos seguís.
 
-Siguió por el pasillo sin esperar respuesta.
+— ¿Te molesta? — dijo Santi. — Saber que vas a ceder antes del final.
+
+Clarke se quedó un segundo con la mano en la pared del pasillo, pensando la respuesta con más cuidado del que pensaba la mayoría de las cosas que decía.
+
+— A los veintiocho me habría molestado. — Se encogió de hombros—. A los treinta y tres ya entendí que mi trabajo no es llegar. Es que vos llegués con algo más en las piernas de lo que tendrías sin mí en el kilómetro ocho. Eso no sale en ninguna foto. Pero es el trabajo, y el trabajo está bien hecho si se hace bien, no si te lo aplauden.
+
+Siguió por el pasillo sin esperar respuesta, el eco de sus pasos perdiéndose hacia el ascensor.
 
 Santi lo vio alejarse — los mismos pasos de siempre, la misma chaqueta del equipo, treinta y tres años y dieciséis Tours y la misma economía de movimiento que le había enseñado en los adoquines de Flandes cuando los dos eran otra cosa.
 
@@ -155,13 +161,21 @@ Broeckx al lado de Santi, esperando la salida:
 
 — El Loze — dijo Broeckx. — Yo llego hasta donde llegue.
 
-— Lo sé — dijo Santi.
+Santi asintió sin mirarlo, los ojos fijos en la fila de coches que arrancaba.
 
 — Y después de ahí llegás vos.
 
 Santi lo miró.
 
 Broeckx no sonrió. No era el momento de sonreír — era el momento del gregario que en la víspera de la etapa más dura del Tour que ambos habían corrido le decía a su líder lo que necesitaba decirle sin que las palabras tuvieran que ser más que lo que eran.
+
+En la línea de salida, Pogačar se acercó a saludar — el saludo del que en el pelotón europeo era costumbre antes de las etapas grandes, la mano que se extiende sin mirar demasiado al rival, salvo que Pogačar sí miraba, directo, como si la cortesía no le impidiera medir.
+
+— Hoy el Loze — dijo Pogačar, buscando la frase exacta antes de soltarla, los labios apretados un instante de más.
+
+— Hoy el Loze — repitió Santi.
+
+Pogačar asintió, sin la sonrisa esta vez. Volvió a su puesto en la fila.
 
 La salida fue a las once y cuarenta y seis.
 

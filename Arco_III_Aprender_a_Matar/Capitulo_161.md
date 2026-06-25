@@ -218,7 +218,7 @@ Pensó en Pogačar.
 
 No en la táctica — en la carrera de noviembre, en el podcast con Julián. Lo que el esloveno había dicho — la frase que Julián había publicado en el transcripto, la que el diario Sport había resaltado en la portada del lunes siguiente: *Santi es el corredor que me hace tener más miedo de perder. Y cuando tengo miedo de perder, corro mejor.*
 
-La frase de un corredor que no admitía el miedo como debilidad sino como combustible.
+La frase de un corredor que no admitía el miedo como debilidad sino como combustible. Pogačar la había dicho sin la pausa de quien mide el efecto de sus palabras — apretando los labios un segundo antes de soltar la frase larga en inglés, como hacía siempre que buscaba la palabra exacta, y después diciéndola entera, sin editarse.
 
 Santi había dicho algo parecido — lo había dicho o lo había pensado, ya no recordaba si lo había dicho en voz alta porque en ese podcast las palabras habían salido de una manera que no era exactamente el Santi de las ruedas de prensa, que era más el Santi del cuaderno, el que pensaba sin filtros.
 

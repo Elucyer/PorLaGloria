@@ -26,7 +26,7 @@ El más lento de ellos subía más rápido que Santi.
 
 Eso no lo podía tolerar.
 
-Empujó más fuerte. Los alcanzó a mitad del puerto, los pasó uno a uno —cada uno mirándolo con la sorpresa de quien ve a alguien que no debería estar ahí haciendo algo que no debería poder hacer— y llegó a la cima cuatro minutos antes que el primero de ellos.
+Empujó más fuerte. El aire se le clavaba en la garganta, frío y delgado, pero no aflojó. Los alcanzó a mitad del puerto, los pasó uno a uno —cada uno mirándolo con la sorpresa de quien ve a alguien que no debería estar ahí haciendo algo que no debería poder hacer— y llegó a la cima cuatro minutos antes que el primero de ellos.
 
 Los esperó.
 
@@ -76,7 +76,7 @@ El martes de la segunda semana, en el recreo, un compañero llamado Julián —g
 
 —Aguantar frío.
 
-Julián se rió. Desde ese martes fueron amigos, o algo suficientemente parecido a amigos. Julián nunca montó bicicleta de verdad en su vida, pero admiraba a quienes lo hacían con esa admiración genuina y desinteresada de quienes no sienten ninguna presión de ser lo que admiran. Fue él quien le preguntaba a Santi por los tiempos y los puertos y los kilómetros, quien escuchaba con una atención que ningún otro compañero del colegio le daba, y quien contaba lo que Santi hacía a quien quisiera oír —en el recreo, en la tienda, en el bus de regreso a casa. No lo hacía para impresionar a nadie. Lo hacía porque genuinamente le parecía extraordinario y no podía entender por qué no todo el mundo lo veía.
+Julián se rió con esa risa entera que le sacudía los hombros, y le dio una palmada en la espalda como si ya se conocieran de toda la vida. Desde ese martes fueron amigos, o algo suficientemente parecido a amigos. Julián nunca montó bicicleta de verdad en su vida, pero admiraba a quienes lo hacían con esa admiración genuina y desinteresada de quienes no sienten ninguna presión de ser lo que admiran. Fue él quien le preguntaba a Santi por los tiempos y los puertos y los kilómetros, quien escuchaba con una atención que ningún otro compañero del colegio le daba, y quien contaba lo que Santi hacía a quien quisiera oír —en el recreo, en la tienda, en el bus de regreso a casa. No lo hacía para impresionar a nadie. Lo hacía porque genuinamente le parecía extraordinario y no podía entender por qué no todo el mundo lo veía.
 
 Julián Estrada. Que algunos años después estaría al borde de una carretera en la provincia de Lieja gritando el nombre de Santi con los brazos en alto, con la cara pintada de amarillo y azul, llorando de una manera que no le avergonzaba en absoluto.
 
@@ -86,7 +86,7 @@ Pero eso todavía no había pasado.
 
 Ya entrado el 2013, Santi tenía trece años y ya era conocido —no famoso, no reconocido, pero conocido en el sentido en que los ciclistas se conocen entre sí en una región: por referencia, por rumor, por la historia de alguien que lo vio subir algo y no podía creer lo que veía.
 
-El rumor decía: hay un pelao de Floresta que sube el Alto de Minas sin llevar agua.
+El rumor decía: hay un pelao de Floresta que sube Santa Elena sin llevar agua.
 
 El rumor decía: un chico sin equipo le ganó a los del Club Rionegro en el Boquerón el mes pasado.
 
@@ -94,7 +94,7 @@ El rumor decía: tiene trece años.
 
 Los rumores en el ciclismo antioqueño viajan despacio pero llegan lejos. Y cuando Édgar Ospina, director del Club Ciclismo Rionegro, le preguntó a uno de sus corredores más experimentados si sabía algo del chico del que hablaban, el corredor dijo:
 
-—Sí. Se llama Santi. Entrena solo. Sube el Alto de Minas antes de que amanezca.
+—Sí. Se llama Santi. Entrena solo. Sube Santa Elena antes de que amanezca.
 
 Ospina anotó el nombre en una libreta que guardaba en el cajón del escritorio de su casa, donde anotaba todos los nombres que valía la pena recordar.
 
@@ -104,8 +104,6 @@ Subrayado dos veces.
 
 Porque en treinta años de dirigir ciclistas, Ospina había aprendido a distinguir el talento del carácter, y lo que le contaban de ese chico no hablaba solo de piernas. Hablaba de algo más complicado y más valioso: la disposición de ir a buscar las montañas solo, antes del amanecer, cuando nadie te mira y nadie te aplaude y la única razón para seguir pedaleando es que no puedes imaginar no hacerlo.
 
-Eso no se enseña.
+Eso no se enseña. Se tiene o no se tiene.
 
-Eso o se tiene o no se tiene.
-
-Y Ospina llevaba demasiados años en esto como para desperdiciar el tiempo con los que no lo tienen.
+Ospina cerró el cajón con el nombre adentro y se quedó un momento mirando la madera, como si pudiera ver a través de ella al chico que todavía no conocía.

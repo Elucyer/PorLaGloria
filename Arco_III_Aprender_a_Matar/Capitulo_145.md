@@ -38,9 +38,7 @@ Santi lo escuchó.
 
 — ¿Y el Angliru?
 
-Silencio.
-
-Ferretti y Rusconi se miraron.
+Ferretti y Rusconi se miraron antes de responder, el cruce de miradas que decía más que cualquier pausa.
 
 — El Angliru — dijo Rusconi — tiene rampas al 23%. En esas rampas la tracción del manillar es máxima. La posición al 23% es la posición de pie, todo el cuerpo jalando. — Pausa. — El cuatro y medio puede volverse siete al 23%.
 
@@ -140,6 +138,12 @@ Gaudu ganó la etapa — el francés que abrió en el último kilómetro la dife
 
 Roglič segundo. Carapaz tercero. Mas cuarto. Carthy quinto. Santi sexto de etapa — a nueve segundos de Gaudu, dos de Roglič.
 
+Roglič cruzó la línea sin levantar la cabeza hacia el público escaso, los ojos en el ciclocomputador, contando los segundos perdidos como quien revisa una cuenta que ya sabe que va a cerrar bien. Segundo de etapa, líder de la general — el resultado exacto que necesitaba, ni más ni menos, y en su cara no había ni decepción ni alegría, solo la aritmética resuelta.
+
+Carapaz, al pasar al lado de Santi en la zona de enfriamiento, le tocó el casco con dos dedos, un gesto breve.
+
+— Volviste — dijo, sin mayor ceremonia, la sonrisa franca del que ve a un rival recuperarse y lo celebra como si fuera, en parte, propio.
+
 El narrador:
 
 — *¡Gaudu gana la Farrapona! El francés del Groupama-FDJ se lleva la etapa 11. Pero la gran noticia de hoy no es Gaudu. Es Santi Reyes Cardona. El colombiano llegó en el grupo de favoritos. No perdió tiempo en la GC. El hombro aguantó las rampas del catorce por ciento. La Vuelta no está terminada para el campeón del Tour y del Flandes.*
@@ -208,7 +212,7 @@ El Dr. Casado:
 
 — El hombro esta mañana: cuatro sobre diez en tracción. Igual que la Farrapona. — Pausa. — El Angliru tiene rampas al 23%. En el 23%, la tracción que el cuerpo necesita es mayor que en el 14% de la Farrapona. Mi proyección: en el 23%, el cuatro puede subir a siete.
 
-Silencio.
+Nadie dijo nada de inmediato. Ferretti miraba la mesa; Rusconi pasaba el dedo por una columna de números antes de hablar.
 
 Rusconi:
 
@@ -330,7 +334,7 @@ El corredor que en noviembre en Asturias corría por no rendirse.
 
 Roglič atacó en el kilómetro ocho.
 
-El esloveno — el especialista de la crono que en el Angliru no era el escalador puro pero que en la potencia corta del 21% tenía el cuerpo del sprinter de montaña que en los últimos cinco kilómetros era más efectivo que el escalador de veintiún kilómetros.
+El esloveno — el especialista de la crono que en el Angliru no era el escalador puro pero que en la potencia corta del 21% tenía el cuerpo del sprinter de montaña que en los últimos cinco kilómetros era más efectivo que el escalador de veintiún kilómetros. El ataque sin aviso, sin la cabeza que se vuelve a medir al rival — solo el cambio de ritmo seco del corredor que ha hecho ese cálculo cien veces y que no necesita repetirlo en voz alta.
 
 Carapaz respondió en 0,8 segundos.
 
@@ -385,6 +389,16 @@ El corredor que en el Moncalvillo había llegado un minuto cuarenta y seis despu
 Carthy ganó la etapa — el galés del EF que en el Angliru subió mejor que Roglič y Carapaz en los últimos dos kilómetros y que cruzó la línea con los brazos abiertos en el maillot blanco del mejor joven.
 
 Roglič segundo. Carapaz tercero. Mas cuarto.
+
+Roglič, al cruzar, ni siquiera buscó la diferencia en el reloj. Sabía el número antes de que el cronómetro lo confirmara — la maglia roja seguía siendo suya, y eso era el único dato que en el Angliru le importaba de verdad.
+
+Carapaz esperó a Santi en la zona de meta, todavía con las piernas temblando del esfuerzo, y cuando lo vio llegar treinta y cinco segundos después, fue hacia él antes que hacia su propio equipo.
+
+— Con ese hombro — dijo Carapaz, sacudiendo la cabeza — yo me hubiera bajado en la Cueña les Cabres.
+
+— No tenías el hombro mío — dijo Santi.
+
+Carapaz se rió, lo abrazó un segundo con el brazo libre, y se fue hacia el bus del Ineos.
 
 Santi llegó treinta y cinco segundos después.
 
@@ -442,6 +456,6 @@ El Valle de Aburrá en la noche de noviembre.
 
 Hernando cerró el cuaderno.
 
-No dijo nada.
+Se quedó mirando el lomo gastado, los dedos quietos sobre la tapa, como quien sostiene algo que pesa más de lo que parece.
 
 ---

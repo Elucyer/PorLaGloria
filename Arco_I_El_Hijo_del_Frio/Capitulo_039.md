@@ -214,7 +214,7 @@ Duchêne los miró uno por uno —los cuatro belgas, Tom, Marek, los demás. Lue
 
 —¿Algo? —dijo.
 
-Santi pensó en su padre. En el mensaje del Muro. En los cuatro segundos del Puerto de Boyacá. En el Alto de Minas a las cinco de la mañana.
+Santi pensó en su padre. En el mensaje del Muro. En los cuatro segundos del Puerto de Boyacá. En Santa Elena a las cinco de la mañana.
 
 —No —dijo—. Estamos listos.
 

@@ -296,7 +296,7 @@ La cima del Saint-Nicolas.
 
 Santi cruzó la cima con un metro — con medio segundo — sobre Pogačar.
 
-Y antes de que el descenso empezara, antes de que la gravedad tomara el control, Pogačar llegó a la cima.
+Y antes de que el descenso empezara, antes de que la gravedad tomara el control, Pogačar llegó a la cima. En el segundo en que coronó, con el pecho subiendo y bajando al límite, algo le cruzó la cara que no era dolor ni rabia — era, otra vez, ese principio de sonrisa que en él aparecía sin permiso, incluso ahí, incluso a un metro de perder la carrera más larga del año.
 
 Y en ese segundo — el segundo de la cima del Saint-Nicolas, con un metro de diferencia y seis kilómetros para el Boulevard d'Avroy de Liège — los dos aceleraron.
 
@@ -360,9 +360,7 @@ Ferretti en el pinganillo: — Veinte metros. Kilómetro y medio. Pedalá. Pedal
 
 El kilómetro tres.
 
-Dieciocho metros.
-
-Dieciséis.
+Santi ya no necesitaba que Ferretti le dijera el número — lo sentía en el sonido, en cómo el zumbido de la rueda de Pogačar pasaba de lejano a próximo cada vez que el viento amainaba un segundo.
 
 El kilómetro tres y medio.
 

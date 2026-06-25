@@ -40,9 +40,11 @@ No era una pregunta.
 
 —O menos. Has bajado cuarenta segundos en los últimos dos meses. La pierna está. La cabeza depende de ti.
 
-Camilo iba a subir a su propio ritmo, sin intención de récord —era su último entrenamiento del año en el Boquerón y quería terminarlo bien, no quemarlo. Era la clase de corredor que entendía sus propios límites sin conflicto, que no necesitaba medirse con nadie para saber dónde estaba.
+Camilo iba a subir a su propio ritmo, sin intención de récord —era su último entrenamiento del año en el Boquerón y quería terminarlo bien, no quemarlo.
 
-Santi respetaba eso de él.
+—Usted va a su número, yo voy al mío —le dijo a Santi mientras se ajustaba el casco, sin que nadie le preguntara nada.
+
+Santi no contestó. Pero se acordó de esa frase más tarde, en la cima.
 
 En el inicio de la subida efectiva —donde la carretera vieja se separa del asfalto nuevo y la pendiente empieza a cobrar— Santi se detuvo treinta segundos. Puso los pies en el suelo, respiró, miró hacia arriba.
 
@@ -86,7 +88,7 @@ Lo había planeado con Ospina: en el punto donde la carretera vieja hace la prim
 
 Pasó la curva y aceleró.
 
-El cuerpo respondió con esa claridad que tienen los cuerpos bien preparados para el momento que llevan semanas esperando. Los glúteos, los cuádriceps, los isquiotibiales entraron todos al mismo tiempo, la bicicleta encontró un ritmo que era diferente al de los primeros kilómetros —más urgente, más directo, como si la máquina y el hombre hubieran acordado finalmente hablar el mismo idioma.
+El cuerpo respondió como responden los cuerpos bien preparados para el momento que llevan semanas esperando: sin aviso, sin titubeo, todo el peso de las piernas entrando de golpe en el mismo compás. La bicicleta encontró un ritmo distinto al de los primeros kilómetros —más urgente, más directo— y el aire, frío todavía a esa altura, le raspaba la garganta cada vez que abría más la boca para meter más oxígeno del que cabía.
 
 En el kilómetro seis pasó frente al árbol que usaba como referencia desde hacía meses: un nogal torcido hacia el barranco, con las raíces visibles donde la erosión había descubierto la tierra. Cronómetro: veintitrés minutos y doce segundos.
 
@@ -104,7 +106,7 @@ Santi la conocía. Sabía el ángulo exacto en que el asfalto se levantaba, sab�
 
 La cabeza dijo: afloja.
 
-Santi no afloó.
+Santi no aflojó. Apretó los dientes hasta sentir la mandíbula entera, un dolor pequeño y estúpido que de algún modo ayudaba.
 
 Cambió al piñón que quedaba libre —había planeado tenerlo guardado para este tramo— y mantuvo la cadencia. El ritmo bajó un poco, inevitable, el veinte por ciento es el veinte por ciento y no hay potencia que lo cancele del todo. Pero no aflojó. La bicicleta oscilaba en el pedaleo de esa manera característica de las rampas extremas, el cuerpo entero participando en cada golpe de pierna, y los setenta metros pasaron como pasan las cosas que se deciden terminar aunque duelan: uno a uno, sin pensar en el conjunto.
 
@@ -114,7 +116,7 @@ Una respiración profunda. No de alivio —no había tiempo para el alivio— si
 
 ---
 
-La cima del Boquerón —dos mil ochocientos tres metros, el viento de occidente golpeando de frente, las nubes del cañón del Cauca que a esta hora ya empezaban a entrar— apareció en el kilómetro once.
+La cima del Boquerón —dos mil quinientos sesenta metros, el viento de occidente golpeando de frente, las nubes del cañón del Cauca que a esta hora ya empezaban a entrar— apareció en el kilómetro once.
 
 No de golpe. Primero la carretera afloja, un cambio en la inclinación que el cuerpo siente antes de que la mente lo procese. Luego la última curva, la que siempre parece la última pero no lo es. Y luego sí: el cartel que alguien había pintado a mano en una roca, con letras negras desiguales, que decía simplemente BOQUERÓN y nada más, y el viento que pegaba diferente porque ya no había montaña arriba que lo bloqueara.
 
@@ -138,7 +140,7 @@ Ospina llegó dos minutos después en el carro.
 
 —Cuarenta y uno treinta y ocho.
 
-Ospina no dijo nada de inmediato. Sacó la libreta, apuntó. Luego levantó la vista.
+Ospina no dijo nada de inmediato. Sacó la libreta, apuntó con esa letra apretada suya, se tomó su tiempo en cerrar el resorte antes de hablar.
 
 —Sub-17 lo bajaste.
 
@@ -164,14 +166,12 @@ Santi no respondió.
 
 Porque en su cabeza ya no era una cuestión de cuándo sino de cómo: qué necesitaba cambiar, dónde estaban los treinta y ocho segundos escondidos, en qué tramo estaba dejando tiempo que podía no dejar. Era el tipo de análisis que hacía sin que nadie se lo pidiera, que hacía desde antes de saber que se llamaba análisis, desde los domingos en San José siguiéndole los talones a su padre en la carretera que la niebla se tragaba.
 
-Camilo llegó doce minutos después, rojo pero vertical.
+Camilo llegó doce minutos después, rojo pero vertical, y lo primero que hizo fue reírse de su propio tiempo antes de que nadie le preguntara.
 
-Los tres se quedaron en la cima un momento, mirando la niebla que venía del occidente con esa parsimonia de las cosas que llevan haciendo lo mismo desde antes de que existieran las carreteras.
+Los tres se quedaron en la cima un momento, mirando la niebla que venía del occidente con esa parsimonia de las cosas que llevan haciendo lo mismo desde antes de que existieran las carreteras. El frío ya les había secado el sudor en la espalda y empezaba a calar.
 
 —¿Cuándo volvemos? —dijo Santi.
 
 —Enero —dijo Ospina.
 
-—Enero —repitió Santi.
-
-Como si fuera una promesa. Como si el Boquerón, que lo había escuchado, lo tomara nota.
+Santi no dijo nada más. Se quedó mirando el cartel pintado a mano en la roca, BOQUERÓN, hasta que la niebla se lo tragó entero.

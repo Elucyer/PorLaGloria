@@ -10,7 +10,7 @@ Para entonces vivían en Floresta, en el apartamento del cuarto piso con las ven
 
 Los domingos con su padre habían seguido sin interrupciones.
 
-Santa Elena, Las Palmas, el Boquerón por la carretera vieja —ese ascenso brutal que la primera vez le costó dos intentos y la segunda uno y la tercera lo subió de corrido aunque al final con las piernas convertidas en algo que pedía clemencia. El Alto de Minas por la salida hacia Caldas, que era más largo y menos empinado pero tenía una constancia que gastaba de otra manera, no por los picos sino por la acumulación. Cuarenta kilómetros de ida, la cima, cuarenta de vuelta. Santi los hacía en la bicicleta de montaña prestada, con los neumáticos anchos y el manubrio recto que ya le había dejado una calllosidad en la palma derecha donde el puño rozaba la mano durante horas.
+Santa Elena, Las Palmas, el Boquerón por la carretera vieja —ese ascenso brutal que la primera vez le costó dos intentos y la segunda uno y la tercera lo subió de corrido aunque al final con las piernas convertidas en algo que pedía clemencia. El Alto de Minas por la salida hacia Caldas, que era más largo y menos empinado pero tenía una constancia que gastaba de otra manera, no por los picos sino por la acumulación. Cuarenta kilómetros de ida, la cima, cuarenta de vuelta. Santi los hacía en la bicicleta de montaña prestada, con los neumáticos anchos y el manubrio recto que ya le había dejado una callosidad en la palma derecha donde el puño rozaba la mano durante horas.
 
 La bicicleta prestada se estaba quedando chica de otra manera también.
 
@@ -18,7 +18,7 @@ No de tamaño —había crecido cuatro centímetros en ocho meses y el cuadro to
 
 No se quejaba. Una queja era una excusa, y las excusas eran territorio al que decidía no entrar.
 
-Pero lo notaba.
+Pero cada noche, antes de dormir, miraba la bicicleta de montaña recostada contra la pared como quien mira algo que ya empezó a sobrar.
 
 ---
 
@@ -84,15 +84,11 @@ Bajaron la bicicleta al carro con más cuidado del que habían bajado casi cualq
 
 Su padre no dijo nada en todo el camino.
 
-Su madre, cuando llegaron, miró la bicicleta, luego miró a Hernando, luego volvió a la cocina sin decir nada, que era su manera de decir que entendía aunque no del todo y que aceptaba aunque con reservas.
+Su madre, cuando llegaron, miró la bicicleta, luego miró a Hernando un segundo de más, y volvió a la cocina sin decir nada. El cuchillo contra la tabla de picar sonó un poco más fuerte que de costumbre.
 
 Esa noche Santi la subió al cuarto —tuvo que doblarla levemente para pasar por la puerta, con esa incomodidad torpe de quien lleva algo frágil por espacios que no fueron diseñados para eso— y la recostó contra la pared junto a su cama. La última imagen antes de apagar la luz fue el rojo desgastado del cuadro en la oscuridad, con el reflejo de la luz de la calle que entraba por la ventana y que hacía brillar los pedales automáticos.
 
-Zapatillas, pensó.
-
-Necesitaba zapatillas de ciclismo.
-
-Eso vendría después.
+Zapatillas, pensó, antes de quedarse dormido. Necesitaba zapatillas de ciclismo. Eso vendría después, pero esa noche durmió con la mano colgando fuera de la cama, casi tocando el cuadro frío.
 
 ---
 
@@ -146,4 +142,4 @@ Rodrigo iba a decir algo sobre cómo en San José nadie tenía bicicleta de cicl
 
 La Colnago tomó la curva del kilómetro doce con una limpieza que la bicicleta de montaña nunca había tenido.
 
-Santi apretó los manubrios, bajó la posición, y dejó que la velocidad llegara sola.
+Santi apretó los manubrios, bajó la posición, y dejó que la velocidad llegara sola. El viento le secaba el sudor de la nuca y, por un instante, no pensó en Rodrigo ni en su padre ni en nada que tuviera nombre: solo en la curva que venía, y en la siguiente, y en la siguiente.

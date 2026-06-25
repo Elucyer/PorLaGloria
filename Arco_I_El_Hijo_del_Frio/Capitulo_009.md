@@ -42,7 +42,7 @@ El Colegio Salesiano tenía en grado octavo ciento cuarenta estudiantes, reparti
 
 El ciclismo, en el imaginario de un colegio de bachillerato, no tenía el estatus que tenía el fútbol.
 
-El fútbol tenía jugadores reales, apuestas en el recreo, ídolos que todos nombraban. El ciclismo tenía a Nairo —que ese año acababa de ganar el Tour de France y era portada de todos los periódicos y su cara estaba en las vallas publicitarias de la ruta al aeropuerto— y tenía a Santi, que se levantaba a las cinco de la mañana los días de entrenamiento y llegaba al colegio con las piernas todavía marcadas de la ropa de ciclismo.
+El fútbol tenía jugadores reales, apuestas en el recreo, ídolos que todos nombraban. El ciclismo tenía a Nairo —que el año anterior había ganado el Giro de Italia y era portada de todos los periódicos y su cara estaba en las vallas publicitarias de la ruta al aeropuerto— y tenía a Santi, que se levantaba a las cinco de la mañana los días de entrenamiento y llegaba al colegio con las piernas todavía marcadas de la ropa de ciclismo.
 
 —¿Nairo Quintana cuánto gana? —le preguntó un compañero llamado Diego, un día que el tema del ciclismo salió de alguna manera en la clase de Sociales.
 
@@ -56,7 +56,7 @@ El fútbol tenía jugadores reales, apuestas en el recreo, ídolos que todos nom
 
 —¿Qué? Es verdad.
 
-Diego los miró a los dos. Luego se encogió de hombros y volvió a su cuaderno.
+Diego los miró a los dos, sin convencerse del todo, y volvió a su cuaderno con un gesto que dejaba la duda flotando.
 
 Ese era el patrón. No había hostilidad —nadie molestaba a Santi por el ciclismo, nadie lo ridiculizaba— pero había una distancia, una incomprensión genuina de por qué alguien elegiría madrugar, sufrir, gastar zapatillas y rodilleras y tiempo que podría dedicarse a otras cosas, todo por un deporte que en Colombia tenía fanáticos pero no tenía la infraestructura de respaldo que merecía.
 
@@ -82,9 +82,7 @@ Santi pensó en eso mucho tiempo después de esa conversación. En los corredore
 
 En Colombia, el deporte de alto rendimiento no era una carrera: era un trayecto de obstáculos donde los talentos sobrevivían o no dependiendo de si encontraban a las personas correctas en el momento correcto.
 
-Él había encontrado a su padre primero. Luego a Ospina.
-
-Todavía no sabía si era suficiente.
+Él había encontrado a su padre primero. Luego a Ospina. Se quedó pensando, mientras se terminaba el tinto frío, en cuántos otros no habían tenido esa suerte.
 
 ---
 
@@ -112,7 +110,7 @@ Estuvo ahí tres semanas antes de que alguien lo reemplazara con el anuncio del 
 
 Tres semanas. Media columna. Una foto borrosa.
 
-Eso era, por ahora, lo que el ciclismo le daba en términos de reconocimiento público: un recorte de periódico que duraba tres semanas en un tablero de colegio. Y sin embargo —y esto era lo que Julián nunca terminaba de entender del todo— a Santi eso le daba exactamente igual. No le importaba el tablero ni el rector ni los tres chicos que le preguntaron de ciclismo. Le importaba el campeonato. La cima. El número en el cronómetro.
+Eso era, por ahora, lo que el ciclismo le daba en términos de reconocimiento público: un recorte de periódico que duraba tres semanas en un tablero de colegio. Santi pasaba frente a él todos los días camino al salón y casi nunca lo miraba. Lo que sí guardaba, doblado en el bolsillo trasero de la maleta, era el papelito con los tiempos de la última etapa, escritos de su propia letra apretada.
 
 El resto era ruido.
 
@@ -152,6 +150,6 @@ Santi se rió.
 
 —Se lo cuento a todo el mundo —dijo Julián—. ¿Cómo no?
 
-Y lo contó, efectivamente, con la misma generosidad ruidosa con que contaba todo, a quien quisiera escuchar: que Santi Reyes montaba bicicleta porque era el único lugar donde estaba donde debía estar, y que eso era suficiente razón para hacer cualquier cosa.
+Y lo contó, efectivamente, con la misma generosidad ruidosa con que contaba todo, a quien quisiera escuchar —en el bus, en el recreo, una vez incluso al profesor de Religión que no había preguntado nada— hasta que la frase de Santi terminó circulando por el colegio con la forma cambiada, simplificada, como pasa siempre que algo pasa por demasiadas bocas.
 
-Que eso, pensó Santi escuchándolo contar la versión de Julián de sus propias palabras, era exactamente correcto.
+Santi lo escuchaba contarla, una vez y otra, y no corregía nada. Solo sonreía a medias y dejaba que la versión de Julián siguiera su camino, un poco menos suya cada vez, un poco más de los dos.

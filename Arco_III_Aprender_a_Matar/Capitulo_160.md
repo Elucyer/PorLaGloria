@@ -284,17 +284,7 @@ Ocho metros en los doscientos metros finales del Cauberg al doce por ciento.
 
 El cálculo que Santi hizo en el metro doscientos fue el cálculo más rápido de la carrera y el más doloroso: ocho metros en doscientos metros al doce por ciento, con Van Aert en el ritmo del corredor que no bajaba, con el cuerpo propio en el territorio del ácido láctico donde cada pedalada costaba el doble de lo que debería costar, con los cuatrocientos metros de tramo al doce convertidos en los últimos ciento cincuenta del corredor que cierra pero no alcanza.
 
-Ciento veinte metros.
-
-Seis metros de diferencia.
-
-Ochenta metros.
-
-Cuatro metros.
-
-Cincuenta metros.
-
-Tres metros.
+El cartel de los cien metros pasó con Van Aert todavía sin bajar el ritmo, la diferencia cediendo metro a metro pero sin llegar nunca al punto de cero que Santi necesitaba. El público a los dos lados de la rampa era ya un solo rugido continuo, sin palabras distinguibles, el tipo de ruido que se siente en el pecho más que en los oídos.
 
 La línea.
 
@@ -337,6 +327,12 @@ No era derrota — era la carrera contra Van Aert en su terreno. El corredor má
 — Seis días para el Lieja — dijo Ferretti. — El cuerpo respondió en el Cauberg. Las piernas aguantaron hasta el final.
 
 Santi bebió.
+
+Van Aert pasó cerca, todavía con el maillot de ganador, y se detuvo un segundo antes de seguir hacia la zona de prensa.
+
+— Lo del Fromberg — dijo Van Aert, en español, sin que nadie le preguntara nada —. Yo hubiera hecho lo mismo en tu lugar. Conservar fue lo correcto. — Pausa. — Me gustaría ver tus números de ese tramo, algún día. No para copiarlos. Para entender cómo se ve la carrera desde donde vos la ves.
+
+Se fue antes de que Santi pudiera responder, la curiosidad genuina del corredor que llevaba años intentando entender cómo ganaban los demás, no solo cómo ganaba él.
 
 — Van Aert corre el Lieja también.
 

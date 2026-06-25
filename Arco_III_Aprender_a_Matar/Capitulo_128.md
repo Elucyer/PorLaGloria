@@ -51,7 +51,7 @@ En el kilómetro nueve: siete corredores.
 
 Los tres favoritos. Richie Porte del Trek. Bernal del Ineos. Dos más.
 
-Duchêne tomó el relevo — el último hombre del equipo, el gregario del pinganillo haciendo en la Madeleine lo que en este Tour no había sido su función principal. Cedió en el kilómetro catorce.
+Duchêne tomó el relevo — el último hombre del equipo, el gregario del pinganillo haciendo en la Madeleine lo que en este Tour no había sido su función principal. No el trabajo de potencia bruta de Broeckx ni el de Vidal: Duchêne llevaba el ritmo mirando hacia atrás cada pocos segundos, no por inseguridad sino por el hábito del corredor que en los equipos continentales franceses había aprendido a leer el pelotón antes de sentirlo en las piernas — contaba cuántos quedaban en el grupo sin necesidad de que Rusconi le diera el número por el pinganillo, calculaba antes que nadie en qué metro exacto el ritmo se volvía selección. Cedió en el kilómetro catorce, y antes de soltarse dijo una sola frase hacia Santi, sin volver la cabeza del todo: — Quedan seis. El danés no se cae. — La frase no era parte del protocolo del briefing. Era la información que Duchêne entregaba siempre un paso antes de que el dato llegara por el pinganillo, el reflejo del que ya había visto la carrera en el cuerpo de los demás antes de que la carrera se la mostrara a Rusconi en los números.
 
 Cima del Col de la Madeleine. 1.993 metros. Diez grados.
 
@@ -137,7 +137,7 @@ Rusconi: — Veintitrés.
 Ferretti: — ¿Primer Tour?
 Rusconi: — Primer Tour.
 
-Ninguno de los dos dijo nada más.
+Ferretti volvió la vista a la carretera, el bolígrafo quieto sobre el cuaderno.
 
 En el kilómetro nueve, Roglič incrementó cuatro vatios durante veinte segundos — el incremento de reconocimiento que en los puertos del Tour hacía para ver el dato de respuesta de los rivales.
 
@@ -154,6 +154,10 @@ Vingegaard empezó a ceder. Dos metros. Cuatro. Ocho. Doce.
 No de golpe — de a metros. La manera en que ceden los corredores que todavía tienen algo pero que en el punto del límite preciso no tienen lo suficiente.
 
 En el kilómetro diez: Vingegaard a veinticuatro metros de Santi.
+
+Un micrófono de la moto de televisión, pasando cerca, captó lo único que el danés dijo en todo el ascenso — no a nadie en particular, la cabeza baja, la voz sin aire detrás: — Bien.
+
+Una palabra. No la queja del que cede. El registro del que mide lo que acaba de pasar y lo guarda para usarlo después.
 
 El narrador, bajando la voz: — Vingegaard finalmente cede. El danés del Jumbo, primer Tour de France, aguantó diez kilómetros con los tres favoritos en el Col de la Loze. A 2.304 metros de altitud. — Pausa. — No lo vamos a olvidar pronto.
 
@@ -214,6 +218,8 @@ Y después se estabilizó a cinco metros.
 Cinco metros que no se cerraban.
 
 El primer momento en el Tour 2020 donde Roglič cedía terreno permanente en alta montaña — no la brecha que se cerraba, la brecha que se abría y se quedaba.
+
+Roglič no levantó la cabeza para medir la distancia. La sabía sin mirar — el mismo instinto del saltador de esquí que en el aire sabe la altura sin consultar nada. Bajó las manos al cuerpo del manillar, la posición más económica que el cuerpo todavía podía sostener, y siguió pedaleando al ritmo que el ritmo le permitía dar. Ningún gesto de frustración. Ningún golpe al manillar. Solo el cuerpo que administraba lo que quedaba de la manera en que había administrado todo lo demás en quince años de carrera: sin gastar ni un vatio en lamentarse por el vatio que ya no tenía.
 
 Rusconi por el pinganillo: — Roglič a cinco metros. No cierra. Vos y Pogačar juntos.
 
@@ -502,7 +508,7 @@ La GC al final de la decimoséptima etapa:
 
 *— Si aguanta la crono — dijo Hernando — gana el Tour.*
 
-*Carmen no dijo nada.*
+*Carmen se sentó en el brazo del sillón, la mano sobre el hombro de Hernando.*
 
 *Hernando abrió el cuaderno en la página del análisis:*
 
@@ -561,6 +567,36 @@ Ferretti no respondió de inmediato. Miró hacia el valle — el descenso de los
 — No — dijo Santi.
 
 No era pregunta.
+
+Duchêne llegó a la zona de llegada minutos después que el grupo de favoritos, todavía con el dorsal mojado de sudor y el rostro abierto de quien acaba de subir el puerto más alto de su carrera sin la presión de tener que ganarlo. Se quedó de pie junto al coche del equipo, sin acercarse todavía a Santi, mirando la pantalla que repetía la llegada al Col de la Loze.
+
+— Cuatro metros — dijo Duchêne, a Rusconi, antes de que Rusconi dijera nada. — Lo vi venir desde el kilómetro dieciséis y medio. Pogačar tardó un segundo de más en pararse en los pedales en el primer muro. Ahí ya estaba el partido.
+
+Rusconi lo miró. — ¿Lo viste en la Madeleine?
+
+— Lo vi en la salida de Grenoble — dijo Duchêne. — La forma en que se ataba los zapatos. Demasiado despacio. Un corredor que se ata los zapatos despacio esa mañana es un corredor que ya sabe que el día va a ser largo.
+
+No era el dato de un sensor ni el número de un análisis de potencia. Era la clase de observación que Duchêne llevaba coleccionando desde los equipos continentales de Lyon, donde el director no tenía presupuesto para diez analistas y el gregario que sabía leer un gesto antes de que el gesto se convirtiera en watts era el gregario que el equipo no podía perder. En el FCV-WorldTour, con todos los números de Rusconi disponibles, Duchêne seguía mirando los zapatos.
+
+Pogačar lo alcanzó antes de subir al autobús del UAE, todavía con la manta térmica sobre los hombros, la cara enrojecida por el frío de los 2.304 metros.
+
+— Cuatro metros — dijo Pogačar. — En el Giro de Italia, en Italia, cuatro metros son nada. Acá... — apretó los labios, buscando la palabra que el inglés no le entregaba tan rápido como el esloveno — acá son todo.
+
+— Lo sé — dijo Santi.
+
+— El kilómetro dieciséis y medio. Las cuarenta y ocho pedaladas. — Pogačar negó con la cabeza, pero la sonrisa ya se le había escapado, esa sonrisa de niño que no entendía de protocolos de derrota. — Yo iba a atacar ahí. Vos lo hiciste primero.
+
+— Por eso gané la etapa.
+
+— Por eso ganaste la etapa — repitió Pogačar, sin rencor en la voz, solo el hecho dicho en voz alta como le gustaba decir los hechos. Le dio una palmada breve en el hombro y siguió hacia el autobús.
+
+En la zona de antidopaje, minutos después, Santi y Vingegaard coincidieron en el mismo pasillo estrecho de la carpa — los dos todavía con las piernas cubiertas de sal seca, esperando el turno del control. El danés lo miró una vez, directo, sin el saludo de cortesía que la mayoría de los corredores intercambiaban por costumbre.
+
+— Diez kilómetros — dijo Vingegaard. Nada más. No era disculpa ni orgullo. Era el dato, dicho en voz alta para que existiera entre los dos.
+
+— Los vi — dijo Santi.
+
+Vingegaard asintió una sola vez, como si esa frase cerrara la cuenta del día, y volvió a mirar la pared de la carpa, otra vez en silencio, otra vez económico hasta en el gesto de esperar.
 
 El Col de la Loze. Tercera victoria de etapa del Tour de France. El puerto más alto del Tour 2020.
 

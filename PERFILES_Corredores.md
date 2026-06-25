@@ -55,7 +55,7 @@ Usar este documento como fuente única para características físicas, estilo de
 - **Nacimiento**: ~1972, Antioquia
 - **Relación**: Madre de Santi
 - **Carácter**: Presente, organizadora, afectuosa de manera más explícita que Hernando. Es ella quien hace la maleta cuatro veces antes del Tour de l'Avenir. La que cuida la mata de heliconias en el balcón.
-- **Trabajo**: Trabaja fuera del hogar (mencionado en cap. 8: "su madre que a esa hora estaría en el trabajo").
+- **Trabajo**: Trabaja fuera del hogar (mencionado en cap. 8: "su madre que a esa hora estaría en el trabajo"). **Precisado en el Arco III, cap. 156**: durante treinta años trabajó haciendo limpieza en casas de familias de El Poblado, Laureles y Belén — el oficio nunca fue motivo de vergüenza para ella, pero le costó tardes con Santi de niño que no recuperó. Dato nuevo, coherente con el hueco que dejaba "trabaja fuera del hogar" sin resolver.
 - **Residencia**: Apartamento en Floresta, Medellín. Vive con Hernando y Santi.
 - **Presencia narrativa**: Aparece en caps. 3, 5, 8, 36 (llamada abril 2018). Debe aparecer ocasionalmente en caps. 16–25 como presencia de fondo en el apartamento familiar.
 - **Nota**: Su nombre no se menciona explícitamente hasta cap. 36 (llamada de Bélgica). Se puede usar "su madre" antes de esa escena.
@@ -106,6 +106,7 @@ Usar este documento como fuente única para características físicas, estilo de
   - Vuelta del Porvenir 2017: Ganador, 4 segundos sobre Santi
 - **Frase clave**: "Para el año que viene" (Porvenir 2017, en el podio a Santi)
 - **Trayectoria post-Arco I**: Pasa al profesionalismo en el Arco II. Rival recurrente en los Arcos III y IV.
+- **NOTA PARA EL ARCO IV (planificación, junio 2026)**: Arroyave nunca llega a ser líder en Europa — su techo termina siendo el de gregario de fondo. Para cerrar su círculo con Santi, ficha por el equipo de Santi (FCV / MercadoLibre-FCV) **en 2023, al inicio del Arco IV** — no después del accidente del Tourmalet (2024). La razón narrativa: si se incorpora justo en el momento de la crisis post-Tourmalet, se siente un recurso oportuno ("aparece el gregario nuevo justo cuando se necesita"). Si llega un año antes, para cuando ocurra el Tourmalet ya existe una relación establecida entre los dos, y su presencia en la recuperación de Santi pesa porque el lector ya lo conoce. El "para el año que viene" de 2017 puede resonar en la escena de fichaje sin que nadie tenga que explicarlo.
 
 ### Ferney Ríos
 - **Origen**: Cundinamarca (equipo Cundinamarca sub-23)
@@ -240,7 +241,7 @@ Usar este documento como fuente única para características físicas, estilo de
 - **Estatura**: 1,76 m / 64 kg
 - **Carácter**: Silencioso hasta lo monástico. Habla en alemán con el mecánico y en inglés con Santi — nunca en español aunque lleva años en equipos con corredores colombianos. No necesita conversación para comunicarse: en la bicicleta dice lo que tiene que decir.
 - **Historia**: Corrió cuatro años en equipos continentales alemanes sin llegar al WorldTour. Ferretti lo ficha en 2020 específicamente para ser el primer lanzador de Santi en los puertos largos. Nadie lo ficha para ganar. Él lo sabe y no le importa.
-- **Relación con Santi**: Sin palabras. Arnheim tira, Santi ataca. La economía perfecta. Primer reaparece en el cap. 107. Su momento cumbre está en el Arco V (Alpe d'Huez, Tour 2028 — se deja caer exhausto en el arcén mientras Santi ataca).
+- **Relación con Santi**: Sin palabras. Arnheim tira, Santi ataca. La economía perfecta. **Corrección (junio 2026): su primera aparición real es el cap. 109 (Sierra Nevada, enero 2020), no el cap. 107 como decía esta nota antes — verificado, el cap. 107 no lo menciona.** Su momento cumbre está en el Arco V (Alpe d'Huez, Tour 2028 — se deja caer exhausto en el arcén mientras Santi ataca).
 - **Rol narrativo**: El gregario que hace posible las victorias sin aparecer en el podio. La imagen más poderosa del Arco V.
 
 ### Enric Mas

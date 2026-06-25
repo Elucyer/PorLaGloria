@@ -152,6 +152,8 @@ Bernal, con la toalla todavía sobre los hombros, había sonreído antes de resp
 
 — Santi y yo crecimos viendo las mismas carreteras — dijo Bernal, en español, para que la traducción no perdiera nada. — Yo soy de Zipaquirá, él es de San José de la Montaña. Los dos subimos los mismos puertos cuando éramos niños, aunque nunca coincidimos. — Pausa. — Correr contra él es diferente porque cuando gana él, en Colombia, también ganamos todos un poco. Y cuando gano yo, pasa lo mismo con él. — Otra pausa, la sonrisa ahora más pequeña, más seria. — Eso no significa que hoy no quisiera ganarle por nueve centésimas. Quería. Y gané.
 
+Lo que Bernal no dijo en esa sala, porque no era una frase para micrófonos, se lo guardó para él mismo en el autobús, mientras se quitaba los zapatos de la bicicleta con los dedos todavía entumecidos por el esfuerzo: que en el último kilómetro, antes de lanzar el segundo ataque, había pensado en arepa de choclo y en el frío de la Sabana a las cinco de la mañana, en las salidas de entrenamiento de adolescente cuando todavía no sabía que un día iba a correr contra alguien de Antioquia por algo tan grande como esto. No era nostalgia exactamente. Era más bien la certeza tranquila de que ese kilómetro final, ese duelo de centésimas, no lo entendía nadie en esa sala de prensa de la misma manera en que lo entendía el propio Bernal — y, sospechaba, de la misma manera en que lo entendía el corredor al que le acababa de ganar por nueve centésimas.
+
 La frase dio la vuelta al mundo en menos de una hora.
 
 *Cuando gana él, en Colombia, también ganamos todos un poco.*
@@ -185,6 +187,8 @@ La llamada terminó poco después, con la promesa de siempre — *llamame mañan
 *Que ganar contra Bernal no se sentía como ganarle a Pogačar.*
 
 *Se sentía como ganarle a un espejo.*
+
+*Con Pogačar era distinto, y Santi lo sabía desde Cattolica del año anterior, desde la Strade Bianche, desde el cruce de miradas antes de cada salida: con el esloveno había siempre un segundo de cálculo, una distancia que ninguno de los dos necesitaba salvar para reconocerse. Pogačar atacaba y a la vez sonreía — incluso cuando perdía esos centímetros, la sonrisa se le escapaba antes de que pudiera evitarlo, como si la propia carrera, ganada o perdida, le pareciera demasiado buena para no disfrutarla. Bernal no sonreía así. Bernal medía. Y esa diferencia, pensó Santi esa noche, era quizás la que más le decía sobre los dos.*
 
 ---
 

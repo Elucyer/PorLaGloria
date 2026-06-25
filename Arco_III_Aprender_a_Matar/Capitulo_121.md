@@ -32,6 +32,8 @@ Vidal anotó en el teléfono.
 
 — Echavarría va como apoyo de Vidal — dijo Ferretti. — Si Vidal cede antes de lo proyectado, Echavarría cubre. — Pausa. — El objetivo de hoy no es ganar la etapa. Es llegar al kilómetro seis con el depósito que el kilómetro seis necesita.
 
+Echavarría anotó la palabra *apoyo* en el cuaderno con el bolígrafo, sin que nadie le preguntara por qué la anotaba. Apoyo de Vidal. No el segundo hombre de montaña — el respaldo del segundo hombre. Era un paso atrás de lo que había imaginado en diciembre, cuando Ferretti lo llamó para confirmarle el lugar en el Tour, y un paso adelante de donde había estado el día anterior en la Strade Bianche, cuando ni siquiera había llegado a ser el respaldo de nadie. Echavarría había aprendido en dos temporadas de WorldTour que el trabajo de un gregario joven no se medía en kilómetros de relevo sino en la distancia entre lo que el equipo le pedía hoy y lo que le iba a pedir el año que viene si hacía bien lo de hoy.
+
 Santi no había hablado.
 
 Cuando Ferretti terminó y los corredores empezaron a levantarse, Broeckx le preguntó en voz baja: — ¿El kilómetro seis?
@@ -153,6 +155,8 @@ No el promedio de la subida — el tramo más duro del ascenso, los 800 metros d
 El tren del Ineos cedió en el kilómetro tres — los gregarios del equipo de Bernal que habían tirado el primer y el segundo kilómetro a ritmo alto se desplomaron en el tramo del diez por ciento con la velocidad de los cuerpos que han dado todo en dos kilómetros al frente.
 
 El grupo: dieciséis corredores.
+
+Vidal había cedido en el kilómetro dos del Manse — antes de lo proyectado, el cuerpo del fichaje de invierno todavía aprendiendo los límites reales de la montaña sostenida del Tour de France, distintos a los límites de la Vuelta. Echavarría, que rodaba dos posiciones detrás esperando exactamente ese momento, tomó el relevo sin que nadie tuviera que decirle nada — la instrucción de la mañana ya estaba en el cuerpo. Tiró del grupo de los favoritos durante kilómetro y medio del Manse, el colombiano de Manizales empujando el ritmo al setenta y nueve por ciento de su capacidad, cubriendo el hueco que Vidal había dejado un kilómetro antes de lo que el plan decía. No era la montaña donde Echavarría iba a definir su lugar en el equipo — era el kilómetro y medio de relevo silencioso donde un gregario joven demuestra que cuando el plan se rompe, está donde tiene que estar. Cedió él también al pie del descenso, agotado, pero con la cara distinta a la del día anterior en la Strade Bianche: no la cara del que ha fallado primero, sino la del que ha cumplido en el momento exacto en que lo necesitaban.
 
 Bernal se puso al frente. El colombiano del Ineos que el año anterior había ganado el Tour y que en este Tour venía como co-favorito — Bernal subiendo el kilómetro tres de Orcières-Merlette al frente del grupo con la postura del corredor que en la montaña tiene algo que demostrar.
 
@@ -327,7 +331,7 @@ El periodista de Eurosport:
 
 Roglič: — Santi atacó. Respondí. Eso es lo que pasa en el Tour.
 
-La economía de Roglič en la zona mixta era la economía del tiburón que no muestra las cartas: las respuestas correctas, la cara del corredor satisfecho, y ninguna palabra extra sobre lo que le había costado cerrar los nueve metros del kilómetro seis.
+La economía de Roglič en la zona mixta era la economía del tiburón que no muestra las cartas: las respuestas correctas, la cara del corredor satisfecho, y ninguna palabra extra sobre lo que le había costado cerrar los nueve metros del kilómetro seis. Mientras hablaba, los dedos de la mano derecha seguían rozando, casi sin que él lo notara, el borde del ciclocomputador todavía sujeto al manillar que un mecánico sostenía cerca — el gesto de quien prefiere confirmar un número antes de regalar una frase. No iba a decir en público lo que el 2,8 le había costado. Eso era para el cuaderno de Rusconi, no para la prensa.
 
 Pogačar después.
 
@@ -343,7 +347,7 @@ El periodista de France 2:
 
 — ¿Santi Reyes?
 
-Pogačar: — Santi Reyes es el corredor que más me cuesta leer. — Pausa. — Ataca antes de lo que el análisis dice que va a atacar. Eso es diferente.
+Pogačar apretó los labios un segundo, buscando la palabra en inglés que dijera exactamente lo que quería decir y no una aproximación. — Santi Reyes es el corredor que más me cuesta leer. — Pausa. — Ataca antes de lo que el análisis dice que va a atacar. Eso es diferente.
 
 El periodista de Colombia:
 
@@ -391,25 +395,23 @@ En el hotel de Orcières esa noche.
 
 Ferretti, Rusconi, Santi.
 
-Los datos en el portátil de Rusconi: el análisis de los tiempos de respuesta de los tres en cada ataque del kilómetro cuatro al seis. El número rojo subrayado dos veces:
+Rusconi giró el portátil hacia los otros dos sin preámbulo, el dedo ya señalando una celda subrayada en rojo dos veces, como si la pantalla misma fuera la prueba que no necesitaba presentación.
 
 *Roglič km 6, segundo ataque: 3,4 seg.*
 
-Rusconi: — Tres coma cuatro. En el kilómetro seis de una subida al siete y medio, después de ciento cincuenta kilómetros de carrera. El límite de Roglič en la montaña pura sostenida está en ese número.
+— Tres coma cuatro — dijo, con el acento que en italiano-español convertía cada número en algo casi musical. — Capisci qué significa esto. Kilómetro seis de una subida al siete y medio, ciento cincuenta kilómetros de carrera ya en el cuerpo. *Questo* es el límite de Roglič en la montaña pura sostenida.
 
-Ferretti: — ¿Cambia si descansó más?
+Ferretti se inclinó sobre la pantalla, los antebrazos en la mesa. — ¿Y si llega más fresco a otra etapa?
 
-Rusconi: — Puede cambiar un punto. El 3,4 puede ser 2,9 en un día de mejor forma. Pero la referencia del Col de la Loze es diferente — diecisiete kilómetros al 8,5%, el doble del esfuerzo acumulado de hoy.
+— Magari un punto menos. Dos coma nueve, en un buen día. — Rusconi cerró el portátil a medias, como quien guarda un naipe que ya mostró suficiente. — Pero el Col de la Loze no se parece a esto. Diecisiete kilómetros al 8,5%. El doble del esfuerzo de hoy. Ahí el número no se queda en 3,4.
 
-Santi: — En el Loze ese 3,4 es 4,5.
+Santi, sin levantar la vista del cuaderno donde dibujaba de memoria el perfil del Loze: — Va a ser 4,5.
 
-Rusconi lo miró.
+Rusconi lo miró un segundo de más, sorprendido de que el corredor llegara antes que el modelo.
 
-— Posiblemente — dijo. — No tengo el dato para confirmar, pero el modelo dice 4,1 a 4,8.
+— Puede ser. El mío dice entre 4,1 y 4,8. *Vediamo.*
 
-— Bien.
-
-Santi cerró el cuaderno.
+Santi cerró el cuaderno sin agregar nada.
 
 Era la conversación de los tres que terminaba siempre en el mismo punto: los datos que Rusconi construía, el marco que Ferretti organizaba, y la síntesis que Santi hacía en una sola frase que contenía todo lo que necesitaba.
 
@@ -425,12 +427,14 @@ Hernando lo sabía en Laureles, a las once de la noche de Colombia, sin los dato
 
 Lo sabía porque en cuarenta años de ciclismo había aprendido que el corredor que en el kilómetro seis de la primera subida del Tour tarda 3,4 segundos en responder va a tardar más en el kilómetro doce de la décima subida.
 
-Y en el cuaderno, al lado del 3,4 que había anotado durante la transmisión, escribió:
+Junto al 3,4 que había anotado durante la transmisión, trazó una flecha hacia abajo y escribió, con la letra que se le encogía cuando algo le importaba de verdad:
 
 *En el Loze: atacar antes del kilómetro seis.*
 
 No seis.
 
 Antes del seis.
+
+Apagó la lámpara del cuaderno pero no la del cuarto. Se quedó un rato mirando la ventana, donde la luz de la calle de Laureles entraba inclinada sobre las paredes, hasta que Carmen, desde la puerta, le preguntó si pensaba dormir esa noche. Hernando no respondió con palabras. Levantó dos dedos —dame dos minutos más— y siguió mirando el número.
 
 ---

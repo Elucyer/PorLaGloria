@@ -70,7 +70,7 @@ Van Aert, cambiando al español del pelotón — el español básico y preciso d
 
 — Dije que eso es lo que la gente no entiende del ciclismo profesional. Que la opción de no seguir no existe. En el trabajo normal, cuando algo sale mal podés parar, repensar, reorganizar. En una carrera de Grand Tour, cuando algo sale mal en el kilómetro cuatro de la etapa catorce, tenés ciento ochenta y seis kilómetros más que recorrer ese mismo día y diecinueve etapas más en los días siguientes. Seguir no es una virtud. Es la única opción.
 
-Silencio.
+Nadie dijo nada durante un par de segundos. Se oía, de fondo, el zumbido leve del wifi de Herentals cargando algo en otra pestaña.
 
 Julián: — Wout, vos sabés algo de esto.
 
@@ -88,7 +88,7 @@ Julián dejó el espacio.
 
 — No recuerdo el impacto — continuó Van Aert. — Recuerdo la crono hasta el kilómetro veintidós, que estaba en tiempo de ganar la etapa. Después hay un blanco. Después recuerdo la camilla y el enfermero y el dolor — el dolor que en el momento no te dice su tamaño, solo te dice que está ahí. — Pausa. — Lo que más recuerdo de ese día es la cara de mi novia en el hospital de Pau.
 
-Silencio.
+Se quedó callado un momento, la mirada fija en algo fuera de cámara, los dedos quietos sobre la mesa.
 
 — Lo siguiente que recuerdo bien es el quirófano del día siguiente. — Pausa corta. — Y después la recuperación. Los meses de la recuperación.
 
@@ -162,7 +162,7 @@ Había una razón para la elección. Julián la había pensado desde que supo qu
 
 Pogačar tardó.
 
-No el tartamudeo de quien busca palabras — el silencio del que tiene demasiadas y está eligiendo cuál es la correcta.
+No el tartamudeo de quien busca palabras — el silencio del que tiene demasiadas y está eligiendo cuál es la correcta. Apretó los labios un segundo, el gesto que ya era suyo en cada episodio cuando el inglés no le daba de inmediato la palabra exacta y él prefería esperarla a conformarse con la aproximada.
 
 Después dijo:
 
@@ -190,9 +190,9 @@ Julián: — Santi.
 
 — ¿Qué pensás?
 
-Silencio.
+Santi dejó pasar el tiempo sin contestar, la mandíbula apretada, los ojos fijos en un punto de la pared blanca de Girona que ya no era Girona sino Laureles.
 
-No el silencio de quien no sabe qué decir. El silencio del corredor que en la montaña tarda dos segundos en atacar — no porque la decisión no esté tomada sino porque la decisión necesita el momento correcto para salir.
+No era que no supiera qué decir. Era el corredor que en la montaña tarda dos segundos en atacar — no porque la decisión no esté tomada sino porque la decisión necesita el momento correcto para salir.
 
 — Que tiene razón — dijo Santi.
 
@@ -224,7 +224,7 @@ Julián: — ¿Y eso te preocupa?
 
 Pogačar: — ¿Cómo?
 
-La pregunta llegó sin preparación — la curiosidad real del corredor que quiere saber cómo el rival piensa resolverlo.
+La pregunta llegó sin preparación — la curiosidad real del corredor que quiere saber cómo el rival piensa resolverlo. Era lo que distinguía a Pogačar de los otros dos tiburones, algo que Julián ya había notado en los meses de coordinar el podcast: Roglič hablaba lo mínimo y nunca explicaba un cálculo que pudiera servirle a otro. Pogačar preguntaba en público lo que cualquier director deportivo le habría aconsejado preguntar en privado, porque le interesaba más entender al rival que protegerse de él.
 
 Santi: — No te lo digo.
 
@@ -250,9 +250,7 @@ Van Aert escuchó.
 
 — Voy a decirles algo — dijo Van Aert — que probablemente no debería decir porque los dos van a estar en el mismo Tour que yo y en el Tour preferiría que ambos se distrajesen pensando el uno en el otro en lugar de prestarme atención a mí. — Pausa. — Pero lo voy a decir igual. Lo que acabo de escuchar en los últimos cinco minutos es el inicio de algo que en diez años el ciclismo va a recordar como el inicio de algo. No sé cuántos Tours van a ganar ninguno de los dos. Pero sé que los Tours de la próxima década los van a decidir entre ellos dos. Los demás vamos a pelear por los lugares que dejen libres.
 
-Silencio en los tres micrófonos.
-
-El silencio que no era vacío — el silencio de la frase que necesita espacio para posarse.
+Ninguno de los tres micrófonos registró nada durante un rato. No era un silencio vacío: era el peso de la frase asentándose, buscando dónde quedarse.
 
 Julián dejó correr ocho segundos.
 
@@ -276,9 +274,7 @@ Julián: — ¿Solo testigo?
 
 Pogačar: — La montaña en agosto va a decir muchas cosas.
 
-Santi no respondió.
-
-No necesitaba.
+Santi giró la cabeza hacia la ventana, donde ya estaba entrando la luz plena de la mañana de Laureles, y dejó la respuesta sin decir.
 
 La montaña en agosto iba a hablar.
 
@@ -395,12 +391,10 @@ Desde el balcón vio la luz de la bicicleta de Santi bajando por la calle del ba
 
 La luz pequeña en la oscuridad del Valle de Aburrá.
 
-Hernando tomó el café.
+Hernando tomó el café, todavía caliente, y sintió el vapor subirle a la cara en el aire fresco de la madrugada.
 
-No abrió el cuaderno — a las cinco de la mañana todavía no había nada que anotar. El cuaderno era para cuando la carrera empezara. Esto era antes.
+El cuaderno seguía cerrado sobre la mesa del balcón — a las cinco de la mañana todavía no había nada que anotar. Eso vendría cuando la carrera empezara. Esto era antes: el hijo solo en la oscuridad, el padre solo en el balcón, los dos despiertos por razones distintas a la misma hora exacta.
 
-Este era el momento en que el trabajo se hacía sin que nadie lo viera.
-
-Que era, pensó Hernando, el único momento donde el trabajo era completamente real.
+¿Cuántas mañanas como esta llevaban ya, sin que ninguno de los dos se lo hubiera dicho al otro en voz alta?
 
 ---

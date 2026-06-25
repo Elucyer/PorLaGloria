@@ -63,6 +63,10 @@ Santi respondió en 0,8.
 
 Pogačar miró de reojo — el instinto del escalador que al incrementar mira si alguien lo sigue. Vio a los dos a un metro detrás. Bajó los vatios.
 
+Y sonrió.
+
+No la sonrisa de la victoria — no había nada que ganar en el kilómetro ciento cuarenta de la etapa más larga del Tour. La sonrisa de la prueba confirmada, del corredor al que descubrir algo le daba el mismo placer que ganarlo.
+
 No había dicho nada. No había mirado antes de incrementar. El movimiento del corredor que en el kilómetro ciento cuarenta de la etapa más larga del Tour prueba algo que el Col de la Loze va a necesitar que sea verdad: que los otros dos responden, que la respuesta les cuesta, que en el sexto día desde el descanso los cuerpos de los tres están al nivel que él espera que estén.
 
 Lo que encontró: los dos respondieron en menos de un segundo. Los cuerpos de los dos al nivel que él esperaba.
@@ -132,7 +136,7 @@ Pogačar lo siguió en 1,9 segundos.
 
 En el kilómetro ciento treinta y dos, los tres juntos de nuevo.
 
-Roglič no dijo nada. No miró atrás. El mensaje no era para ellos — era para él. El corredor del Jumbo que en los descensos todavía era el más rápido de los tres y que en el Col de la Loze, donde el Tour se iba a decidir, el descenso hacia Méribel después de la cima iba a ser el terreno donde podía intentar recuperar lo que la subida le hubiera costado.
+Roglič mantuvo la vista fija en la carretera, los hombros bajos sobre el manubrio, sin un gesto hacia atrás. El mensaje no era para ellos — era para él. El corredor del Jumbo que en los descensos todavía era el más rápido de los tres y que en el Col de la Loze, donde el Tour se iba a decidir, el descenso hacia Méribel después de la cima iba a ser el terreno donde podía intentar recuperar lo que la subida le hubiera costado. Al llegar al llano, antes de que los otros dos lo alcanzaran, bajó la vista un segundo al ciclocomputador — la velocidad máxima del tramo, el dato que en su cabeza ya tenía un lugar fijo entre los números de la temporada. No dijo nada. No hacía falta decir nada cuando el aparato ya lo había dicho por él.
 
 Rusconi por el pinganillo de Santi: — Los datos del descenso. Roglič abre siete metros en cuatro segundos. Tu respuesta: 1,3. Pogačar: 1,9.
 
@@ -198,22 +202,20 @@ Clarke asintió.
 
 Era la naturalidad del rouleur que sabe exactamente cuál es su Tour: no las cimas, el trabajo que pone al líder en condiciones de llegar a las cimas con lo que las cimas requieren.
 
-Santi, en silencio durante la reunión:
+Santi había estado en silencio casi toda la reunión, los brazos cruzados, escuchando más que mirando. Cuando habló, fue para volver atrás dos días.
 
-— ¿Cuánto perdimos con Roglič en los descensos de la E14?
+— Lo de la E14. El descenso. ¿Cuánto quedó realmente en la GC?
 
-Rusconi: — Siete metros en cuatro segundos. En la GC, cero — recuperaste el descenso con el pedaleo en el llano.
+Rusconi no necesitó revisar nada. — Siete metros, cuatro segundos. Pero en la general, *niente* — lo recuperaste en el llano antes de cruzar meta.
 
-— Bien.
+Ferretti cerró el tablet con un golpe seco, como quien da por terminada una discusión antes de que empiece.
 
-Ferretti cerró el tablet.
+— El Grand Colombier es la primera carnicería de los Alpes. En cada subida de verdad de este Tour los tres se han atacado, y en el Colombier va a pasar otra vez. — Se quedó mirando a Santi un momento, no como director sino como alguien que conoce a este corredor desde hace años. — Mañana no hace falta ganar el Colombier. Hace falta que confirmés que tenés el nivel del Loze.
 
-— El Grand Colombier es la primera carnicería de los Alpes — dijo. — En este Tour, en cada subida de verdad, los tres se han atacado. En el Colombier van a volver a hacerlo. — Pausa. — Santi: la primera carnicería tiene que confirmar que tenés el nivel del Col de la Loze. No ganar el Colombier — confirmar el nivel.
+Santi sostuvo la mirada de Ferretti más tiempo del necesario, como si estuviera pesando la frase antes de aceptarla del todo.
 
-Santi lo miró.
+— Lo tengo.
 
-— Bien — dijo Santi.
-
-Una palabra. La única que necesitaba.
+No fue una promesa. Fue el tipo de afirmación que en boca de Santi equivalía a un hecho ya ocurrido.
 
 ---

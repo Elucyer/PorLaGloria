@@ -68,9 +68,9 @@ Nairo: — En el Giro 2014, en el Zoncolan. En la Vuelta 2016, en la Farrapona.
 
 Julián: — Y en el Tour de 2013, ¿cuándo supiste que no iba a ser tuyo?
 
-Silencio.
+Se oyó, del otro lado de la línea, el roce de una silla moviéndose despacio sobre el piso de la casa en Tunja. Nairo no contestaba.
 
-No el silencio de la evasión — el silencio del corredor que está mirando algo hacia adentro y que tarda en volver.
+No era evasión. Era el corredor mirando algo hacia adentro, tardando en volver de ahí.
 
 — En la etapa catorce — dijo Nairo finalmente. — Mont-de-Marsan a Castelsarrasin. Una etapa llana. A ciento setenta kilómetros de la meta, caí.
 
@@ -108,7 +108,7 @@ Pausa larga.
 
 — No lo sé — dijo Nairo. — Eso es lo que llevo siete años sin saber.
 
-El silencio del episodio dos de *Aprender a Matar* duró once segundos en ese punto. Julián lo dejó correr. Santi no habló. Nairo tampoco. Eran once segundos de algo que en el podcast tenía el peso de lo que no se puede decir más claro.
+Once segundos sin que nadie dijera nada — Julián los dejó correr sin cortar, la grabadora encendida sobre la mesa, el cursor del programa de edición parpadeando sobre una onda de sonido plana. Era el peso de lo que no se puede decir más claro que con el silencio mismo.
 
 Julián: — Santi, ¿vos esperás que el equipo te diga?
 
@@ -222,15 +222,13 @@ Escribió la frase de Nairo: *el que decide primero tiene los segundos del que e
 
 Debajo escribió: *Tour de France. Agosto (si ocurre). La crono. Los segundos de Nairo en el Ventoux son los mismos segundos que yo perdí en la crono del Lombardia 2019 — excepto que yo no tenía crono. Todavía.*
 
-La catedral de Santa María marcó las diez.
-
-El confinamiento afuera.
+La catedral de Santa María marcó las diez, las campanadas llegando opacas a través de la ventana cerrada, y el sonido se quedó flotando un rato en el apartamento vacío antes de apagarse del todo.
 
 El rodillo en la sala y el micrófono en el dormitorio y el cuaderno en la mesita — los tres objetos del mundo reducido de Girona, los tres instrumentos con los que Santi estaba construyendo el año que el virus había detenido pero que no había cancelado.
 
-El Tour en agosto.
+Afuera, en la calle desierta, una persiana metálica bajó con un golpe seco — alguien cerrando un negocio que ya no tenía sentido mantener abierto. El sonido subió hasta la ventana de Santi y se perdió.
 
-Si ocurría.
+El Tour en agosto, si ocurría.
 
 Iba a ocurrir.
 

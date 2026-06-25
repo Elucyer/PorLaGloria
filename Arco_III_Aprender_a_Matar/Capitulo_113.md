@@ -56,7 +56,7 @@ Rigo: — Si hubiera tenido la crono, habría ganado el Tour en 2014. Y quizás 
 
 Santi: — Se construye.
 
-El silencio fue breve pero específico.
+Rigo dejó pasar un segundo, como quien sopesa si vale la pena seguir por ahí.
 
 Rigo: — ¿Vos creés que se construye?
 
@@ -124,7 +124,7 @@ Julián: — ¿No vas a extrañar las carreras?
 
 — Lo que voy a extrañar es el pelotón — dijo Rigo. — No las carreras en sí — el pelotón. Los hombres que están ahí todos los años. Los que ya no están. Los nuevos que llegan y que todavía no saben que van a recordar estos años como los mejores de su vida aunque no lo parezca cuando están en ellos.
 
-Silencio.
+Se le quebró un poco la voz al final, lo justo para que Julián no se atreviera a llenar el espacio que vino después.
 
 Era la frase más larga que Rigo había dicho sin humor y la más verdadera de las treinta y ocho frases verdaderas que había dicho en cincuenta y ocho minutos.
 
@@ -150,7 +150,7 @@ Santi: — ¿Y cuándo llega?
 
 Rigo: — En la carrera que no esperabas perder.
 
-El silencio de los tres fue el silencio específico de la conversación que ha llegado a un lugar donde la frase siguiente tiene que ser la correcta o no tiene que ser.
+Ninguno de los tres dijo nada después de eso. Había llegado al punto donde la frase siguiente tenía que ser exacta o mejor no decirla.
 
 Julián la dejó correr.
 
@@ -208,12 +208,10 @@ Debajo de las tres líneas, una sola más:
 
 *No sé cuál es la mía. Todavía.*
 
-Guardó el cuaderno.
+Cerró el cuaderno sin guardarlo, lo dejó sobre la mesita junto al vaso de agua, y apagó la lámpara.
 
-El confinamiento afuera. Girona quieta bajo el cielo de mayo que empezaba a calentar. La primavera catalana llegando sin que el mundo supiera todavía si el verano iba a ser el verano de la vuelta o el verano de la espera.
+Por la ventana entraba Girona quieta bajo el cielo de mayo que empezaba a calentar — la primavera catalana llegando sin que el mundo supiera todavía si el verano iba a ser el verano de la vuelta o el verano de la espera. Abajo, en la calle, alguien pasó en bicicleta sin luces, la rueda delantera chocando contra un adoquín suelto, y el ruido se fue apagando calle abajo.
 
-El Tour en agosto.
-
-Si ocurría.
+El Tour en agosto, si ocurría.
 
 ---

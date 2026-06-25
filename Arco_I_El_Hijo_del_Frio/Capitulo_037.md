@@ -6,7 +6,7 @@
 
 La llamada llegó un jueves por la noche, el doce de abril.
 
-Santi estaba en el apartamento de Waregem, tres semanas antes del inicio del Giro, terminando de revisar el perfil de altimetría de la décima etapa —la primera con montaña real, que cruzaba por los Dolomitas del noreste italiano— cuando el teléfono vibró en la mesa con el nombre de su madre en la pantalla.
+Santi estaba en el apartamento de Waregem, tres semanas antes del inicio del Giro, terminando de revisar el perfil de altimetría de la décima etapa —la primera con montaña real, que cruzaba por los Dolomitas del noreste italiano— con la lámpara del escritorio como única luz del cuarto y el resto del apartamento ya en silencio, cuando el teléfono vibró en la mesa con el nombre de su madre en la pantalla.
 
 Su madre no llamaba los jueves.
 
@@ -76,7 +76,7 @@ Una pausa.
 
 —Se ve bien —dijo Carmen—. Un poco cansado. Pero se ve bien.
 
-Santi colgó. Se quedó mirando el teléfono durante dos minutos. Luego abrió el WhatsApp y le escribió a su padre: *Papá. Mañana te llamo. Cuídate.*
+Santi colgó. Se quedó mirando el teléfono durante dos minutos, la pantalla negra y su propio reflejo apenas visible en el cristal. Luego abrió el WhatsApp y le escribió a su padre: *Papá. Mañana te llamo. Cuídate.*
 
 Hernando respondió veinte minutos después, lo que significaba que no estaba durmiendo: *Estoy bien hijo. Tú cuídate que el Giro está cerca.*
 
@@ -132,9 +132,7 @@ Colgaron.
 
 Santi se volvió a sentar en el escritorio. El perfil de altimetría de la décima etapa seguía en la pantalla —los Dolomitas con sus perfiles dentados, el Passo San Pellegríno, el Passo Valles, los números de kilómetros y altitudes que tres horas antes habían sido el centro de su atención y que ahora eran simplemente líneas en una pantalla.
 
-Las miró.
-
-Las volvió a mirar.
+Las miró un rato largo, sin que los ojos terminaran de enfocar ninguna cifra. Afuera, en algún apartamento del bloque de enfrente, alguien cerró una ventana de golpe.
 
 Luego cerró el portátil.
 
@@ -142,7 +140,7 @@ Luego cerró el portátil.
 
 Los resultados llegaron el miércoles siguiente, a las cuatro de la tarde hora de Bélgica.
 
-Su madre llamó con el mismo tono controlado de la vez anterior, y Santi, que había estado todo el día midiendo el teléfono en silencio —en los entrenamientos, en las comidas, en la reunión técnica de Duchêne que había seguido sin escuchar del todo— respondió antes de que sonara el primer timbre.
+Su madre llamó con el mismo tono controlado de la vez anterior, y Santi, que había estado todo el día midiendo el teléfono en silencio —en los entrenamientos, en las comidas, en la reunión técnica de Duchêne que había seguido sin escuchar del todo, con el teléfono boca arriba sobre la mesa por si vibraba— respondió antes de que sonara el primer timbre.
 
 —¿Qué dice?
 
@@ -190,7 +188,7 @@ A pesar de todo, Santi sintió algo que podría haber sido una sonrisa.
 
 Santi no respondió de inmediato.
 
-Afuera de la ventana del cuarto del apartamento de Waregem, un chico de quince años en bicicleta subía la calle con esa energía despreocupada de los quince años, pedaleando sin casco, con el viento doblándole la ropa, sin saber que alguien lo miraba.
+Afuera de la ventana del cuarto del apartamento de Waregem, un chico de quince años en bicicleta subía la calle con esa energía despreocupada de los quince años, pedaleando sin casco, con el viento doblándole la ropa, sin saber que alguien lo miraba desde el tercer piso con el teléfono todavía caliente contra la oreja.
 
 —Dile que voy —dijo Santi—. Y que en cada puerto.
 
@@ -260,10 +258,8 @@ Y ahí, con esa pregunta que era la forma en que Hernando Reyes preguntaba *¿es
 
 Y colgaron.
 
-Y Santi se quedó con el teléfono en la mano, en el apartamento de Waregem, con el frío de abril en Flandes filtrándose por la ventana mal sellada, y entendió que algunas cosas —las cosas más importantes, las que definen quién eres y de dónde vienes y hasta dónde eres capaz de llegar— no se resuelven en una conversación ni en un diagnóstico ni en ninguna palabra.
+Y Santi se quedó con el teléfono en la mano, en el apartamento de Waregem, con el frío de abril en Flandes filtrándose por la ventana mal sellada y la pantalla ya apagada reflejando apenas su propia cara. Entendió que algunas cosas —las cosas más importantes, las que definen quién eres y de dónde vienes y hasta dónde eres capaz de llegar— no se resuelven en una conversación ni en un diagnóstico ni en ninguna palabra.
 
-Se resuelven en la carretera.
+Se resuelven en la carretera. En los puertos. En el cuerpo que sube cuando el corazón querría bajar.
 
-En los puertos.
-
-En el cuerpo que sube cuando el corazón querría bajar.
+Dejó el teléfono sobre la mesa, boca abajo esta vez, y volvió a encender el portátil para terminar de revisar los Dolomitas.

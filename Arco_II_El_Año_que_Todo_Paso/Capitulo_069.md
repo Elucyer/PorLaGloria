@@ -12,7 +12,49 @@ La semana cero era la invención de Santi — los primeros cinco días de enero 
 
 Desayunó con sus padres los primeros tres días. Café de Carmen — no el café en cápsulas de la máquina de Waregem sino el café de la olla con la canela, el café que en Bélgica era un recuerdo y en Laureles era simplemente el café de las mañanas. Pan de bono del miércoles. La conversación de los desayunos de los Reyes, que nunca había sido una conversación de muchas palabras pero que tenía su propio ritmo: Hernando con el periódico del día anterior que llegaba por suscripción con veinticuatro horas de retraso, Carmen con la lista del mercado que anotaba en el reverso de un sobre, Santi con el café mirando por la ventana hacia el cerro de Picacho.
 
-Era suficiente.
+No hacía falta nada más que eso.
+
+---
+
+Julián Estrada llegó el dos de enero, sin avisar, con una maleta pequeña y la excusa de que la Javeriana no abría hasta el veinte y que su mamá en San José ya lo había aguantado los días que se podía aguantar a un hijo de veinte años durmiendo hasta el mediodía.
+
+Tocó el timbre del apartamento de Laureles a las tres de la tarde.
+
+—¿Vos qué hacés aquí? —dijo Santi, abriendo la puerta.
+
+—Vine a ver al campeón. —Julián lo abrazó con la efusividad de siempre, la misma de los catorce años, la que no había cambiado nada con los podios ni con los micrófonos—. Y a comer donde tu mamá. En ese orden, si soy honesto.
+
+Carmen, desde la cocina, ya estaba sirviendo un plato extra.
+
+Pasaron la tarde en el balcón. Julián contó Bogotá —la facultad, los profesores que hablaban de periodismo deportivo como si fuera una ciencia exacta, el frío de la sabana que según él era peor que el de San José porque "el de allá uno lo entiende, el de Bogotá es un frío con mala actitud"—. Santi escuchó casi todo sin decir mucho, con la misma atención de siempre, la que Julián interpretaba como aburrimiento y que en realidad era la forma que tenía Santi de querer a la gente: callado, presente, sin necesitar llenar el aire.
+
+—¿Y vos qué? —dijo Julián—. Contame algo que no sea de bicicleta.
+
+—No hay mucho que no sea de bicicleta.
+
+—Mentira. Tiene que haber algo.
+
+Santi lo pensó.
+
+—Extraño el guarapo de la esquina —dijo, finalmente—. En Bélgica no hay.
+
+Julián se rió con esa risa grande que en el colegio se oía desde dos salones de distancia.
+
+—Eso es lo más triste que te he escuchado decir en mi vida.
+
+—Es la verdad.
+
+—Por eso es triste.
+
+Se quedó tres días. El último, antes de tomar el bus de vuelta a Bogotá, le dijo algo que no tenía la forma de chiste:
+
+—Cuando ganes el Giro este año —porque lo vas a ganar, no me mires así— yo quiero estar ahí. Aunque sea de espectador. Aunque sea pagándome el vuelo yo mismo.
+
+—¿Por qué?
+
+—Porque alguien de San José tiene que estar gritando tu nombre en un idioma que no entienda nadie alrededor. —Julián se encogió de hombros—. Es un trabajo importante. Alguien lo tiene que hacer.
+
+Santi no dijo nada. Pero lo anotó, en algún lugar que no era la libreta de los datos.
 
 ---
 
@@ -49,6 +91,12 @@ Santi asintió.
 — ¿Todo?
 
 — Los dos pulmones. El oncólogo dice que la cicatrización está dentro de los parámetros normales para este tiempo de recuperación. El siguiente control es en abril.
+
+Hernando tosió una vez, corto, y se aclaró la garganta antes de seguir hablando.
+
+— Es el frío de la calle — dijo, sin que nadie le hubiera preguntado—. Allá afuera hace ese viento seco de enero.
+
+Nadie lo discutió. Carmen siguió doblando los abrigos. Era enero, y en Medellín en enero el aire seco le raspaba la garganta a cualquiera.
 
 — Bien — dijo Santi.
 

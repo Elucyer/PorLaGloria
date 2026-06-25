@@ -22,7 +22,7 @@ Cuatro etapas por Antioquia y Caldas —territorio conocido en parte, desconocid
 
 Arenas, el representante de Manzana Postobón sub-23, se lo explicó en la reunión táctica del miércoles anterior:
 
-—La vertiente de Caldas del Alto de Minas tiene cuarenta y un kilómetros desde Neira. Pendiente media del cuatro coma dos. No parece nada. Pero llega un momento en el kilómetro treinta donde la carretera cambia de carácter y quien no tenga las piernas para ese momento va a pagar. La media engaña porque los últimos once kilómetros están al siete y al ocho.
+—La vertiente de Caldas del Alto de Minas tiene cuarenta y un kilómetros desde Neira —dijo Arenas, marcando el trazado en el mapa con el dedo, como si pudiera sentir la pendiente al tocarla—. Pendiente media del cuatro coma dos. No parece nada. Pero llega un momento en el kilómetro treinta donde la carretera cambia de carácter y quien no tenga las piernas para ese momento va a pagar. La media engaña porque los últimos once kilómetros están al siete y al ocho.
 
 —¿Cuánto dura la etapa?
 
@@ -30,7 +30,7 @@ Arenas, el representante de Manzana Postobón sub-23, se lo explicó en la reuni
 
 —¿Los rivales?
 
-—Indeportes Antioquia tiene dos piernas buenas. El equipo de Bogotá —Cundinamarca Sub-23— tiene un chico que ganó el último Torneo Nacional. Se llama Ferney Ríos. Dieciséis años, muy completo, bueno en contrarreloj y en montaña.
+—Indeportes Antioquia tiene dos piernas buenas. —Arenas hizo una pausa, buscó la hoja correcta entre la carpeta—. El equipo de Bogotá, Cundinamarca Sub-23, tiene un chico que ganó el último Torneo Nacional. Se llama Ferney Ríos. Dieciséis años, muy completo, bueno en contrarreloj y en montaña.
 
 Santi anotó el nombre.
 
@@ -58,7 +58,7 @@ Salamina en julio: el sol ya alto, el calor del occidente de Caldas que era dife
 
 Santi pasó la etapa en el grupo grande. Siguiendo instrucciones. Observando.
 
-Ferney Ríos era fácil de identificar: llevaba la camiseta azul y blanca del Cundinamarca Sub-23 y pedaleaba con una verticalidad impecable, la posición de alguien que ha sido bien enseñado desde temprano, con el cuerpo en ángulo perfecto sobre la bicicleta en los repechos. En los descensos bajaba rápido y sin miedo. En los llanos llevaba una cadencia alta, el tipo de corredor que prefiere pisar liviano a empujar pesado.
+Ferney Ríos era fácil de identificar: llevaba la camiseta azul y blanca del Cundinamarca Sub-23 y pedaleaba con una verticalidad impecable, la posición de alguien que ha sido bien enseñado desde temprano, con el cuerpo en ángulo perfecto sobre la bicicleta en los repechos. En los descensos bajaba rápido y sin miedo, el casco bien calado, los codos sueltos. En los llanos llevaba una cadencia alta, el tipo de corredor que prefiere pisar liviano a empujar pesado.
 
 Santi lo estudió durante ciento seis kilómetros.
 
@@ -104,8 +104,6 @@ Santi miró el techo de la habitación del hotel de Neira —una habitación fun
 
 Su padre había corrido el Clásico RCN. Tres veces. Sin ganarlo nunca.
 
-Mañana, Santi Reyes iba a correr la versión juvenil de ese nombre.
+Mañana, Santi Reyes iba a correr la versión juvenil de ese nombre, en la misma montaña donde tantas madrugadas había subido solo, antes de que el sol saliera, sin saber todavía para qué.
 
-Y lo que sintió, mirando el techo, no fue presión.
-
-Fue algo más parecido a una deuda que por fin podía pagarse.
+Cerró los ojos antes de que el zumbido del aire acondicionado terminara de molestarle.

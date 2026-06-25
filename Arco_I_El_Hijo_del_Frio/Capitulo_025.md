@@ -70,9 +70,9 @@ Santi lo dejó hablar porque había algo en la voz de su padre que no era el tex
 
 —Gracias por ir.
 
-Hernando tardó.
+Hernando tardó, y en ese silencio del teléfono Santi pudo imaginarlo perfectamente: de pie junto a la ventana de la distribuidora, mirando hacia afuera sin ver nada en particular.
 
-—Para eso estoy —dijo.
+—Para eso estoy —dijo, y colgó casi enseguida, como si decir una palabra más fuera arriesgar demasiado.
 
 ---
 
@@ -122,7 +122,7 @@ Ospina lo miró durante un segundo.
 
 —Eso es lo que yo pensaba el día que te vi subir Santa Elena por primera vez —dijo—. Que este chico toma las decisiones en el momento exacto.
 
-No era un halago. Era un dato. Ospina no hacía halagos.
+No sonrió al decirlo. Lo dijo igual que decía los datos de potencia, con la misma cara seria, y por eso pesaba más que cualquier halago disfrazado.
 
 —Dos años después —dijo Santi.
 
@@ -178,11 +178,5 @@ Pensó en Ospina con la libreta y los dos tintos y la pregunta que no era retór
 
 Pensó en Arroyave durmiendo en algún hotel de Tunja —el mismo Tunja, quizás a tres cuadras, quizás a diez— con las mismas piernas preparadas, el mismo objetivo, la misma certeza de que los cinco últimos kilómetros del Puerto de Boyacá iban a decidirlo todo.
 
-Y luego dejó de pensar.
-
-Porque había hecho el trabajo que se podía hacer.
-
-Lo que quedaba no era trabajo.
-
-Era la carretera.
+Y en algún momento, sin darse cuenta del instante exacto, dejó de pensar. El gregario en la otra cama ya respiraba hondo, dormido, y afuera una moto se alejó calle abajo hasta que el ruido se volvió nada. Lo último que sintió fue el peso de las piernas hundiéndose en el colchón, pesadas y listas a la vez, como una herramienta guardada justo antes de usarla.
 

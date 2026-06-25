@@ -6,160 +6,166 @@
 
 La semana después del Clásico RCN, Santi entrenó solo.
 
-No por instrucción de Ospina —Ospina le había dicho que tomara cinco días de recuperación activa, rodaje suave, nada de esfuerzo— sino porque necesitaba el silencio de la carretera para ordenar lo que había pasado. El Clásico RCN. El Alto de Minas por Caldas. El minuto y doce segundos sobre el segundo clasificado. El nombre en los resultados oficiales de la Federación, publicados en la página web que su padre revisaba desde el teléfono con una parsimonia que pretendía indiferencia y no lo era.
+No por instrucción de Ospina —cinco días de recuperación activa, rodaje suave, nada de esfuerzo— sino porque necesitaba el silencio de la carretera para ordenar lo que había pasado. El minuto y doce segundos sobre el segundo clasificado. El nombre en los resultados oficiales que su padre revisaba desde el teléfono con una parsimonia que pretendía indiferencia y no lo era.
 
-Subió Santa Elena tres veces esa semana. Sin cronómetro. Sin pulsómetro. Solo la bicicleta y la carretera y el tiempo que tardaba en llegar a la cima, que a esas alturas era tiempo propio, sin nadie que lo midiera desde afuera.
+Subió Santa Elena tres veces esa semana.
 
-Lo que le ocupaba la cabeza no era el RCN. Era lo que venía después.
+Sin cronómetro. Sin pulsómetro. Solo la rueda contra el asfalto mojado del final de agosto, el olor a eucalipto que cambiaba de intensidad con cada curva, la humedad metiéndose por el cuello del buzo en los tramos donde el sol todavía no llegaba. En la segunda subida se cruzó con un grupo de cicloturistas que lo reconoció —alguien gritó su nombre desde atrás, sin aliento para gritar más— y Santi no giró la cabeza. No por desprecio. Porque girar la cabeza le costaba dos pedaladas y las dos pedaladas, ese día, eran suyas y de nadie más.
+
+El RCN no le ocupaba la cabeza.
+
+Lo que venía después, sí.
+
+El viernes llamó Rodrigo.
+
+—¿Ya bajaste de la nube? —dijo.
+
+—No hay nube. Hay bicicleta.
+
+—Mentiroso. En San José la cartelera de la iglesia todavía tiene tu nombre.
+
+Santi se rió, solo, en el cuarto, con la bicicleta recostada contra la pared y las piernas todavía pesadas del entrenamiento de la mañana. Colgaron sin que ninguno de los dos dijera nada que valiera la pena escribir en la libreta. Eso también era descanso.
 
 ---
 
 La reunión con Arenas fue el segundo martes de agosto.
 
-Mejía también estaba. Y Ospina, que había llegado diez minutos antes como siempre. La oficina del equipo en el norte de Medellín tenía un tablero en la pared donde alguien había dibujado el calendario de la segunda mitad de la temporada con marcadores de colores, y Arenas lo señaló con el mismo bolígrafo con el que había firmado el contrato de Santi ocho meses antes.
+Mejía también estaba, con la tablet ya encendida sobre la mesa. Ospina había llegado diez minutos antes, como siempre, con el tinto que él mismo se servía sin pedir permiso. El tablero de la oficina tenía el calendario de la segunda mitad de temporada dibujado con marcadores de colores —rojo para las carreras grandes, azul para los bloques de entrenamiento— y Arenas lo señaló con el mismo bolígrafo con el que había firmado el contrato de Santi ocho meses atrás.
 
-—Agosto —dijo—: rodaje y recuperación. Septiembre: Vuelta del Porvenir Antioqueño, categoría sub-23. Octubre: Vuelta de la Juventud de Colombia. Noviembre: clásicas de fin de temporada. Diciembre: descanso.
+—Agosto: rodaje. Septiembre: Vuelta del Porvenir Antioqueño. Octubre: Vuelta de la Juventud. Noviembre: clásicas. Diciembre: nada.
 
-Santi miró el tablero.
+—¿Qué objetivo tenemos en la Juventud? —dijo Ospina.
 
-La Vuelta del Porvenir Antioqueño era la carrera departamental sub-23 de mayor nivel. Cuatro etapas por el oriente antioqueño, con el Alto de Palmas como etapa reina. La Vuelta de la Juventud era nacional —ocho departamentos, ocho etapas, los mejores corredores sub-23 del país.
+—Top diez. —Arenas no levantó la vista del tablero—. Ocho etapas seguidas, primera vez. No es para ganar. Es para llegar entero a la última y subirla.
 
-—¿Qué objetivo tenemos en la Juventud? —preguntó Ospina.
+—¿Quién gana? —dijo Santi.
 
-—Top diez en la general —dijo Arenas—. Es la primera vez que Santi corre una etapa de más de cinco días seguidos. El objetivo no es ganar. Es llegar bien a la última etapa y subirla.
+—El año pasado, uno de Cundinamarca. —Arenas hizo una pausa, como quien decide si vale la pena decir el resto—. Este año, Arroyave.
 
-—¿Quién va a ganar? —preguntó Santi.
-
-Arenas lo miró.
-
-—El año pasado ganó un corredor del Cundinamarca. Este año Arroyave del Indeportes es el favorito.
-
-Santi había escuchado ese nombre antes —en los comentarios del ciclismo colombiano, en las conversaciones del equipo. David Arroyave. Santa Rosa de Osos. Veinte años. El corredor que iba a llegar a algo, decían los que sabían.
+El nombre ya le sonaba de los corrillos del equipo, de las conversaciones que los mecánicos tenían en el taller mientras ajustaban una rueda y que Santi escuchaba sin que nadie le hablara directamente a él. David Arroyave. Santa Rosa de Osos. Veinte años. El que iba a llegar a algo, según los que sabían de esto antes de que pasara.
 
 —¿Lo conozco?
 
 —Todavía no —dijo Arenas—. En la Juventud lo vas a conocer.
 
----
-
-*Vuelta del Porvenir Antioqueño 2016. Categoría Sub-23. Cuatro etapas — oriente antioqueño.*
-*Etapa 1 — Rionegro. Etapa 2 — El Retiro. Etapa 3 — El Santuario. Etapa 4 (reina) — Alto de Palmas.*
-*Pelotón de 42 corredores de los principales clubes departamentales.*
-
-La Vuelta del Porvenir Antioqueño fue en septiembre.
-
-Cuatro etapas por el oriente antioqueño —Rionegro, El Retiro, El Santuario, Alto de Palmas— con un pelotón de cuarenta y dos corredores de los mejores clubes del departamento. Santi había corrido con varios de ellos en pruebas menores durante el año y los conocía: sabía quién atacaba temprano y se reventaba, quién guardaba para el final, quién tenía mejor crono que montaña.
-
-Lo que no había tenido hasta entonces era la experiencia de que lo conocieran a él.
-
-La diferencia fue visible desde el primer kilómetro de la primera etapa. En la salida neutral, mientras el pelotón rodaba despacio por las calles de Rionegro antes de que el juez diera la señal oficial, dos corredores del equipo de Manizales se acercaron a su rueda y no se fueron. No para atacar —para marcarle. Para saber qué hacía cuando el terreno se pusiera difícil. Para tener la información que habían sacado de los resultados del RCN.
-
-Ospina lo había advertido la semana anterior.
-
-—Ahora te conocen —había dicho—. Eso cambia todo. Antes atacabas cuando querías y llegabas donde querías porque nadie sabía qué eras capaz de hacer. Ahora lo saben. Y van a estar encima tuyo todo el tiempo.
-
-—¿Cómo se corre con marca?
-
-—Con paciencia. Y haciendo que la marca cueste más energía que la que te cuesta a vos.
-
-Santi aprendió eso en la tercera etapa, cuando intentó atacar en el kilómetro treinta del Alto de Palmas y los dos del Manizales respondieron de inmediato, pegados a su rueda, sin dejar espacio. Los llevó durante tres kilómetros a un ritmo que ninguno de los tres podía sostener por mucho tiempo —un ritmo calculado para que ellos pagaran más que él, para que la marca costara— y en el kilómetro treinta y tres uno de los dos cedió. El otro aguantó hasta el kilómetro treinta y seis.
-
-Ganó la etapa con cuarenta y ocho segundos.
-
-Ganó la clasificación general.
+Mejía cerró la tablet. Era la señal de que la reunión, en lo que a números se refería, había terminado.
 
 ---
 
-Fue la primera vez que ganó una carrera por etapas.
+*Vuelta del Porvenir Antioqueño 2016. Sub-23. Cuatro etapas, oriente antioqueño. Etapa reina: Alto de Palmas. Pelotón de 42 corredores.*
 
-No solo una etapa —una carrera. Cuatro días, cuatro etapas, clasificación general. El nombre de Santi Reyes en el primer lugar de la tabla final que la Federación Colombiana de Ciclismo publicó en su página web tres días después.
+La diferencia se sintió desde el primer kilómetro de la primera etapa.
 
-Su padre lo guardó en el teléfono. No lo dijo. Santi lo supo porque cuando llegó al apartamento esa noche, Hernando estaba sentado en la sala con el teléfono en la mano y cuando Santi entró lo puso boca abajo en la mesa con un movimiento que pretendía ser casual y no lo era.
+En la salida neutral de Rionegro, con el pelotón todavía rodando despacio antes de la bandera oficial, dos corredores de Manizales se pegaron a su rueda y no se movieron de ahí. No atacaban. Marcaban. Querían saber qué hacía cuando el terreno se pusiera feo —la información que el RCN les había regalado sin que nadie se la pidiera. Santi sentía el aliento del más cercano en la nuca cada vez que el pelotón frenaba para una curva, esa presencia constante que no era amenaza todavía pero que tampoco dejaba nunca de estar ahí.
 
-Su madre salió de la cocina con el delantal puesto y lo abrazó antes de que él pudiera decir nada —el abrazo de siempre, corto y firme, el que ella tenía para las llegadas importantes— y luego volvió a la cocina porque había algo en el fogón que no podía esperar.
+Ospina lo había avisado la semana anterior.
 
-—¿Cómo están las piernas? —preguntó Hernando.
+—Ahora te conocen —dijo—. Antes atacabas y nadie sabía qué eras capaz de hacer. Ahora lo saben todos.
 
-—Bien —dijo Santi.
+—¿Y entonces?
+
+—Paciencia. Y que marcarte les cueste más que correr libre.
+
+Lo entendió en la tercera etapa. Atacó en el kilómetro treinta del Alto de Palmas y los dos de Manizales respondieron de inmediato, pegados, sin un centímetro de aire entre las ruedas. Los llevó tres kilómetros a un ritmo que ninguno de los tres podía sostener mucho —pero que a ellos les costaba más por estar marcando que a él por estar atacando. El sudor le entraba en los ojos. La carretera olía a tierra recién mojada por un aguacero de media hora antes, y en cada curva las ruedas levantaban una llovizna fina que se le pegaba a los brazos.
+
+En el treinta y tres, el primero soltó la rueda.
+
+En el treinta y seis, el segundo.
+
+Cuarenta y ocho segundos. Etapa y general.
+
+---
+
+Era la primera carrera por etapas que ganaba.
+
+No una etapa. Una carrera entera —cuatro días, su nombre arriba de la tabla que la Federación publicó tres días después en una página que su padre debió revisar cien veces ese fin de semana, aunque nunca lo admitiera en voz alta.
+
+Esa noche, cuando entró al apartamento, Hernando estaba en el sofá con el teléfono en la mano. Lo puso boca abajo sobre la mesa con un gesto que quería parecer casual.
+
+No lo era.
+
+Carmen salió de la cocina con el delantal puesto y lo abrazó antes de que él alcanzara a decir nada. Corto. Firme. El de siempre. Después volvió al fogón porque algo ahí no podía esperar.
+
+—¿Las piernas? —dijo Hernando.
+
+—Bien.
 
 —Descansá mañana.
 
 —Sí.
 
-Hernando asintió. Volvió a ver la televisión.
+Hernando asintió y volvió a mirar la televisión sin decir más. Tenía puesto un partido que no le interesaba especialmente —Santi lo notó en cómo los ojos se le iban del televisor a la ventana y volvían— pero que servía para ocupar las manos y la cara mientras algo más grande terminaba de asentarse.
 
-Desde la cocina llegó el olor del arroz con coco que su madre había aprendido a hacer exactamente como a su padre le gustaba.
-
-Era la manera de su padre de decir todo lo que no iba a decir con palabras: que lo había visto, que estaba orgulloso, que la carrera importaba y que las piernas importaban más todavía.
+Desde la cocina llegaba el arroz con coco, el que Carmen había aprendido a hacer exactamente como a él le gustaba.
 
 Santi se fue al cuarto.
 
-Antes de dormirse escribió en la libreta, con la misma letra que usaba para los datos de entrenamiento: *Primera carrera ganada. Porvenir Antioqueño, sub-23. Cuatro etapas. Juventud en octubre, Manizales.*
+Antes de dormirse abrió la libreta: *Primera carrera ganada. Porvenir Antioqueño. Juventud en octubre, Manizales.*
 
-Debajo añadió: *Arroyave*.
+Debajo, una sola palabra: *Arroyave.*
 
 ---
 
-*Vuelta de la Juventud de Colombia 2016. Ocho etapas, doce equipos Sub-23 — Manizales y el Eje Cafetero. Etapa 4: Alto de la Línea, 40 km desde Armenia, cima a 3.400 m.*
+*Vuelta de la Juventud de Colombia 2016. 8 etapas, 12 equipos sub-23. Manizales y el Eje Cafetero. Etapa 4: Alto de la Línea, 40 km desde Armenia, cima a 3.400 m.*
 
-La Vuelta de la Juventud de Colombia arrancó en Manizales el primer jueves de octubre.
+Llegó a Manizales un miércoles, con las piernas descansadas de tres semanas de rodaje suave y una foto de Instagram en la cabeza: un corredor alto, de uniforme departamental, con la postura de alguien que ya sabe que lo van a fotografiar.
 
-Ocho etapas. Doce equipos. Los mejores sub-23 del país. Santi llegó con el bus del equipo un miércoles por la tarde, con las piernas descansadas de las tres semanas de rodaje suave que Mejía había prescrito entre el Porvenir Antioqueño y la Juventud, y con la primera imagen de David Arroyave en la memoria —una foto en el perfil de Instagram de Indeportes Antioquia: un corredor alto, metro setenta y cinco, con la camiseta del equipo departamental y la postura de alguien que ya sabe que lo van a fotografiar.
+Arroyave se le acercó primero en la presentación de equipos. Eso no lo esperaba.
 
-Lo conoció en persona en la presentación de equipos.
-
-Arroyave se acercó él primero. Lo que Santi no esperaba.
-
-—Santi Reyes —dijo.
+—Santi Reyes.
 
 —Arroyave.
 
-Se dieron la mano. Arroyave tenía veinte años y dos temporadas de ventaja y la comodidad de quien ya lleva tiempo siendo el mejor de su generación.
+Se dieron la mano. Veinte años, dos temporadas de ventaja, la calma del que lleva tiempo siendo el mejor de su generación y ya no necesita demostrarlo en la manera de hablar.
 
 —El RCN —dijo Arroyave—. Buen resultado.
 
 —Gracias.
 
-—Acá va a ser diferente. Ocho etapas es otro mundo que cuatro.
+—Acá ocho etapas es otro país que cuatro.
 
-—Ya lo sé —dijo Santi.
+—Ya sé.
 
-Arroyave lo estudió un momento. Luego asintió, como si hubiera encontrado lo que buscaba.
+Arroyave lo midió con la mirada un segundo de más. Encontró algo, asintió, y antes de irse dijo lo único que dijo en toda la conversación que sonó a promesa:
 
-—Nos vemos en los puertos —dijo.
-
-Y se fue.
+—Nos vemos en los puertos.
 
 ---
 
-La Vuelta de la Juventud le enseñó a Santi tres cosas que no tenía en el cuerpo todavía.
+La Juventud le metió en el cuerpo tres cosas que antes solo conocía de oído.
 
-La primera: que el cansancio acumulado en una carrera de ocho días no se parece al cansancio de un día duro. Es otro tipo de deuda que el cuerpo lleva y que no se ve hasta la quinta o la sexta etapa, cuando las piernas responden bien al calentamiento pero pierden potencia en los kilómetros finales de los puertos, no por falta de entrenamiento sino por la acumulación de todo lo anterior.
+La deuda de ocho días no es la deuda de un día duro. Es otra cosa, que no se nota hasta la quinta etapa, cuando las piernas calientan bien pero se vacían siete kilómetros antes de la cima, no por falta de fondo sino porque todo lo anterior pasa la cuenta junto. Santi lo sintió como un frío que le subía desde las pantorrillas en mitad de una subida que en cualquier otro momento de la temporada habría sido fácil —el cuerpo pidiendo un descanso que el calendario no tenía previsto darle.
 
-La segunda: que Arroyave era exactamente tan bueno como decían. En la etapa cuatro —el Alto de la Línea, cuarenta kilómetros desde Armenia hasta la cima a tres mil cuatrocientos metros— Arroyave marcó un ritmo desde el kilómetro veinte que partió el pelotón en cuatro grupos. Santi estuvo en el primero. Pero en los últimos cinco kilómetros, cuando Arroyave aceleró de nuevo, solo pudo responder durante dos minutos antes de que la diferencia se abriera a diez metros, a veinte, a cuarenta.
+Arroyave era exactamente tan bueno como decían. En la etapa cuatro —el Alto de la Línea, cuarenta kilómetros hasta los tres mil cuatrocientos, con el páramo abriéndose a los lados y el aire cada vez más fino— marcó ritmo desde el kilómetro veinte y partió el pelotón en cuatro. Santi quedó en el primer grupo. A cinco del final, cuando Arroyave volvió a acelerar, aguantó dos minutos: el tiempo justo para sentir que las piernas todavía respondían y luego, sin transición, sentir que ya no. La rueda se le fue alejando sin que pudiera hacer nada para impedirlo: diez metros, veinte, cuarenta, hasta que la espalda de Arroyave fue solo una mancha azul subiendo entre los frailejones.
 
-Llegó segundo en la etapa. A cuarenta y tres segundos.
+Llegó segundo. A cuarenta y tres segundos.
 
-La tercera cosa que aprendió: cómo perder sin que la derrota lo definiera.
-
-Ospina se lo había dicho. *Las derrotas te dicen cómo llegar más lejos.* Santi lo había anotado. En la etapa cuatro de la Vuelta de la Juventud entendió qué significaba de verdad: que perder frente a Arroyave no era una sentencia sino una medición. Cuarenta y tres segundos en un puerto de cuarenta kilómetros. Eso era la distancia entre él y el mejor corredor de su generación.
-
-La distancia tenía nombre. Y los nombres, en el ciclismo, se trabajan.
+Y la tercera cosa la aprendió ahí mismo, con las piernas todavía temblando al pie del podio: que perder contra Arroyave no era una sentencia. Era una medida. Esa era exactamente la distancia entre él y el mejor de su generación, y las distancias, en este oficio, se entrenan.
 
 ---
 
-Terminó la Vuelta de la Juventud en el cuarto puesto de la clasificación general.
+Terminó cuarto en la general.
 
 Arroyave ganó.
 
-En el podio, Arroyave le extendió la mano antes de que los organizadores los pusieran en posición.
+En el podio, antes de que los organizadores los acomodaran, Arroyave le dio la mano.
 
-—Buena carrera —dijo.
+—Buena carrera.
 
-—Para el año que viene —dijo Santi.
+—El año que viene —dijo Santi.
 
-Arroyave lo miró. Luego sonrió.
+Arroyave sonrió, despacio, como quien ya había escuchado esa frase de otros y sabía la diferencia entre el que la dice por cortesía y el que la dice porque ya empezó a contar los días.
 
-—Para el año que viene —repitió.
+—El año que viene —repitió.
 
-No era una promesa. Era un reconocimiento mutuo entre dos personas que saben que van a volver a verse y que esa vuelta va a valer.
+No hizo falta decir nada más.
+
+Esa noche, en el bus de vuelta a Medellín, Mejía revisó los datos de la etapa cuatro con Santi al lado, las dos pantallas iluminando la oscuridad del bus mientras el resto del equipo dormía.
+
+—Cuarenta y tres segundos en cuarenta kilómetros —dijo Mejía—. Un segundo por kilómetro. Eso se cierra.
+
+—¿Cuánto tarda?
+
+—Eso depende de vos —dijo Mejía, y apagó la tablet.
+
+Santi miró por la ventana. Las luces de los pueblos del Eje Cafetero pasaban despacio, una tras otra, y en algún lugar de esa oscuridad había un corredor de veinte años que ya se había ido a dormir sabiendo que había ganado, sin saber todavía cuánto le iba a costar, dos años después, lo que esa misma noche había dado por sentado.

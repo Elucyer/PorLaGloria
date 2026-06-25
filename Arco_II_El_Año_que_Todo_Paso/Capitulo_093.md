@@ -148,7 +148,7 @@ Carmen no estaba — había ido a buscar el almuerzo.
 
 Santi se sentó en la silla.
 
-El silencio de los Reyes.
+Ninguno de los dos habló.
 
 Duró tres o cuatro minutos. No el silencio incómodo — el silencio de los dos que se conocen suficientemente como para que el silencio no requiera explicación.
 

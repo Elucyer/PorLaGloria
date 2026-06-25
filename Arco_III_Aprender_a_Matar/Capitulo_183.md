@@ -78,11 +78,11 @@ A cuatro kilómetros de la cima, Van Aert aceleró.
 
 No fue el ataque del sprinter que intenta intimidar a los escaladores — fue la aceleración del corredor que sabe que si espera a dos kilómetros de la cima va a perder, porque en los últimos dos kilómetros del Fuji los escaladores puros iban a tener algo que él no tendría. La lógica táctica del belga: si ataco ahora, cuando todavía tengo potencia, puede que los escaladores no puedan responder con la energía necesaria para cerrar y además atacar.
 
-Santi respondió en tres segundos.
+El cuerpo de Santi, curtido en el calor húmedo de los descensos hacia el valle del Aburrá, tardó solo tres segundos en seguir — el tipo de calor que para Van Aert era un enemigo y para él era, simplemente, una tarde más de niño en San José de la Montaña.
 
-Carapaz en cinco.
+Carapaz necesitó cinco.
 
-Higuita en siete — el colombiano de Medellín que conocía a Santi desde antes del primer Giro, que había corrido a su lado en más de una etapa difícil, que ahora respondía al ataque de Van Aert con el instinto de corredor que sabe que su líder va primero.
+Higuita, siete — el colombiano de Medellín que conocía a Santi desde antes del primer Giro, que había corrido a su lado en más de una etapa difícil, que ahora respondía al ataque de Van Aert con el instinto de corredor que sabe que su líder va primero.
 
 A tres kilómetros, el grupo era cuatro: Van Aert, Santi, Carapaz, Higuita.
 
@@ -114,7 +114,7 @@ No fue el ataque calculado del Tour — no había Rusconi por la radio diciéndo
 
 El medidor: 6,52 W/kg.
 
-Carapaz respondió en cuatro segundos.
+A Carapaz le costó cuatro segundos cerrar — el ecuatoriano todavía con piernas frescas del Tour que no había corrido, pero ya sin la reacción inmediata de cinco kilómetros atrás.
 
 Los cuatro segundos fueron suficientes para que Santi abriera tres metros. El calor de Japón en la cara, la carretera del Fuji subiendo al once por ciento, el cuerpo produciendo algo que en cualquier análisis de fatiga acumulada no tendría que estar disponible.
 
@@ -127,6 +127,10 @@ Santi cruzó la línea de llegada del Fuji Speedway con seis segundos de ventaja
 Medalla de oro. Juegos Olímpicos de Tokio.
 
 *El cuarto grande del verano. Después del Giro, el Tour, y los seis días de recuperación que en el ciclismo se llaman "transición" y que en la biología son otra cosa.*
+
+Pogačar, que había cruzado en el décimo puesto con las piernas y el codo todavía vendados por la caída, encontró a Santi en el área de antidopaje antes de que cada uno volviera a su delegación. No dijo nada sobre la medalla — apretó los labios, buscando la frase, y lo que salió fue lo más simple de todo lo que podía haber dicho: — Next time I don't fall. Eso es todo. La próxima vez no me caigo.
+
+Se rió de su propia frase antes de que Santi pudiera responder algo, y los dos se separaron sin necesidad de decir más.
 
 ---
 

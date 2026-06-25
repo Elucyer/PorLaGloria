@@ -326,6 +326,8 @@ No el centímetro de la foto finish — un segundo. La diferencia entre el corre
 
 Detrás: Alaphilippe a diecinueve segundos. Van Aert a treinta y tres.
 
+En la cima, durante la fracción de segundo en que los dos pasaron la señal con las ruedas casi tocándose, Pogačar giró apenas la cabeza hacia Santi. No dijo nada — no había aire para decir nada — pero los labios se le apretaron en el gesto que Santi ya le conocía de las entrevistas, el de calibrar algo antes de soltarlo, y que aquí, sin palabras, era solo el reconocimiento de que el metro y medio no había bastado.
+
 Ferretti en el pinganillo — la voz del director que por primera vez en cuatro kilómetros de Roche aux Faucons volvía al oído de Santi:
 
 — Veintiséis kilómetros. Pogačar a un segundo. Alaphilippe a diecinueve. Van Aert a treinta y tres. — Pausa. — Pedalá.

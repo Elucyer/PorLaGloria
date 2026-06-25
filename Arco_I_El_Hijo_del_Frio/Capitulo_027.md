@@ -52,7 +52,7 @@ Al lado, Fabián Giraldo del equipo Boyacá. Veintiún años, escalador de sierr
 
 —Arroyave está siempre.
 
-—Va a ser una mierda de subida.
+—Va a ser una mierda de subida —dijo Fabián, sacudiendo la cabeza como espantando una mosca.
 
 —Sí —dijo Santi.
 
@@ -436,6 +436,22 @@ Arroyave lo miró. Sonrió.
 
 No fue arrogancia. Fue aritmética con datos emocionales incluidos: si Arroyave se iba, el espacio cambiaba. Y Santi sabía calcular espacios. Lo había aprendido viendo los que dejaban los que se iban.
 
+Arroyave se quedó un momento más de lo necesario, con la respiración todavía agitada y las manos en las caderas.
+
+—¿Sabés cuánto lleva mi papá pidiéndome que deje esto? —dijo, sin que viniera al caso, mirando hacia el valle y no a Santi—. Desde que tenía catorce años. Dice que un ciclista colombiano sin equipo europeo a los veinte es un ciclista que se quedó. Por eso me voy. No porque crea que voy a ser el mejor de Europa. Porque si no voy ahora, en dos años soy el tipo que casi.
+
+—¿Y si allá tampoco alcanza?
+
+—Entonces vuelvo. Pero vuelvo habiendo ido. —Se encogió de hombros, un gesto que en otro corredor habría parecido derrota y en él parecía simplemente un cálculo cerrado—. Vos todavía no entendés esa parte. La de volver habiendo ido. La vas a entender el día que te toque.
+
+No esperó respuesta. Le dio una palmada breve en el hombro —el gesto de quien cierra una cuenta sin rencor— y caminó hacia donde su director ya lo esperaba con una toalla y una botella de agua.
+
+Santi lo vio alejarse y pensó que durante un año había estudiado a Arroyave en videos y en datos —la cadencia, el momento exacto del ataque, los noventa metros donde siempre se jugaba todo— y que en quince segundos de conversación había aprendido más de él que en todas esas horas de análisis. Que detrás de los cuatro segundos había un padre en algún pueblo de Antioquia que llevaba seis años pidiéndole lo mismo, y una fecha límite que Arroyave se había puesto a sí mismo porque nadie más se la iba a poner.
+
+Lo anotó, después, en la libreta. No el dato. La frase.
+
+*Volver habiendo ido.*
+
 ---
 
 Ospina llegó al área técnica cuando el protocolo del podio provisional ya había terminado. Llegó caminando despacio, con las manos en los bolsillos del chaleco de director, con esa expresión de quien ya calculó todo y espera que el otro también lo haya calculado.
@@ -478,12 +494,12 @@ Ospina guardó silencio. Miró sus notas. Luego lo miró a él.
 
 —Después —dijo Ospina— hablamos.
 
-Y Santi supo, en el tono de esa palabra, que *hablamos* significaba *sí*.
+Ospina ya se había dado media vuelta hacia el carro, pero Santi se quedó un segundo más con la palabra en el oído, segurísimo de que *hablamos*, dicho así, sin apuro, significaba *sí*.
 
 Abajo, en el fondo del valle que la tarde iba oscureciendo, las luces de Muzo empezaban a encenderse una por una, las casas de la ciudad esmeraldífera preparándose para la noche. La carretera que los había traído hasta aquí —treinta y dos kilómetros de asfalto y sudor y cuatrocientos vatios y cuatro segundos— bajaba hacia allá en curvas que en la luz del atardecer parecían un hilo de plata cosido a la montaña.
 
 Cuatro segundos.
 
-Santi los dejó ahí, en el Puerto de Boyacá, en el frío del altiplano boyacense.
+Santi los dejó ahí, en el Puerto de Boyacá, en el frío del altiplano boyacense, junto con la frase de Arroyave que todavía le daba vueltas y que no había terminado de entender del todo.
 
-Y bajó.
+Se subió de nuevo a la bicicleta. Empezó a bajar, despacio al principio, dejando que el aire frío de la cima le secara el sudor de la espalda, y solo cuando la carretera se enderezó soltó el freno y se dejó ir.

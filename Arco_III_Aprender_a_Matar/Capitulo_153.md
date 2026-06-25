@@ -165,23 +165,19 @@ El silencio de dos hombres que en el ciclismo hablan el mismo idioma sin necesid
 
 *Escuchó las dos horas y cuatro minutos sin pausar.*
 
-*Al final, quitó los auriculares.*
+*Al final, quitó los auriculares y se quedó mirando el Valle de Aburrá oscurecerse, la tarde de febrero cayendo despacio sobre los techos de Laureles.*
 
-*El Valle de Aburrá en la tarde de febrero.*
-
-*Hernando abrió el cuaderno.*
-
-*Escribió:*
+*Solo entonces abrió el cuaderno y escribió, con la letra más apretada de lo normal:*
 
 *Ep. 7 — Indurain. "El corredor que gana por la montaña siempre tiene un techo."*
 
 *"La crono que todavía no corrió."*
 
-*Debajo:*
+*Debajo, una línea más corta:*
 
 *El sábado 13 de febrero: km 19.*
 
-*Cerró el cuaderno.*
+*Dejó el lápiz sobre la página abierta y no lo cerró todavía.*
 
 ---
 

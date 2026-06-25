@@ -18,7 +18,7 @@ Hernando contestó en el primer timbre.
 
 — El Loze — dijo Santi.
 
-Silencio. El silencio de los dos que no necesitaban describir lo que había pasado porque los dos lo habían vivido, cada uno desde su lugar.
+Se quedaron así un momento, la línea abierta entre Méribel y Laureles sin nada más que el ruido de fondo — los dos sabían que no necesitaban describir lo que había pasado porque los dos lo habían vivido, cada uno desde su lugar.
 
 — Un minuto y uno — dijo Hernando.
 
@@ -28,9 +28,9 @@ Silencio. El silencio de los dos que no necesitaban describir lo que había pasa
 
 — Lo sé.
 
-Otro silencio. Distinto al primero — el silencio del padre y el hijo que en el ciclismo han aprendido que los números del cuaderno dicen una cosa y el cuerpo de la carrera a veces dice otra.
+La línea se quedó otra vez quieta, distinta a la primera pausa — el padre y el hijo que en el ciclismo han aprendido que los números del cuaderno dicen una cosa y el cuerpo de la carrera a veces dice otra.
 
-— ¿Cómo están las piernas? — dijo Hernando.
+— ¿Cómo están las piernas?
 
 — Al setenta y ocho.
 
@@ -44,7 +44,7 @@ El corredor que llega al Loze al setenta y ocho y que en cuatro días necesita e
 
 — El Loze te costó — dijo Hernando.
 
-— Sí.
+— Sí. — La voz cansada, sin aire de más para gastar en palabras.
 
 — Y la Madeleine antes.
 
@@ -56,7 +56,11 @@ Dos semanas de Tour en el cuerpo. El precio del maillot amarillo.
 
 Santi tardó.
 
-— Pogačar en los muros del veintidós por ciento respondió en 3,1 segundos. En el primer kilómetro del Loze respondía en 1,6. — Pausa. — Se cansa. De otra manera que Roglič, pero se cansa.
+— Pogačar en los muros del veintidós por ciento respondió en 3,1 segundos. En el primer kilómetro del Loze respondía en 1,6. — Pausa. — Se cansa. De otra manera que Roglič, pero se cansa. — Pausa. — Y aun así me dijo "por eso ganaste la etapa" como si estuviera contento de que me costara.
+
+— ¿Contento?
+
+— Sonriendo. — Santi lo pensó un segundo. — Pogačar sonríe cuando pierde casi tanto como cuando gana. No sé si lo hace a propósito.
 
 — ¿Y en la crono?
 

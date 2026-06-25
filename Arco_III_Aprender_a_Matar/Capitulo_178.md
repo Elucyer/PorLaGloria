@@ -111,9 +111,9 @@ Tres.
 
 A dos kilómetros de la cima, Vingegaard aceleró. Esta vez sí fue brusco: la misma aceleración del Ventoux, el mismo cálculo del danés que esperaba el momento exacto en que los otros dos habían gastado lo suficiente como para que un ataque pudiera funcionar.
 
-Santi cerró en una décima.
+Santi ya estaba ahí — el cuerpo cerrando la diferencia antes de que la cabeza terminara de procesar el ataque, una décima de retraso que en la práctica era ninguno.
 
-Pogačar cerró en tres.
+Pogačar necesitó tres veces más tiempo, y se le notó: el esloveno levantándose del sillín una fracción tarde, el gesto de quien todavía está pagando el ataque anterior.
 
 Los tres en fila, el Jumbo de Vingegaard adelante, el UAE de Pogačar en medio, el MercadoLibre de Santi atrás. Un kilómetro y medio para la cima. Las rampas al once por ciento del tramo final — la parte de la Gallina que los datos de Rusconi habían marcado como "zona de decisión" — con el asfalto perfectamente seco y el calor de los Pirineos a las cinco de la tarde.
 
@@ -123,7 +123,7 @@ No fue una aceleración. Fue un salto — el tipo de cambio de ritmo que el cuer
 
 El marcador de potencia: 6,67 W/kg. Cuarenta vatios por encima de lo que había sostenido en los treinta minutos previos.
 
-Vingegaard respondió en cuatro segundos. Pogačar respondió en seis.
+El primero en moverse fue Vingegaard: cuatro segundos, la respiración del danés ya audible para el micrófono de la moto de televisión. Pogačar tardó seis — dos segundos de más que, en cualquier otro punto del Tour, no habrían importado, y que aquí, a un kilómetro y doscientos de la cima, importaron mucho.
 
 Los cuatro segundos de diferencia en la respuesta del danés fueron suficientes para que Santi abriera dos metros. Los seis de Pogačar, para tres metros más.
 
@@ -166,6 +166,8 @@ La periodista de RMC Sport preguntó primero, en francés:
 Santi la miró un segundo.
 
 — Pogačar tiene el amarillo — dijo. — Yo tengo veintiséis segundos por recuperar. Las dos cosas son verdad.
+
+Pogačar, unos metros más allá, frente a otro grupo de micrófonos, no esperó a que le tradujeran la pregunta antes de responder. — Perdí ocho segundos hoy. No me gusta —dijo, sin vueltas—. Pero los perdí porque él fue mejor en un kilómetro específico. Eso también hay que decirlo.
 
 Fue suficiente para la zona de prensa. Santi saludó y se fue hacia el autobús del equipo.
 

@@ -41,7 +41,7 @@ Era, en la terminología interna del equipo, una etapa de gestión.
 
 Los primeros ochenta kilómetros los manejó el Jumbo.
 
-No el equipo de Santi — el equipo de Roglič. Que estaba a doce segundos en la GC y que tenía todos los motivos del mundo para intentar recuperar esos doce segundos en la etapa de hoy, donde la media montaña y la distancia larga podían crear las condiciones para un movimiento que en la montaña corta de Courmayeur no había podido producirse.
+No el equipo de Santi — el equipo de Roglič. Que estaba a cuarenta y cinco segundos en la GC y que tenía todos los motivos del mundo para intentar recuperar esos cuarenta y cinco segundos en la etapa de hoy, donde la media montaña y la distancia larga podían crear las condiciones para un movimiento que en la montaña corta de Courmayeur no había podido producirse.
 
 Santi lo vio venir.
 
@@ -57,11 +57,11 @@ Tres gregarios tirando al frente del grupo de GC — la aceleración previa a la
 
 Roglič atacó en el kilómetro ciento noventa y ocho.
 
-No fue el ataque explosivo del corredor que ya no tiene nada que perder. Fue el ataque calculado del especialista del crono que ha decidido que en terreno mixto puede hacer la diferencia que en la montaña pura Santi le va a negar: una aceleración progresiva, sostenida, del tipo que en los treinta kilómetros que quedaban podía producir un minuto de diferencia si nadie la cerraba.
+No era la urgencia del corredor que ya no tiene nada que perder, sino el cálculo del especialista del crono que ha decidido que en terreno mixto puede hacer la diferencia que en la montaña pura Santi le va a negar: una aceleración progresiva, sostenida, del tipo que en los treinta kilómetros que quedaban podía producir un minuto de diferencia si nadie la cerraba.
 
 Santi cerró en veinte segundos.
 
-No con sprint — con la respuesta inmediata del líder que sabe que el doce de ventaja es exactamente el margen que puede permitirse perder en el Stelvio y que cualquier reducción de ese margen es una reducción de su espacio de maniobra para la etapa decisiva.
+No con sprint — con la respuesta inmediata del líder que sabe que los cuarenta y cinco segundos de ventaja son exactamente el margen que puede permitirse perder en el Stelvio y que cualquier reducción de ese margen es una reducción de su espacio de maniobra para la etapa decisiva.
 
 Roglič lo vio llegar a su rueda y no dijo nada.
 
@@ -73,13 +73,13 @@ No en el ataque — en el descenso. La rueda trasera derrapó en una curva cerra
 
 Roglič cayó.
 
-Fue la caída de los descensos técnicos de la tercera semana — el corredor que ha dado todo en el ataque y que en el descenso posterior no tiene ya el margen de concentración que el asfalto mojado de Como exigía. No fue grave: se levantó, volvió a la bicicleta, llegó a la meta con un sangrado menor en el codo y un retraso de dieciséis segundos que en la GC significaba que el gap con Santi se ampliaba de doce a veintiocho.
+Fue la caída de los descensos técnicos de la tercera semana — el corredor que ha dado todo en el ataque y que en el descenso posterior no tiene ya el margen de concentración que el asfalto mojado de Como exigía. No fue grave: se levantó, volvió a la bicicleta, llegó a la meta con un sangrado menor en el codo y un retraso de dieciséis segundos que en la GC significaba que el gap con Santi se ampliaba de cuarenta y cinco segundos a un minuto y uno.
 
 Ganó la etapa Dario Cataldo, desde la escapada, con esa euforia del corredor que lleva horas solo y que al cruzar la línea llora sin vergüenza porque eso también es el ciclismo: el llanto del gregario que un día fue líder por un kilómetro y medio antes de que el pelotón lo alcanzara, y que hoy, por una vez, llegó a la meta antes que todos.
 
 Santi llegó en el grupo de GC.
 
-— GC — dijo Ferretti cuando Santi bajó de la bicicleta —. Santi primero. Roglič segundo, a veintiocho. Nibali tercero, a un veinte. Carapaz cuarto, a cuarenta y cinco.
+— GC — dijo Ferretti cuando Santi bajó de la bicicleta —. Santi primero. Roglič segundo, a un minuto y uno. Nibali tercero, a un cincuenta. Carapaz cuarto, a dos cincuenta y nueve.
 
 Una pausa.
 

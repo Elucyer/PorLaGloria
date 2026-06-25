@@ -136,6 +136,8 @@ Silencio.
 
 Santi no dijo nada.
 
+Pensó, sin que nadie en la pantalla pudiera verlo, en lo que Pogačar había contestado cuando un periodista esloveno le preguntó algo parecido después del Tour: que la historia bonita estaba bien para la marca, pero que el cuerpo no sabía de relatos, solo de vatios. Pogačar lo había dicho así, sin filtro, sin que nadie en su equipo lo hubiera preparado para esa respuesta — la misma costumbre que en el pelotón ya le conocían: decir lo que pensaba en el momento en que lo pensaba, sin la pausa estratégica que los demás corredores aprendían con los años. A Santi esa costumbre del esloveno le parecía, en el fondo, más honesta que la campaña entera.
+
 La reunión terminó a las dos horas exactas.
 
 ---
@@ -203,6 +205,34 @@ Santi esperó.
 Patiño tomó el teléfono.
 
 — Ochocientos mil euros anuales — dijo Patiño. — Cuatro años. Cláusula de salida por ambas partes en el año dos, con penalización de seis meses. Y una cláusula de rendimiento: si ganás el Tour 2021 o 2022, el año siguiente sube a un millón. Más las activaciones, que se pagan por separado.
+
+— ¿Cuántos días son las tres activaciones? — dijo Santi.
+
+Duarte y Patiño se miraron, los dos en pantallas distintas pero con el mismo gesto de quien no esperaba esa pregunta primero.
+
+— Un día cada una, normalmente — dijo Duarte. — Viaje, evento, vuelo de vuelta.
+
+— Tres días no es el problema — dijo Santi—. El problema es cuándo. Si una cae en marzo, antes de Lieja, no la hago.
+
+— Eso ya está en el contrato — dijo Patiño—. "Ninguna en período de competencia."
+
+— Período de competencia para Mercado Libre puede significar la semana de la carrera — dijo Santi—. Para mí significa desde el lunes anterior. Necesito esa semana entera, no solo el día de la carrera.
+
+Patiño anotó algo en la pantalla compartida, el cursor moviéndose sobre el párrafo de la cláusula.
+
+— Lo redefino como "siete días antes y tres después de cualquier objetivo A del calendario" — dijo—. Eso cubre lo que pedís.
+
+— Eso —dijo Santi.
+
+— ¿Algo más? — dijo Duarte, ya con el bolígrafo listo para la siguiente nota.
+
+— Sí — dijo Santi—. La campaña de Colombia. "Del Valle al Mundo." No quiero que usen al pueblo o a la familia sin que yo vea el guion antes.
+
+— Eso se puede pedir como cláusula de aprobación previa — dijo Patiño—. Lo normal es aprobación de imagen, no de guion. Pero se puede pedir.
+
+— Pedilo — dijo Santi.
+
+Duarte ya lo había anotado.
 
 Diego Patiño — el abogado de El Poblado, el consultorio jurídico de carpetas y escritorio oscuro donde Santi había firmado el contrato de Bancolombia en 2018, el hombre que desde entonces manejaba los contratos mientras Duarte manejaba el negocio y Salcedo los números. La lógica que los tres habían perfeccionado en años: Patiño blindaba los términos, Duarte cerraba las relaciones, Salcedo calculaba el impacto real de cada decisión. Santi manejaba la bicicleta.
 
@@ -326,7 +356,7 @@ Siempre era el Minas.
 
 *— El sábado que viene voy con vos.*
 
-*Hernando no dijo nada durante dos segundos.*
+*Del otro lado se oyó solo el ruido de fondo de la cocina de Laureles — una olla, el radio bajito — antes de que Hernando contestara.*
 
 *— Estás en Sierra Nevada.*
 
@@ -384,12 +414,12 @@ Siempre era el Minas.
 
 *No hay otra historia así.*
 
-*Cerró el cuaderno.*
+*Dejó el cuaderno abierto sobre la mesa del balcón, algo que casi nunca hacía.*
 
 *El Valle de Aburrá en la noche de enero.*
 
 *El frío de las montañas.*
 
-*El café que Carmen trajo sin que nadie lo pidiera.*
+*Carmen le trajo el café sin que nadie lo pidiera y se quedó un momento mirando la página abierta, sin decir nada.*
 
 ---

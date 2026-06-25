@@ -49,7 +49,11 @@ Santi lo vio desde atrás.
 
 Había algo en la forma de escalar del ecuatoriano que no era frecuente —una verticalidad en el torso, una ausencia total de mecimiento, como si el cuerpo no gastara energía en nada que no fuera el movimiento hacia arriba. No era el estilo de los grandes escaladores colombianos que Santi había estudiado en vídeos de YouTube en la habitación de La América —los que subían con el cuerpo casi horizontal sobre el cuadro, en una posición que pagaba eficiencia a cambio de velocidad. Carapaz subía erecto. Como si tuviera todo el tiempo del mundo.
 
-Ganó con quince segundos sobre Pozzovivo.
+No miró atrás. Ni una vez, en los siete kilómetros que le quedaban a la cima. Santi conocía a corredores que giraban la cabeza cada minuto para medir la ventaja, que ajustaban el ritmo según lo que veían detrás —Carapaz no. Subía como si la pregunta de cuánta ventaja llevaba ya estuviera resuelta en algún cálculo interior, y mirar atrás fuera simplemente gastar energía en confirmar algo que el cuerpo ya sabía. Era una forma de correr que no tenía nada que ver con el miedo. Santi archivó eso sin saber todavía para qué le iba a servir.
+
+Pozzovivo entró segundo, quince segundos detrás, con el cuerpo encorvado sobre el manillar y los hombros estrechos que parecían sostener una bicicleta más grande de lo que el tamaño del corredor permitía. No celebró el segundo puesto ni hizo ningún gesto hacia la cámara. Subió el último tramo con la cabeza gacha, los ojos fijos en el asfalto a un metro de la rueda delantera, y cruzó la meta sin levantar los brazos —un hombre de treinta y cinco años que llevaba más de una década subiendo así, segundo o tercero o quinto, nunca con el ramo de ganador, y que parecía haber hecho las cuentas hace mucho tiempo sobre lo que ese lugar en la jerarquía del pelotón le iba a dar y lo que no.
+
+Ganó Carapaz con quince segundos sobre Pozzovivo.
 
 En el autobús, después, Clarke dijo:
 
@@ -60,6 +64,16 @@ En el autobús, después, Clarke dijo:
 —Ese hombre va a ganar un Grand Tour en los próximos dos años.
 
 Santi no respondió. Pero lo guardó.
+
+—¿Y el italiano? —dijo Santi después, casi para sí.
+
+—¿Pozzovivo? —Clarke se rió sin humor—. Ese lleva subiendo así desde que yo era profesional. Segundo en Montevergine, décimo en el Giro, nunca primero en nada que importe. Pero ahí sigue.
+
+—¿Por qué sigue?
+
+Clarke se encogió de hombros, como si la pregunta no tuviera una respuesta que valiera la pena articular en voz alta.
+
+—Porque es lo único que sabe hacer bien.
 
 ---
 
@@ -194,6 +208,52 @@ Colgaron.
 Santi se quedó sentado en la cama con el teléfono en la mano. No llamó a nadie. No abrió el cuaderno. Estuvo así unos veinte minutos —no pensando en nada específico, que era distinto a no pensar en nada— hasta que se levantó, fue al baño, se lavó la cara con agua fría, y salió al pasillo a ver si quedaba café en la cafetera del corredor.
 
 Había.
+
+---
+
+Lo que Santi no sabía esa tarde es que Hernando había hecho dos llamadas, no una.
+
+La segunda fue a Édgar Ospina, media hora después de colgar con su hijo.
+
+Ospina estaba en la oficina detrás del taller de La América, con la libreta abierta sobre un corredor juvenil que entrenaba los martes, cuando el teléfono sonó con el nombre de Hernando en la pantalla. No hablaban seguido —una llamada cada dos o tres meses, casi siempre sobre Santi, casi nunca sobre nada más— y por eso Ospina supo, antes de contestar, que esta no era una de esas llamadas.
+
+—Édgar —dijo Hernando.
+
+—Hernando.
+
+—Tengo algo en el pulmón. Todavía no saben qué. Hay examen la semana que viene.
+
+Hubo un silencio del otro lado, el tipo de silencio que en Ospina no era ausencia sino procesamiento —el mismo silencio que Santi había aprendido a reconocer en él desde los quince años, cuando Ospina tardaba en responder no porque no tuviera respuesta sino porque la estaba ordenando antes de decirla.
+
+—¿Se lo dijiste a Santi? —dijo Ospina, finalmente.
+
+—Acabo de colgar con él.
+
+—¿Cómo lo tomó?
+
+—Como yo lo hubiera tomado. Bien, por fuera.
+
+Ospina no dijo *vas a estar bien* ni *eso lo resuelven rápido* ni ninguna de las frases que la gente dice cuando no sabe qué decir y necesita decir algo. Conocía a Hernando hacía diez años y sabía que esas frases, en la boca de cualquier otro, Hernando las habría recibido con la misma cortesía con que recibía todo lo que no le servía.
+
+—¿Qué necesitás? —dijo Ospina.
+
+—Nada todavía. Por eso te llamo. Para que lo sepas antes de que se sepa.
+
+—¿Y Santi? ¿Tiene que enterarse de algo más, o el Giro sigue como está?
+
+—El Giro sigue como está —dijo Hernando—. Eso es lo único que te estoy pidiendo, Édgar. Que si te llama por algo de entrenamiento, de cabeza, de lo que sea, y vos notás algo raro, no le preguntés por mí. Dejá que la pregunta la haga si la quiere hacer.
+
+Ospina tardó un momento.
+
+—Hecho —dijo.
+
+Colgaron.
+
+Ospina se quedó con la libreta abierta en la página del corredor juvenil, sin verla. Pensó en Hernando Reyes hace años, en la oficina detrás del mismo taller, contándole la fuga del kilómetro catorce que nadie recordaba y que él sí. Pensó que un hombre así no llamaba a pedir nada salvo cuando ya había decidido cargar con todo el resto solo.
+
+Esa noche le mandó un mensaje a Santi, sin mencionar a Hernando: *Cómo van las piernas.*
+
+No era la pregunta que solía hacer un martes de etapa llana. Era, simplemente, la única manera que tenía Ospina de estar cerca de algo que no podía nombrar todavía.
 
 ---
 

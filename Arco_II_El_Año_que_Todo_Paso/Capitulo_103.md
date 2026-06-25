@@ -140,7 +140,7 @@ Apagó la luz y se acostó.
 
 En algún punto de la madrugada de Yorkshire, a ocho mil kilómetros de este apartamento, su hijo dormía con el jersey arcoíris del Campeonato del Mundo en la silla de su habitación de hotel.
 
-Era suficiente.
+Con eso, Carmen también podía dormir.
 
 Era exactamente suficiente.
 

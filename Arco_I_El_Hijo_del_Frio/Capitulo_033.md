@@ -32,7 +32,7 @@ Respiró.
 
 Luego sacó el teléfono y le mandó un mensaje a su madre: *Llegué bien. El apartamento está bien. Hace mucho frío.*
 
-Su madre respondió en treinta segundos con tres emojis de corazón y la promesa de que iba a rezar por él. Santi no era particularmente creyente pero los rezos de su madre los aceptaba con la misma gratitud con que aceptaría cualquier forma de amor que alguien pusiera a trabajar por él.
+Su madre respondió en treinta segundos con tres emojis de corazón y la promesa de que iba a rezar por él. Santi no era particularmente creyente pero los rezos de su madre los aceptaba con la misma gratitud con que aceptaría cualquier forma de amor que alguien pusiera a trabajar por él. Dejó el teléfono sobre la mesa de noche y se quedó escuchando el silencio del edificio, un silencio distinto al de San José: sin grillos, sin perros, sin el motor lejano de algún carro subiendo la loma.
 
 ---
 
@@ -58,7 +58,7 @@ El nombre estaba en la vaina trasera izquierda en letras muy pequeñas y sin dec
 
 —El cuadro —dijo Ludo— es carbono unidireccional T1000 de Toray. El más rígido de la gama Ridley. Construcción monocasco: el cuadro y la horquilla no tienen uniones —son una sola pieza en la parte del tubo de dirección. —Se agachó al nivel de los engranajes—. Peso del cuadro solo: setecientos ochenta y dos gramos, en talla M. El tuyo. Total de la bicicleta con pedales: seis kilos ochocientos noventa. —Una pausa—. El mínimo UCI es seis ochocientos. Estamos ochenta y seis gramos encima para tener margen con las cadenas de montaña.
 
-Santi miraba. No decía nada. Había aprendido de Ospina que cuando alguien que sabe está hablando, la boca se cierra.
+Santi miraba. No decía nada. El taller olía a aceite y a frío de afuera que se filtraba por la puerta entreabierta, y las manos, metidas en los bolsillos de la chaqueta, todavía no se habían calentado del todo. Había aprendido de Ospina que cuando alguien que sabe está hablando, la boca se cierra.
 
 —La geometría está ajustada a tu análisis biomecánico. —Ludo sacó una hoja del bolsillo de la bata— . Longitud de biela: ciento setenta y dos y medio milímetros. Longitud de potencia: cien milímetros. Altura de sillines: setecientos cuarenta y ocho milímetros desde el eje del pedalier. Caída del manillar desde la silla: cuatro centímetros. —Dobló la hoja—. El departamento de biomecánica hizo el análisis en agosto cuando firmaste el contrato, con los datos que mandaste de Medellín. Lo ajustamos en los primeros tres entrenamientos si hay que ajustar.
 
@@ -108,7 +108,7 @@ Ludo lo miró.
 
 Santi miró el casete. Once piñones alineados en el buje de la rueda trasera, desde el dentado pequeño y brillante del once hasta el dentado amplio del veintiocho. Los dientes del once eran agudos y precisos como los de una herramienta. Los del veintiocho eran más gruesos, con ese perfil redondeado que los piñones grandes necesitan para que la cadena no salte en los cambios bruscos.
 
-Toda la diferencia entre escalar cómodo y escalar sufriendo estaba ahí, en esos once centímetros de aluminio.
+Toda la diferencia entre escalar cómodo y escalar sufriendo estaba ahí, en esos once centímetros de aluminio. Santi pasó el dedo por los dientes del veintiocho y sintió el filo redondeado, frío todavía del almacén.
 
 ---
 
@@ -200,7 +200,7 @@ Las zapatillas con *S. REYES* en el talón.
 
 La bicicleta de seis kilos ochocientos noventa gramos que lo esperaba en el soporte número siete.
 
-No era San José de la Montaña ni el taller de Ospina en La América ni el Alto de Minas a las cinco de la mañana. Era otra cosa. Era la cosa a la que todo eso había conducido.
+No era San José de la Montaña ni el taller de Ospina en La América ni Santa Elena a las cinco de la mañana. Era otra cosa. Era la cosa a la que todo eso había conducido.
 
 Sacó el jersey del armario. Lo dobló con cuidado. Lo puso en la bolsa de equipo con el nombre del Élan Cycliste en el lado.
 
@@ -258,7 +258,7 @@ La primera serie: los primeros ocho minutos, la potencia llegó con facilidad. E
 
 Terminó la primera serie en trescientos dieciocho vatios de media. Dos vatios por debajo del objetivo.
 
-—No te preocupes —dijo Devries en inglés durante la recuperación—. En llano tarda tres semanas en salir bien. El cuerpo tiene que aprender a hacer en horizontal lo que en Colombia hacías en vertical.
+—No te preocupes —dijo Devries en inglés durante la recuperación, con la calma práctica de quien ha visto a diez corredores extranjeros pasar por el mismo desconcierto—. En llano tarda tres semanas en salir bien. El cuerpo tiene que aprender a hacer en horizontal lo que en Colombia hacías en vertical.
 
 La segunda serie fue mejor. El cuerpo había encontrado algo —no el estado óptimo, sino el estado *correcto para hoy*, que no es lo mismo pero es suficiente. Trescientos veintitrés vatios. La respiración en ese punto donde ya no es completamente consciente sino que el sistema nervioso la gestiona solo mientras el cerebro se dedica a lo único que importa: mantener la cadencia, mantener la potencia, no ceder en el kilómetro diecisiete de veinte cuando las piernas presentan el resumen de lo acumulado.
 
@@ -268,9 +268,9 @@ Volvieron al cuartel. Ludo ya tenía la bicicleta de recambio preparada —aunqu
 
 Santi lo procesó en la camilla, mirando el techo.
 
-Trescientos veintisiete vatios al final. Más de lo que había empezado. El cuerpo, cuando le das lo correcto, responde.
+Trescientos veintisiete vatios al final. Más de lo que había empezado.
 
-Eso también lo escribió en la libreta.
+Eso también lo escribió en la libreta, con la mano todavía algo temblorosa por el esfuerzo.
 
 ---
 
@@ -346,7 +346,7 @@ Rodrigo respondió al tercer timbre.
 
 Rodrigo procesó eso.
 
-—El señor Torres está bien —dijo, sin que Santi lo hubiera preguntado todavía. Como si supiera que era lo primero que Santi iba a preguntar y le quitara el trabajo.
+—El señor Torres está bien —dijo, sin que Santi lo hubiera preguntado todavía.
 
 —¿Bien bien?
 
@@ -360,7 +360,7 @@ Rodrigo procesó eso.
 
 —Trabajando con mi tío. Abrió una ferretería en el pueblo.
 
-No estudió en ningún lado, al menos por ahora. Rodrigo no lo dijo así, pero Santi lo entendió. Había cosas que no necesitaban explicación entre los dos.
+Rodrigo no dijo nada de estudiar. Santi no preguntó.
 
 Hablaron diez minutos más. Nada importante. En San José las sillas del kiosco eran naranjas otra vez. El perro de los Montoya había muerto de viejo. El cura nuevo era más joven que el anterior y hablaba muy rápido en las misas.
 
@@ -374,13 +374,9 @@ Cosas pequeñas. El ruido de fondo de un lugar donde el tiempo pasaba diferente.
 
 Cuando colgaron, Santi se quedó con el teléfono en la mano mirando la pantalla apagada. Afuera la calle de Waregem con sus adoquines mojados y sus farolas y ninguna montaña visible en ninguna dirección.
 
-*El señor Torres está bien.*
-
-Era lo que necesitaba saber.
-
 Abrió la libreta. Escribió: *Rodrigo: llamado. El señor Torres bien — trabajo normal.*
 
-Cerró la libreta.
+Cerró la libreta y se quedó un momento con la mano encima, como si necesitara confirmar con el tacto que lo que acababa de anotar era cierto.
 
 ---
 
@@ -476,7 +472,7 @@ La segunda mitad.
 
 La que todavía no se había formado.
 
-Ese día no hubo entrenamiento —Duchêne había dado el día libre por ser domingo— y Santi se quedó en el apartamento la mañana entera mirando por la ventana la calle de Waregem con sus adoquines y su cielo gris inmutable. Pensó en su padre. En Ospina. En el Alto de Minas a las cinco de la mañana. En el tejado de zinc de San José de la Montaña.
+Ese día no hubo entrenamiento —Duchêne había dado el día libre por ser domingo— y Santi se quedó en el apartamento la mañana entera mirando por la ventana la calle de Waregem con sus adoquines y su cielo gris inmutable. Pensó en su padre. En Ospina. En Santa Elena a las cinco de la mañana. En el tejado de zinc de San José de la Montaña.
 
 Pensó en la distancia —esa distancia incalculable y real al mismo tiempo— entre todo eso y el apartamento de Waregem y el Giro de Italia que empezaba en ochenta y cuatro días.
 
@@ -490,12 +486,12 @@ Todavía.
 
 Pero iba a conocer estas carreteras. Los iba a conocer todos: este asfalto oscuro, estos pavés que se intuían en algunas esquinas, este cielo que no cambiaba. Los iba a conocer porque la única manera de que un lugar deje de ser extraño es pasarle suficientes horas encima.
 
-Volvió al apartamento. Comió la torta de supermercado que había sobrado de la mañana. Abrió la libreta.
+Volvió al apartamento. Comió la torta de supermercado que había sobrado de la mañana —demasiado dulce, como predijo la primera vez, pero la terminó de todos modos— y abrió la libreta.
 
 *14 de febrero de 2018. Dieciocho años. Waregem, Bélgica. 84 días para el Giro.*
 
 Debajo escribió lo que Ospina había dicho: *Ahora empieza la segunda mitad.*
 
-Y debajo de eso, con la misma letra, añadió:
+Y debajo de eso, con la misma letra, añadió: *Que arranque bien.*
 
-*Que arranque bien.*
+Cerró la libreta. Afuera ya había empezado a oscurecer, esa oscuridad temprana de febrero en el norte que llegaba sin aviso, y en algún punto de la calle alguien encendió una luz amarilla que se reflejó, partida en dos, sobre el canal quieto.

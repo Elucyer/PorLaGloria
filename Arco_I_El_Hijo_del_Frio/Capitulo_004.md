@@ -84,7 +84,7 @@ Su padre pedaleó los primeros kilómetros a su lado, a velocidad reducida.
 
 —Bien.
 
-—No te mienías. Hay dieciséis kilómetros.
+—No te me afanés. Hay dieciséis kilómetros.
 
 —Ya sé. Bien.
 
@@ -132,9 +132,7 @@ Algo se acomodó dentro de él en ese momento —no con el ruido de una revelaci
 
 No era lo mismo que San José.
 
-Pero era suficiente.
-
-Más que suficiente.
+Pero la manzana sabía bien, y el viento de arriba le secaba el sudor de la nuca, y por ahora con eso bastaba.
 
 ---
 
@@ -170,11 +168,9 @@ Santi se rió. Era la primera vez que se reía desde que habían llegado, no con
 
 Siguieron hablando durante media hora, y cuando colgaron Santi se quedó con el teléfono en la mano un momento, mirando el nombre de Rodrigo en la pantalla.
 
-Afuera, las luces de Bello encendiéndose en la noche, los buses pasando, los perros que ladraban en el callejón de atrás. Una ciudad que todavía no era la suya pero que tenía montañas. Y las montañas, eso ya lo sabía, siempre eran de quien se tomara el trabajo de subirlas.
+Afuera, las luces de Bello se encendían una a una en la noche, los buses pasaban, los perros ladraban en el callejón de atrás. Una ciudad que todavía no era la suya, pero con montañas alrededor que ya empezaban a parecerlo.
 
-El domingo había otro puerto.
-
-Tenía que investigar qué tan empinado era el Boquerón.
+Esa noche soñó con una pendiente que no reconocía y que, al despertar, ya había decidido que era el Boquerón.
 
 ---
 
@@ -200,4 +196,4 @@ No dijo nada.
 
 Santi tampoco.
 
-Pero en el camino de vuelta, con las piernas todavía temblándole y el sol de mediodía ya alto sobre el valle, su padre le puso una mano en el hombro un momento —breve, sin hacer pausa en el pedaleo— y eso fue suficiente.
+Pero en el camino de vuelta, con las piernas todavía temblándole y el sol de mediodía ya alto sobre el valle, su padre le puso una mano en el hombro un momento —breve, sin hacer pausa en el pedaleo. Después la retiró y siguió mirando la carretera, como si no hubiera pasado nada. El calor de esa mano le duró a Santi varios kilómetros más de lo que debería.

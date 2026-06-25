@@ -142,9 +142,9 @@ Pogačar atacó.
 
 Esta vez sí fue el ataque real — la aceleración brusca del corredor que ha decidido que es ahora, que el momento es este y no el siguiente, la misma manera en que Pogačar había atacado en el Lieja de abril con Santi cuatro metros por delante, la misma manera en que atacaba siempre: sin aviso, sin gesto de preparación, como si el cuerpo hubiera tomado la decisión antes de que la cabeza terminara de pensarla.
 
-Santi respondió en cuatro décimas de segundo.
+El cuerpo de Santi no dejó pasar más de cuatro décimas — el tiempo que tarda un reflejo entrenado durante años en convertirse en pedaleo.
 
-Vingegaard respondió en tres.
+Vingegaard fue todavía más rápido: tres décimas, el danés ya enganchado a la rueda antes de que la brecha llegara a abrirse del todo.
 
 Durante cuatro kilómetros — los más duros de la subida, el tramo entre el embalse y el último repecho antes de Tignes, donde la carretera se empinaba hasta el once por ciento en los tramos expuestos al viento del este — los tres rodaron en una formación que ninguna cámara de televisión captó del todo pero que los tres corredores sintieron como ningún otro momento de la carrera hasta ese punto: tres hombres al límite absoluto de lo que sus cuerpos permitían, sin que ninguno pudiera soltar al otro definitivamente.
 
@@ -160,9 +160,9 @@ En los últimos doscientos metros, la carretera se nivelaba levemente antes de l
 
 Pogačar saltó.
 
-Santi respondió en dos décimas.
+Santi lo sintió en el estómago antes que en las piernas — el vacío repentino de quien ve una rueda alejarse — y reaccionó en dos décimas.
 
-Vingegaard respondió en una.
+Vingegaard, una décima más rápido, ni siquiera pareció moverse: el cuerpo ya estaba ahí cuando la cabeza terminó de registrar el ataque.
 
 Lo que siguió fueron ciento ochenta metros de sprint que en cualquier otro deporte habrían sido invisibles — diferencias de milímetros entre tres cuerpos al máximo del esfuerzo — pero que en el ciclismo, con las cámaras de los helicópteros y la foto de meta y el crono oficial, producían números exactos.
 
@@ -180,9 +180,9 @@ Pogačar, líder. Santi a treinta y cuatro segundos. Vingegaard a cuarenta y cua
 
 En la zona de meta de Tignes, los tres se encontraron casi al mismo tiempo. Las cámaras los rodearon. Los periodistas empujaban.
 
-Pogačar habló primero, en inglés, con la sonrisa del que acaba de hacer exactamente lo que quería hacer:
+Pogačar habló primero, en inglés, con la sonrisa del que acaba de hacer exactamente lo que quería hacer. Apretó los labios un segundo, buscando la palabra que quería antes de soltarla:
 
-— Muy buen sprint. Tres buenos corredores, ninguno quiere ceder. — Una pausa. — Es el Tour más difícil que he corrido.
+— Muy buen sprint. Tres buenos corredores, ninguno quiere ceder. — Una pausa. — Es el Tour más difícil que he corrido. Y me encanta. No sé si eso se nota, pero me encanta.
 
 Santi, preguntado por la misma periodista de la Rai que lo había seguido desde Turín, respondió con la economía de siempre:
 
@@ -195,6 +195,14 @@ La periodista esperó más.
 Vingegaard, preguntado en inglés con acento danés por un periodista de Eurosport, respondió con la misma economía que Santi, aunque su inglés tenía un ritmo diferente, más pausado, como si cada palabra pasara por un filtro antes de salir:
 
 — Hoy fui tercero. Mañana descansamos. Después del descanso, vemos.
+
+El periodista insistió, buscando algo más largo: — ¿Está conforme con su Tour hasta ahora?
+
+Vingegaard lo miró un segundo de más, el tipo de pausa que en danés habría sido normal y que en inglés se sentía como un silencio calculado.
+
+— Conforme no es la palabra — dijo. — Todavía no terminó nada.
+
+No sonrió al decirlo. Tampoco lo dijo con dureza. Lo dijo como quien cierra una cuenta que todavía no se puede cerrar, y se dio la vuelta hacia el autobús del equipo antes de que llegara la siguiente pregunta.
 
 *Ninguno de los tres dijo en la zona de meta de Tignes lo que los tres sabían, de maneras distintas: que lo que había pasado en los últimos dos kilómetros de la subida era más importante que el resultado del sprint. Había pasado que ninguno de los tres había podido soltar a los otros dos. Ni Pogačar con sus dos aceleraciones. Ni Vingegaard con su constancia de motor a largo plazo. Ni Santi con su economía de esfuerzo.*
 

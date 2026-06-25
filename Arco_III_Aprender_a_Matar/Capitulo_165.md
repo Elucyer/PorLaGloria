@@ -82,6 +82,8 @@ Le puso la mano en el hombro.
 
 No la palmada del rival que felicita — la presión del corredor que en el otro reconoce algo que aprecia con la misma honestidad con que había reconocido en el podcast de noviembre que Santi era el corredor que le hacía tener más miedo de perder.
 
+Antes de hablar, apretó los labios un segundo — el gesto que Santi ya conocía de las zonas mixtas y de las cámaras del pelotón, el de Pogačar buscando la palabra exacta en un idioma que no era el suyo antes de decir algo que de verdad pensaba.
+
 — Bien jugado — dijo Pogačar, en inglés.
 
 Santi lo miró.
@@ -406,7 +408,7 @@ En Medellín era el lunes de la mañana y los diarios de Medellín tenían porta
 
 *Il Liegi.*
 
-*Cerró el cuaderno.*
+*Dejó el cuaderno abierto en la mesa del balcón, junto a la taza de café que se había enfriado sin que nadie la tocara, y se quedó mirando esas dos palabras un rato largo, como si todavía no terminara de creerlas.*
 
 *El balcón de Laureles con la ciudad de Medellín abajo y el níspero al frente y las matas de Carmen recién regadas.*
 

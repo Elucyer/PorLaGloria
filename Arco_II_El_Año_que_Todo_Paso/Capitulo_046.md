@@ -182,7 +182,7 @@ En los diez segundos siguientes, mientras Yates y Froome intercambiaban la mirad
 
 Nadie fue.
 
-Froome no tenía gregarios. Yates tenía el jersey rosa que defender y la certeza de que si aceleraba ahora para cerrar los veinticinco metros iba a llegar a la cima sin las reservas que podía necesitar mañana en la CRI de Trento. Pinot no era de los que cerraban brechas — era de los que esperaban a que los demás se desgastaran y luego juntaba. Y Santi seguía subiendo.
+Froome no tenía gregarios. Yates tenía el jersey rosa que defender y la certeza de que si aceleraba ahora para cerrar los veinticinco metros iba a llegar a la cima sin las reservas que podía necesitar mañana en la CRI de Trento. Por una vez, el inglés calculó: era trece etapas de Giro liderando la carrera por instinto puro, atacando cada vez que el cuerpo le pedía atacar, y en algún rincón de la cabeza —el rincón que normalmente perdía la discusión— Yates sabía que ese instinto era exactamente lo que lo había puesto en rosa y exactamente lo que algún día le iba a costar la carrera entera. Hoy ganó el cálculo. Mañana, en otra montaña, no lo iba a hacer. Pinot no era de los que cerraban brechas — era de los que esperaban a que los demás se desgastaran y luego juntaba. Y Santi seguía subiendo.
 
 Ferretti por el pinganillo:
 

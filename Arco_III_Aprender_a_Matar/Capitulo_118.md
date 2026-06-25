@@ -75,7 +75,7 @@ El público de cinco mil lo reconoció.
 
 El aplauso creció.
 
-Roglič no sonrió. Levantó la mano brevemente — el gesto exacto, el gesto del hombre que está ahí porque el protocolo lo pone ahí y que lo hace bien porque hacer bien lo que toca hacer es parte de ser profesional.
+Roglič no sonrió. Levantó la mano brevemente — el gesto exacto, el gesto del hombre que está ahí porque el protocolo lo pone ahí y que lo hace bien porque hacer bien lo que toca hacer es parte de ser profesional. Antes de bajar la mano, miró un segundo el ciclocomputador en la muñeca — el reloj que llevaba puesto incluso en la presentación, fuera de la bicicleta, como si el cuerpo necesitara verificar un número aunque ese día no hubiera ningún número que verificar. Treinta años. El esloveno que había empezado en el salto de esquí y que en el ciclismo había encontrado la misma economía: ningún movimiento que no sirviera para algo.
 
 Jonas Vingegaard salió detrás de Roglič — el danés de veintitrés años que en su segunda temporada en el WorldTour era el gregario de lujo del Jumbo, el hombre que iba a llevar a Roglič a la montaña todo lo que pudiera y que en la montaña iba a romperse para que Roglič llegara en posición. Vingegaard con la cara del corredor que todavía no sabe que en dos años va a ser el protagonista del Tour.
 
@@ -93,13 +93,13 @@ El público de cinco mil reconoció a Pogačar.
 
 El aplauso fue más largo que el de Roglič.
 
-Pogačar lo notó. Miró hacia el público un segundo — no la búsqueda de las cámaras, la mirada del corredor que procesa información. El público en Niza aplaudía más a Pogačar que a Roglič. Eso decía algo. Pogačar lo guardó.
+Pogačar lo notó. Miró hacia el público un segundo — no la búsqueda de las cámaras, la mirada del corredor que procesa información. El público en Niza aplaudía más a Pogačar que a Roglič. Eso decía algo. Pogačar lo guardó. Y sonrió, brevemente, hacia ningún punto en particular del público — la misma sonrisa rápida que sus compañeros de equipo ya conocían de los entrenamientos, la que se le escapaba cuando algo lo sorprendía de un modo que le gustaba, ganara o no tuviera nada que ver con ganar.
 
 El decimonoveno: FCV-WorldTour.
 
 Los ocho salieron al escenario en fila.
 
-El primero: *Andrea Colombo, Italia, treinta y cinco años.* El veterano de Bérgamo que en la Promenade des Anglais saludó al público con la naturalidad del hombre que ya ha hecho esto seis veces y que sabe exactamente cuánta energía merece el gesto. El segundo: *Théo Duchêne, Francia, veintinueve años.* El tercer: *Simon Clarke, Australia, treinta y tres años* — el australiano que en el escenario tenía la misma postura que en las reuniones de equipo, los brazos cruzados, la cara del corredor que está pensando en la etapa de mañana. *Lars Rensen, Dinamarca.* *Jorge Vidal, España.* *Martín Echavarría, Colombia* — el segundo colombiano del equipo que al salir al escenario recibió el aplauso específico de los cinco colombianos que había entre el público de cinco mil, el aplauso que Echavarría reconoció y al que respondió con la mano levantada más alta que los demás. *Stef Broeckx, Bélgica, veintisiete años.*
+El primero: *Andrea Colombo, Italia, treinta y cinco años.* El veterano de Bérgamo que en la Promenade des Anglais saludó al público con la naturalidad del hombre que ya ha hecho esto seis veces y que sabe exactamente cuánta energía merece el gesto. El segundo: *Théo Duchêne, Francia, veintinueve años.* El tercer: *Simon Clarke, Australia, treinta y tres años* — el australiano que en el escenario tenía la misma postura que en las reuniones de equipo, los brazos cruzados, la cara del corredor que está pensando en la etapa de mañana. *Lars Rensen, Dinamarca.* *Jorge Vidal, España.* *Martín Echavarría, Colombia* — el segundo colombiano del equipo que al salir al escenario recibió el aplauso específico de los cinco colombianos que había entre el público de cinco mil, el aplauso que Echavarría reconoció y al que respondió con la mano levantada más alta que los demás. No era el aplauso que recibía Santi un poco más adelante en la fila — era más pequeño, más íntimo, el aplauso de la gente que sabe el nombre completo y la ciudad exacta de donde viene un gregario porque ese gregario es, todavía, lo más parecido a un ídolo propio que algunos de ellos tienen. Echavarría guardó ese aplauso de la misma manera que guardaba los números de Rusconi — como un dato a favor, pequeño, pero real. *Stef Broeckx, Bélgica, veintisiete años.*
 
 Y el último:
 
@@ -223,6 +223,14 @@ La zona mixta de la primera etapa.
 
 El corredor de equipos habilitado junto al aparcamiento del Palais des Expositions — el corredor de diez metros de largo con las vallas de separación y los periodistas acreditados al otro lado, los micrófonos extendidos, las cámaras de los canales europeos y latinoamericanos y de los medios escritos con sus cuadernos y sus grabadores.
 
+Roglič había pasado por la zona mixta diez minutos antes, todavía con el dorsal sin despegar y el casco en la mano. El periodista de *Sporza* le preguntó si esperaba ganar la primera crono del Tour.
+
+— Esperaba un buen tiempo — dijo Roglič. — Lo tuve.
+
+— ¿Algo más?
+
+Roglič miró el cronómetro de la pantalla detrás del periodista — el dato, no la pregunta — y negó con la cabeza, una sola vez, antes de seguir hacia el autobús del Jumbo-Visma. No había nada más que decir de un número que ya estaba dicho.
+
 Santi llegó a la zona mixta once minutos después de cruzar la línea. Los diez minutos de la recuperación inmediata — el rodillo de enfriamiento, el agua, el análisis rápido de Rusconi con el tablet en la mano y los datos de la crono en pantalla.
 
 Los periodistas lo esperaban.
@@ -275,7 +283,7 @@ Y debajo de eso, con la letra más pequeña de las notas al margen:
 
 *54" en montaña sobre Roglič. Es posible.*
 
-Hernando cerró el cuaderno.
+Hernando dejó el cuaderno sobre la mesa del comedor, abierto en esa página, el lápiz cruzado encima como un puente pequeño.
 
 Carmen desde la cocina: — ¿Comiste algo?
 
@@ -283,14 +291,16 @@ Carmen desde la cocina: — ¿Comiste algo?
 
 — Un banano no es comer.
 
-Era el mismo intercambio de siempre.
+Era el mismo intercambio de siempre. Hernando no contestó esta vez — se levantó, fue a la cocina, y Carmen, sin decir nada más, le puso enfrente el plato que ya tenía listo desde hacía media hora, como si supiera de memoria cuánto tardaba la primera etapa de un Tour de France en convertirse en hambre real.
 
-Era el inicio de las tres semanas del Tour de France 2020 en el balcón del cuarto piso del apartamento de Laureles, con el verde del parque abajo y el Valle de Aburrá y el café de las mañanas y el cuaderno que en tres semanas iba a llenarse con los perfiles de las veintiún etapas y los splits de los tres tiburones y la letra apretada del hombre que en cuarenta años de ciclismo había aprendido que el Tour se gana en los Alpes pero se pierde en los detalles.
+Tres semanas por delante. El verde del parque abajo, ya oscuro a esa hora, el Valle de Aburrá con las luces de las laderas encendiéndose una a una, el cuaderno que en los próximos veinte días iba a llenarse con los perfiles de las etapas y los splits de los tres tiburones y la letra apretada del hombre que en cuarenta años de ciclismo había aprendido que el Tour se gana en los Alpes pero se pierde en los detalles.
 
 Mañana la segunda etapa.
 
 Nice — Nice. 186 kilómetros. Tres puertos. El primer contacto del Tour con la montaña pequeña.
 
-El Tour empezaba mañana de verdad.
+¿Cuántas veces más iba a sentarse así, con el cuaderno y el café frío, antes de que esto terminara de una manera o de otra?
+
+No lo sabía. Apagó la luz del comedor y se fue a dormir.
 
 ---

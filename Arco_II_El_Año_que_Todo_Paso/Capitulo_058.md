@@ -41,7 +41,7 @@ Santi bebía cada veinte minutos. Gel en el kilómetro sesenta. Gel en el ochent
 
 En el kilómetro noventa, en el inicio del penúltimo repecho antes de Neila — cuatro kilómetros al seis, nada en comparación con lo que venía, pero suficiente para revelar el estado de las piernas — Svendsen atacó.
 
-No fue un ataque explosivo. Fue la aceleración progresiva de un corredor que sabe que tiene que hacer la carrera en este punto porque esperar al puerto final significa llegar al puerto final con los mejores escaladores del grupo y los mejores escaladores del grupo son mejores en el puerto final.
+Svendsen no explotó: aceleró de manera progresiva, con la lógica del corredor que sabe que tiene que hacer la carrera en este punto porque esperar al puerto final significa llegar al puerto final con los mejores escaladores del grupo y los mejores escaladores del grupo son mejores en el puerto final.
 
 Diez metros. Veinte. Treinta.
 

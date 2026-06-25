@@ -28,6 +28,8 @@ Julián había preguntado: *¿Pogačar?*
 
 Y Santi había asentido.
 
+Pogačar, cuando dijo lo suyo en el podcast de noviembre, no lo había dicho con la elegancia calculada de los corredores que llevan años entrenados por sus agentes de prensa. Lo había dicho en inglés con el acento esloveno marcado, apretando los labios un segundo antes de cada frase larga — el gesto de quien busca la palabra exacta en un idioma que no es el suyo porque le importa decir lo que piensa con precisión, no decir algo que suene bien. Esa pausa breve, ese segundo de calibrar, era lo más cercano a una estrategia de prensa que el esloveno tenía. Y no era estrategia. Era honestidad con frenos de mano.
+
 La cámara lo había captado.
 
 El portero de YouTube había puesto el clip en el título del vídeo.

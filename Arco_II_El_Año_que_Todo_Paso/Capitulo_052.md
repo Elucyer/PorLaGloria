@@ -162,7 +162,7 @@ El cuerpo al treinta y ocho.
 
 No mejoró. Tampoco empeoró. Era el número que era y se quedó en ese número durante los primeros cien kilómetros — estable, como una temperatura que ha encontrado su punto de equilibrio y que no va a bajar ni a subir porque el sistema ya no tiene energía para la variación.
 
-Era suficiente.
+Para sobrevivir el día, con eso bastaba.
 
 ---
 

@@ -18,7 +18,7 @@ Trece corredores del equipo, los mecánicos, el personal médico, Ferretti al fr
 
 Dos días entre los dos.
 
-Santi durmió las primeras cuatro horas del trayecto — el sueño del corredor que en los días de carrera intensa aprende a dormir cuando el cuerpo da la señal, sin importar la hora ni el lugar. El bus con los asientos reclinados, la oscuridad de las ventanas tintadas, el sonido del motor en la autopista.
+Santi durmió las primeras cuatro horas del trayecto — el sueño del corredor que en los días de carrera intensa aprende a dormir cuando el cuerpo da la señal, sin importar la hora ni el lugar. El bus con los asientos reclinados, la oscuridad de las ventanas tintadas, el sonido del motor en la autopista, el olor a gel energético y a ropa de carrera todavía húmeda metida en las bolsas del equipaje.
 
 Cuando despertó en los Pirineos franceses, Ferretti estaba sentado al lado.
 
@@ -140,7 +140,15 @@ Santi a siete segundos.
 
 Roglič ganó la etapa 1. La primera Vuelta comenzaba como las dos anteriores — con el esloveno del Jumbo primero en la primera etapa de montaña.
 
+En la línea, Roglič no levantó los brazos hasta el último metro — el gesto corto, casi administrativo, del corredor que ya sabe lo que es ganar la primera etapa de una Vuelta que piensa ganar entera. Ni un golpe al pecho ni una mirada hacia atrás. Se quitó el casco antes de que la cámara llegara, como si el dato de la victoria ya estuviera registrado y lo demás fuera protocolo.
+
 Santi llegó cuarto en el Arrate.
+
+Carapaz lo alcanzó en la zona de enfriamiento, todavía con el aliento entrecortado del esfuerzo final.
+
+— Once segundos no es nada — dijo Carapaz en español, la mano apoyada un instante en el hombro de Santi. — Quedan diecisiete etapas, hermano.
+
+Santi asintió.
 
 En la zona mixta, un periodista de Marca le preguntó si el cuerpo estaba al nivel del Tour.
 
@@ -164,7 +172,15 @@ Las etapas 2 a 5 fueron las etapas de la primera semana que en el ciclismo profe
 
 Etapa 2: Pamplona — Lekunberri. 151,6 kilómetros. Ondulada. El equipo Deceuninck-Quick Step impuso el ritmo en los repechos finales. Nadie de los favoritos se movió. La fuga llegó a meta.
 
-Etapa 3: Lodosa — Laguna Negra de Vinuesa. 166,1 kilómetros. La llegada al embalse de Vinuesa con el ascenso de 17 kilómetros al 4,37%. Carapaz atacó a tres kilómetros de meta. Roglič lo siguió. Santi los siguió. Los tres llegaron juntos — la primera vez en la Vuelta que los tres favoritos principales se probaron sin que nadie cediera. La Laguna Negra con las hayas rojizas de octubre alrededor, el agua oscura del embalse, el frío de los 1.700 metros que en Soria a finales de octubre era el frío real de la sierra.
+Etapa 3: Lodosa — Laguna Negra de Vinuesa. 166,1 kilómetros. La llegada al embalse de Vinuesa con el ascenso de 17 kilómetros al 4,37%. Carapaz atacó a tres kilómetros de meta. Roglič lo siguió — sin urgencia, el incremento de ritmo del corredor que mide el ataque ajeno antes de gastar nada propio. Santi los siguió. Los tres llegaron juntos — la primera vez en la Vuelta que los tres favoritos principales se probaron sin que nadie cediera. La Laguna Negra con las hayas rojizas de octubre alrededor, el agua oscura del embalse, el frío de los 1.700 metros que en Soria a finales de octubre era el frío real de la sierra.
+
+En la línea, Carapaz se acercó a Santi en la bicicleta, todavía pedaleando despacio, y le dio un golpe suave en la espalda con el dorso de la mano.
+
+— Así se prueban los tres tiburones, ¿no? — dijo en español, riendo un poco con el aire que todavía le faltaba.
+
+Santi sonrió apenas. — Así.
+
+Roglič, unos metros adelante, se limitó a mirar el ciclocomputador. No volteó a buscar la broma.
 
 Etapa 4: Numancia — Ejea de los Caballeros. 191,7 kilómetros. Llana. El pelotón de los favoritos llegó en grupo. Sam Bennett del Deceuninck ganó al sprint.
 
@@ -174,7 +190,7 @@ En la etapa 5, en el descenso del Cotefablo, Santi sintió algo que en el cuerpo
 
 El cuerpo recuperando.
 
-No el cuerpo al cien — pero el cuerpo yendo en la dirección correcta.
+No el cuerpo al cien — pero el cuerpo yendo en la dirección correcta, las piernas con menos peso en cada pedalada, el aire entrando más fácil en el pecho en el último kilómetro del Cotefablo.
 
 Rusconi por el pinganillo esa tarde, al final de la etapa: — Los datos de hoy. El vataje en el Cotefablo: 4,3 vatios por kilogramo al 6%. En el Tour de France, el vataje en el Marie-Blanque al mismo porcentaje era 4,7. — Pausa. — La diferencia se está cerrando. La etapa 6 es Formigal.
 

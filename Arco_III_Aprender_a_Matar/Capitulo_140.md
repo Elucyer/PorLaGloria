@@ -203,7 +203,7 @@ Cuatro kilómetros entre el segundo Kwaremont y el segundo Paterberg.
 
 Los cuatro kilómetros del descenso técnico hacia la base del Paterberg — la carretera que en Flandes oriental bajaba por los flancos de los muros de manera que en la bicicleta de carretera la velocidad en el descenso era la velocidad del corredor que domina la técnica del descenso, no la velocidad del que tiene miedo al asfalto mojado.
 
-Van der Poel descendió primero — el neerlandés que en el descenso era el más audaz de los tres, el que en las curvas cerradas mantenía la velocidad donde Van Aert y Santi tenían que frenar un décimo de segundo antes.
+Van der Poel descendió primero — el neerlandés que en el descenso era el más audaz de los tres, el que en las curvas cerradas mantenía la velocidad donde Van Aert y Santi tenían que frenar un décimo de segundo antes. No era cálculo. Santi lo había visto ya en el Kwaremont: Van der Poel no leía el asfalto mojado como un problema que resolver, lo leía como una pregunta que ya conocía la respuesta, y entraba a las curvas con el mismo gesto despreocupado de un nieto de Poulidor que llevaba el descenso en la sangre antes que en el cálculo — una sonrisa breve después de cada curva cerrada, casi una provocación al asfalto, como si el riesgo fuera, simplemente, la parte divertida del día.
 
 Van Aert detrás.
 
@@ -385,9 +385,9 @@ Van Aert levantó la vista hacia el arco de llegada.
 
 Los dos miraron la pantalla que mostraba el tiempo de Santi.
 
-Van der Poel se quitó el casco.
+Van der Poel se quitó el casco y se pasó la mano por el pelo aplastado de sudor. La mirada fija en la pantalla, en el número que no cambiaba. No tenía la cara del que calcula lo que pudo haber hecho diferente — tenía la cara, casi, de quien acaba de ver algo que no esperaba ver, y que encontraba eso más interesante que la derrota misma. Soltó una risa corta, casi para sí, antes de decir nada.
 
-No dijo nada.
+— *Un escalador. En el Paterberg. Solo* — dijo, en inglés, sacudiendo la cabeza, sin amargura, con la misma sorpresa alegre con que un chico describe algo que acaba de ver en la calle.
 
 Van Aert fue hacia Santi — que en el área de llegada estaba en el rodillo de enfriamiento con la manta térmica encima — y le extendió la mano.
 
@@ -405,6 +405,8 @@ Van Aert lo miró.
 
 Santi no respondió.
 
+No era la frase de Pogačar — Van Aert no tenía esa costumbre, la de buscar la palabra exacta antes de soltarla. El belga hablaba como pedaleaba: directo, sin frenar a medio camino. Pogačar, cuando hablaba en una carrera que había perdido, hacía algo distinto — apretaba los labios un segundo, como si la frase en inglés tuviera que pasar primero por el esloveno antes de salir bien dicha, y entonces decía exactamente lo que pensaba, sin la cautela de los que protegen su imagen. Hoy no estaba en el área de llegada. Hoy ese gesto se lo había quedado en Eslovenia, viendo la carrera por televisión.
+
 Era la frase del corredor que perdió diciéndole algo real al corredor que ganó — no la cortesía del protocolo de la zona mixta sino la observación del corredor que en ciento setenta kilómetros de carrera y quince de persecución había visto lo que el Paterberg hacía al escalador colombiano y que en ese dato encontraba información para el siguiente Flandes.
 
 Ferretti llegó con el telefono.
@@ -417,7 +419,7 @@ Santi lo tomó.
 
 — Kilómetro cien del Paterberg.
 
-Silencio.
+Se oía la respiración de Hernando del otro lado, el sonido hueco del teléfono contra la oreja, nada más durante varios segundos.
 
 — El plan decía que no podías ir solo.
 

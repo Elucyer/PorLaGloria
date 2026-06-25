@@ -54,7 +54,7 @@ La presentación de equipos del Tour de France 2021 se celebró el 24 de junio, 
 
 El protocolo era siempre el mismo: cada equipo subía al escenario en orden de clasificación del año anterior, el presentador leía los nombres de los corredores, los corredores saludaban al público. Cuarenta y cinco minutos de ritual que para la mayoría del pelotón era una coreografía aburrida pero necesaria, la primera vez en que las caras de los ciento ochenta y cuatro corredores del Tour se veían juntas en un mismo espacio, antes de que la carretera los separara.
 
-Santi subió al escenario con los siete compañeros de equipo que Ferretti había seleccionado para este Tour: Colombo, Clarke, Dumont, tres gregarios especialistas en montaña que habían demostrado su nivel en los últimos meses, y un joven corredor colombiano —Felipe Ríos, veintiún años, de Manizales— que hacía su primer Tour de France y que en el autobús, de camino a la presentación, había estado callado durante todo el trayecto con la expresión del corredor que todavía no puede creer del todo que está donde está.
+Santi subió al escenario con los siete compañeros de equipo que Ferretti había seleccionado para este Tour: Colombo, Clarke, Dumont, Luca Arnheim —el alemán de Stuttgart que llevaba un año en el equipo y que en la fila del escenario tenía la misma cara que tenía en cualquier reunión, en cualquier comida, en cualquier entrenamiento: ningún gesto hacia el público, ningún gesto hacia las cámaras, los ojos al frente con la fijeza del corredor que ya decidió, antes de subir, exactamente cuánta energía iba a gastar en saludar— dos gregarios más especialistas en montaña que habían demostrado su nivel en los últimos meses, y un joven corredor colombiano —Felipe Ríos, veintiún años, de Manizales— que hacía su primer Tour de France y que en el autobús, de camino a la presentación, había estado callado durante todo el trayecto con la expresión del corredor que todavía no puede creer del todo que está donde está.
 
 Cuando el presentador dijo el nombre de Santi —*"Santiago Reyes Cardona, ganador del Giro de Italia 2021, campeón del Tour de France 2020, campeón del Lieja-Bastogne-Lieja 2021"*— el público del patio de armas, unas cinco mil personas apretadas entre las murallas de la fortaleza, respondió con el tipo de ovación que Santi todavía no había aprendido del todo a procesar: no la ovación del corredor local al que el público conoce de siempre, sino la ovación más compleja, más cargada, del campeón extranjero al que el público francés respeta precisamente porque ha demostrado merecer ese respeto con resultados concretos y no con promesas.
 
@@ -70,17 +70,29 @@ Desde el lateral del escenario, donde los equipos ya presentados esperaban antes
 
 *El esloveno tenía la facilidad de los que no necesitan construir una imagen pública porque la imagen pública que tienen es simplemente quiénes son. El corredor joven, explosivo, sin miedo, que ataca cuando nadie espera: no era calculado. Era genuino. Y eso, paradójicamente, era lo más difícil de combatir.*
 
+Al bajar del escenario, Pogačar pasó cerca de Santi. Se detuvo un segundo, buscando algo que decir en inglés — el labio superior apretado contra el inferior, la pausa breve y reconocible del esloveno cuando quería decir exactamente lo que pensaba y no la frase fácil que cualquiera esperaría.
+
+— Three weeks —dijo finalmente, con media sonrisa—. Long time to find out who's better.
+
+— Tres semanas —repitió Santi, en español, sin necesidad de traducir el resto.
+
+Pogačar se rió, le dio un golpe corto en el hombro, y siguió caminando hacia su equipo.
+
 Más tarde, en el pasillo del hotel, antes de la cena, Santi se cruzó con Vingegaard. No fue planeado — los pasillos de los hoteles de Grand Départ eran siempre así, llenos de corredores de distintos equipos moviéndose entre habitaciones y zonas comunes, el tipo de espacio donde las jerarquías del pelotón se borraban momentáneamente y todos eran, simplemente, personas en un pasillo.
 
 Vingegaard iba hacia el ascensor. Santi salía de su habitación.
 
 El danés era, en persona, sorprendentemente discreto para alguien que en el Ventoux había cruzado la meta con los brazos abiertos: un metro ochenta y cuatro de altura distribuidos en los sesenta kilos exactos del escalador puro, el pelo claro cortado corto, los ojos de un azul que en las fotografías iba a parecer, con los años, el detalle icónico del rostro. Pero en el pasillo del hotel de Brest, en una camiseta del Jumbo-Visma y con la expresión de alguien que había estado durmiendo, Vingegaard parecía, sobre todo, un corredor de veinticuatro años que todavía no sabía exactamente qué hacer con el nivel que tenía.
 
-Asintió a Santi.
+Vingegaard lo miró un segundo de más antes de asentir — la misma pausa que Santi ya había visto en el Veleta, en enero, cuando el danés todavía era solo un corredor del Jumbo sin nombre en el cuaderno. La mirada no preguntaba nada. Medía.
 
 Santi asintió de vuelta.
 
-Ninguno de los dos habló. El ascensor llegó. Vingegaard entró. Las puertas se cerraron.
+— ¿Descansaste? — dijo Vingegaard, en un inglés tan comprimido que sonó más a constatación que a pregunta de cortesía.
+
+— Algo —dijo Santi.
+
+— Bien —dijo Vingegaard. No era una palabra de aliento. Era el dato cerrado, archivado, listo para usarse en alguna cuenta que el danés llevaba en silencio. El ascensor llegó. Vingegaard entró. Las puertas se cerraron.
 
 Santi siguió caminando hacia el comedor.
 
@@ -106,7 +118,7 @@ Silencio.
 
 Se sentó.
 
-Rusconi cerró su laptop. Colombo sirvió agua. Felipe Ríos, el joven de Manizales que hacía su primer Tour, miró a Santi con una expresión que mezclaba la inspiración con algo más cercano al terror.
+Rusconi cerró su laptop. Colombo sirvió agua. Arnheim, al otro extremo de la mesa, fue el único que no se movió durante el discurso de Ferretti — ni asintiendo, ni mirando a los otros, los ojos fijos en el director durante los doce minutos completos. Cuando Ferretti se sentó, Arnheim siguió mirando el punto donde el director había estado de pie, dos segundos más que los demás, como si todavía estuviera procesando la historia de LeMond y no quisiera soltarla todavía. Felipe Ríos, el joven de Manizales que hacía su primer Tour, miró a Santi con una expresión que mezclaba la inspiración con algo más cercano al terror.
 
 — ¿Estás bien? — le preguntó Santi, en voz baja.
 

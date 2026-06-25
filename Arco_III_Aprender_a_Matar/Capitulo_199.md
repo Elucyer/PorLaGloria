@@ -4,9 +4,13 @@
 
 ---
 
-La última semana de compromisos de Duarte se concentró en Medellín: una sesión de fotos para Garmin en un estudio del barrio Provenza, una grabación de podcast extra para cerrar el año en *Aprender a Matar* —no con Julián como entrevistador esta vez, sino al revés, Santi entrevistando a Julián sobre el crecimiento del podcast en tres años, un episodio que ninguno de los dos había planeado pero que terminó siendo, según ambos coincidieron después, "el más relajado que grabamos nunca"—, y una cena con Alejandro Vélez para revisar la colección de Alto Performance de 2023.
+La última semana de compromisos de Duarte se concentró en Medellín: una sesión de fotos para Garmin, una grabación extra de *Aprender a Matar* para cerrar el año, y una cena con Alejandro Vélez para revisar la colección de Alto Performance de 2023.
 
-— Esta colección la queremos distinta —dijo Vélez, durante la cena, mostrando los bocetos en una tableta—. Menos ciclismo explícito. Más sobre lo que pasó este año.
+La sesión de Garmin fue en un estudio del barrio Provenza, con el aire acondicionado puesto al máximo porque el fotógrafo necesitaba que el sudor falso —glicerina con agua, aplicada con un spray— no se corriera bajo las luces. Santi pasó tres horas pedaleando en una bicicleta fija sin moverse del mismo punto del set, mirando un reloj que todavía no existía en el mercado, mientras una asistente de producción le repetía "más esfuerzo en la cara, pero sin apretar la mandíbula" cada cinco minutos, hasta que Santi terminó preguntándole, en broma, si quería que le doliera de verdad la pierna para que la cara hiciera lo que ella pedía. Salió del estudio con la piel pegajosa de glicerina y el frío del aire acondicionado metido en los huesos, algo que en ningún entrenamiento real le pasaba.
+
+La grabación extra de *Aprender a Matar* para cerrar el año fue distinta a cualquier episodio anterior: no con Julián como entrevistador esta vez, sino al revés, Santi entrevistando a Julián sobre el crecimiento del podcast en tres años, un episodio que ninguno de los dos había planeado pero que terminó siendo, según ambos coincidieron después, "el más relajado que grabamos nunca" —sin guion, con Julián riéndose nervioso cada vez que el micrófono apuntaba hacia él y no al revés, y una pausa de cinco minutos a mitad de la grabación porque a los dos les dio un ataque de risa que el editor terminó cortando del episodio final.
+
+— Esta colección la queremos distinta —dijo Vélez, durante la cena, en el restaurante de Provenza donde el mesero ya conocía el pedido fijo de Santi y le servía el agua con limón sin que nadie la pidiera, mostrando los bocetos en una tableta—. Menos ciclismo explícito. Más sobre lo que pasó este año.
 
 — ¿Qué quiere decir eso?
 

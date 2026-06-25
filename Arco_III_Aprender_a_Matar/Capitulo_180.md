@@ -89,7 +89,7 @@ Santi miró el medidor: 6,11 W/kg. Once décimas por encima del límite de Rusco
 
 Santi dejó que Pogačar abriera dos metros. Tres.
 
-Vingegaard respondió. El danés cerró los tres metros en ocho segundos.
+Vingegaard no dejó que la diferencia se asentara: ocho segundos de remontada pura, la cadencia subiendo sin que el gesto en la bicicleta cambiara — solo el sonido, más rápido, de la cadena pasando por los piñones.
 
 Bernal y Carapaz se quedaron en el grupo reducido — cinco metros, diez, la diferencia que en la subida se volvía inapelable.
 
@@ -173,9 +173,9 @@ Esta vez fue real.
 
 No el test de cuatro kilómetros antes. Un ataque de verdad: la aceleración brusca, el salto de cuarenta vatios en dos segundos, la separación inmediata de dos metros que en la pendiente del nueve por ciento y con el viento de cara equivalía a un esfuerzo cardiovascular que Santi, en ese momento, registró en el pecho y en las piernas de manera simultánea.
 
-Vingegaard respondió en tres segundos.
+Vingegaard fue el primero en notarlo — apenas tres segundos, el cuerpo del danés todavía fresco de la espera calculada de los kilómetros anteriores.
 
-Santi respondió en cuatro.
+A Santi le costó uno más. No fue indecisión: fue el pecho, que en ese cuarto segundo todavía estaba terminando de pagar la factura del cierre anterior.
 
 Los cuatro segundos fueron suficientes para que Pogačar abriera cuatro metros. Los cuatro metros, en la pendiente del nueve por ciento con viento de cara, con las piernas del Tourmalet y el Spandelles — cuatro metros en Luz-Ardiden a cinco kilómetros de la cima eran lo suficiente como para que fueran reales.
 
@@ -197,7 +197,7 @@ Santi atacó.
 
 A cuatro kilómetros de la cima de Luz-Ardiden, con las piernas al límite de todo lo que las tres semanas del Tour habían acumulado, Santi aceleró con lo que quedaba. El medidor: 6,73 W/kg. El mismo número que en el Portet, o muy cerca. El mismo esfuerzo que en el Portet había construido diferencia real.
 
-Pogačar respondió en seis segundos.
+A Pogačar le tomó seis segundos reaccionar — un instante eterno que se notó en la imagen de televisión: el esloveno mirando, por una fracción de segundo, hacia abajo, al medidor, en vez de hacia adelante, a la espalda que se alejaba.
 
 Seis segundos. Más que en el Portet.
 
@@ -205,7 +205,7 @@ Seis segundos. Más que en el Portet.
 
 Seis segundos se tradujeron en cuatro metros. Cuatro metros con 6,73 W/kg sostenidos durante trescientos metros se tradujeron en seis metros. Siete.
 
-Vingegaard respondió en cuatro segundos — más rápido que Pogačar — y cerró dos metros con el danés. Pero el danés salía con cuatro metros de diferencia respecto a Santi, y Santi seguía acelerando.
+Vingegaard reaccionó cuatro segundos después del ataque — más rápido que Pogačar — y le sacó al esloveno dos de esos metros. Pero el danés salía con cuatro metros de diferencia respecto a Santi, y Santi seguía acelerando.
 
 A tres kilómetros de la cima, Santi tenía siete metros sobre Vingegaard y nueve sobre Pogačar.
 
@@ -267,11 +267,13 @@ Santi no respondió.
 
 La rueda de prensa fue la más corta del Tour — cuatro minutos, no más. Los tres corredores, la misma mesa, las mismas preguntas con variaciones.
 
-Pogačar fue el primero en hablar, antes de que nadie le preguntara:
+Pogačar fue el primero en hablar, antes de que nadie le preguntara. No esperó la pregunta porque no necesitaba que se la hicieran para decir lo que pensaba.
 
-— Reyes fue mejor hoy. Punto. — Pausa. — La crono no está perdida para mí. Pero Reyes fue mejor hoy.
+— Reyes fue mejor hoy. Punto. — Pausa. — La crono no está perdida para mí. Pero Reyes fue mejor hoy, y no tengo ningún problema en decirlo así, en esta mesa, frente a todos.
 
-Vingegaard: — Estoy a veintisiete segundos. La crono puede hacer mucho. Sigo en el Tour.
+Vingegaard esperó su turno mirando la mesa, no a la cámara, los dedos quietos sobre la botella de agua que no había abierto. Cuando llegó la pregunta —¿cómo digería los nueve metros que Santi le había sacado en la subida final— se tomó el mismo tiempo de siempre antes de hablar, el tiempo que en danés habría sido normal y que en esa sala, frente a cuarenta micrófonos, se sentía como un cálculo.
+
+— Estoy a veintisiete segundos. La crono puede hacer mucho. Sigo en el Tour.
 
 Santi, preguntado si creía que podía ganar el Tour:
 
@@ -371,20 +373,10 @@ La llamada terminó.
 
 Santi se quedó en la habitación del hotel de Pau, con las luces apagadas y la ventana entreabierta hacia la noche pirenaica de julio. La crono era pasado mañana — mañana era la E19, una etapa de transición, otro día de gestión y espera.
 
-Abrió el cuaderno.
+Se quedó escuchando el aire que entraba por la ventana, más frío de lo que había sido en Saint-Lary-Soulan, con un olor distinto — menos montaña, más valle, el anuncio de que los Pirineos empezaban a quedar atrás. Las piernas, debajo de las sábanas, todavía latían con un pulso propio, ajeno a la voluntad, el eco de los últimos cuatro kilómetros repitiéndose en los músculos como una canción que el cuerpo no podía dejar de tararear.
 
-Escribió:
+Pensó en la crono. Pensó en los quince segundos. Pensó, por un momento, sin quererlo, en Hernando colgando el teléfono del otro lado del mundo y mirando hacia la ventana de su propia casa en Laureles, calculando los mismos números.
 
-*Luz-Ardiden. +0:12 sobre Pogačar en la etapa. +0:15 en la general.*
-
-Después, debajo:
-
-*La crono es posible. El Tour es posible.*
-
-Y después de un espacio, la última línea:
-
-*Tengo que correr la mejor crono de mi vida.*
-
-Cerró el cuaderno.
+No durmió de inmediato. Pero cuando el sueño llegó, llegó sin sobresaltos — la clase de sueño profundo que solo visita a un cuerpo que ha hecho, esa tarde, exactamente lo que tenía que hacer.
 
 ---

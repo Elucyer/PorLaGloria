@@ -73,9 +73,9 @@ Torres asintió con la expresión de quien ha oído el nombre suficientes veces 
 
 No como bravuconada. Como un cálculo.
 
-Torres lo miró. Luego asintió.
+Torres lo miró, masticando algo que no estaba ahí, como si rumiara la respuesta antes de aceptarla. Luego asintió.
 
-—Ya lo sé —dijo—. Solo quería escuchar cómo lo decías.
+—Ya lo sé —dijo, casi entre dientes—. Solo quería escuchar cómo lo decías.
 
 ---
 
@@ -93,14 +93,6 @@ Santi no había preguntado.
 
 Pero ahora, en el techo del hotel de Tunja a las dos de la mañana, la imagen era clara: su padre preparando esa carrera durante meses, la convocatoria llegando, el entrenamiento de la semana previa, la caída, el sonido del hueso, el saber que la carrera se iba sin él.
 
-Lo que ese hombre había llevado callado.
+Lo que ese hombre había llevado callado, sin pedir nunca que alguien le aliviara el peso. Lo que todos los corredores que no llegaron llevaban callado, en algún cajón cerrado de la memoria que solo se abría a veces, sin avisar, como esa noche en el techo del hotel de Tunja.
 
-Lo que todos los corredores que no llegaron llevaban callado.
-
-Santi cerró los ojos.
-
-Mañana por él también.
-
-Por él además.
-
-Las dos cosas.
+Santi cerró los ojos. Afuera, en la plaza, alguien recogía las últimas mesas de las empanaditas, el ruido metálico de las sillas plegándose una sobre otra, y ese fue el último sonido antes de que el sueño, finalmente, lo alcanzara.

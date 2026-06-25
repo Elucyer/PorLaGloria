@@ -19,7 +19,7 @@ Ciento veinte kilómetros y quinientos metros. Albertville como punto de partida
 
 La etapa no tenía un solo puerto fuera de categoría. Era más tramposa que eso: tenía setenta kilómetros de carretera ondulada por el Beaufortain —el territorio del queso y del silencio, de las vacas con cencerros en los prados de montaña— con varios puertos de segunda y tercera categoría que acumularían carga sin que nadie los llamara por su nombre, y al final, cuando las piernas ya hubieran pagado ese precio invisible, la rampa final a Sainte-Foy.
 
-—Esta es la etapa que decide el Tour de l'Avenir —dijo Patiño.
+—Esta es la etapa que decide el Tour de l'Avenir —dijo Patiño, con la voz seca de quien ha repetido esa frase, con otros nombres y otras montañas, durante veinte años.
 
 Nadie en la habitación necesitaba que se lo dijeran. Pero había que decirlo.
 
@@ -49,7 +49,7 @@ Libertad de carrera.
 
 Eran tres palabras que en el ciclismo de equipo tenían un peso específico: significaban que el director reconocía que el corredor estaba en condición de pelear por sí mismo sin comprometer los intereses del equipo.
 
-Santi no respondió. Anotó en la libreta.
+Santi no respondió. Anotó en la libreta, despacio, como si las letras también tuvieran que ganarse el espacio.
 
 ---
 
@@ -73,7 +73,7 @@ Bernal miró a Santi.
 
 Santi asintió.
 
-No era una petición. Era la confianza específica del líder al corredor que sabe que puede hacer exactamente eso.
+No era una petición. Bernal ya se había dado la vuelta hacia la ventana, como si la respuesta no necesitara esperarse.
 
 ---
 
@@ -191,7 +191,7 @@ Lambrecht miraba hacia atrás cada dos minutos.
 
 La subida a Sainte-Foy empieza en un punto donde la carretera gira a la derecha y de repente el asfalto sube al ocho por ciento sin aviso. No hay señal. No hay cambio en el paisaje. Solo la carretera que estaba al cuatro y ya no lo está.
 
-Santi lo sintió en los cuadriceps antes de verlo en el manillar.
+Santi lo sintió antes de verlo en el manillar: un cambio de peso en la bicicleta, el aire de golpe más espeso en la garganta, el sudor que de repente pesaba más sobre la piel.
 
 —Aquí —dijo Bernal.
 
@@ -377,9 +377,9 @@ Santi respondió también.
 
 Durante doscientos metros fue.
 
-En el kilómetro cuatro y trescientos metros, los cuadriceps le dijeron que no.
+En el kilómetro cuatro y trescientos metros, las piernas le dijeron que no.
 
-No con dolor. Con el silencio específico del músculo que ha llegado exactamente a su límite y no tiene negociación disponible. No era calambre. No era lesión. Era la línea que separa lo que el entrenamiento construyó de lo que todavía está por construir.
+No con dolor. Con el silencio específico de quien ha llegado exactamente a su límite y no tiene negociación disponible. No era calambre. No era lesión. Era la línea que separa lo que el entrenamiento construyó de lo que todavía está por construir. El aire entraba pero no alcanzaba a llenar nada.
 
 La brecha era de tres metros.
 
@@ -413,7 +413,7 @@ Santi la tomó.
 
 —Quince segundos —repitió Santi.
 
-No era consolación. Era diagnóstico. La misma manera en que Santi había anotado los cuarenta y tres segundos del Línea cuando Arroyave lo había dejado en el año anterior: como una distancia que tiene nombre y los nombres se trabajan.
+No era consolación. Era diagnóstico, dicho con el aire todavía entrecortado, las manos apoyadas en el manillar porque las piernas aún no confiaban en sostenerlo solas. La misma manera en que Santi había anotado los cuarenta y tres segundos del Línea cuando Arroyave lo había dejado en el año anterior: como una distancia que tiene nombre y los nombres se trabajan.
 
 —El año que viene —dijo Bernal.
 
@@ -539,6 +539,6 @@ Mañana era la última etapa: Bourg-Saint-Maurice a Albiez-Montrond, el Col de l
 
 En la libreta escribió: *Sainte-Foy. 4,9 km / 8,7%. 3º en la etapa. -15 seg sobre Bernal y Lambrecht. 8 metros en 500 metros. Giro de Italia en mayo. Firmar.*
 
-Debajo, después de un segundo, añadió una sola palabra:
+Debajo, después de un segundo, añadió una sola palabra: *Sí.*
 
-*Sí.*
+Cerró la libreta. Apagó la luz. Afuera, alguna vaca con cencerro sonaba todavía en la oscuridad del valle, sin que nadie le hubiera pedido que dejara de hacerlo.

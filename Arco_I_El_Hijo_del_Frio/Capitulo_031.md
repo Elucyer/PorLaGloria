@@ -150,11 +150,11 @@ Sivakov, solo adelante, estaba fuera de su vista.
 
 Los dos metros del rectilíneo, los cuatro metros de la curva cerrada del kilómetro cinco y medio, el punto donde la carretera se abre y el pueblo de Albiez-Montrond aparece al fondo con su arquitectura de madera y piedra de Saboya y las banderas del Tour de l'Avenir en los balcones: Santi llegó a ese punto con Bernal y Lambrecht a veinticinco metros, con Sivakov ya en la recta final hacia la línea, con el público de los últimos quinientos metros gritando en francés los nombres que no eran el suyo pero para quienes el pedaleo de un colombiano de diecisiete años en la última etapa de una carrera de nueve días era algo que valía la pena reconocer.
 
-Cruzó la línea de llegada cuarto en la etapa.
+Cruzó la línea de llegada cuarto en la etapa, con la boca seca y el pulso todavía repicando en los oídos como si la carrera no hubiera terminado del todo.
 
 Sivakov primero. Bernal segundo y Lambrecht tercero, a once segundos. Santi cuarto, a dieciséis.
 
-cuarto en la etapa. Y tercero en la clasificación general —que Patiño le confirmó dos minutos después desde el coche del equipo— ponía a Santi Reyes Cardona, diecisiete años y nueve meses, en el tercer lugar del Tour de l'Avenir 2017.
+Cuarto en la etapa. Y tercero en la clasificación general —que Patiño le confirmó dos minutos después desde el coche del equipo— ponía a Santi Reyes Cardona, diecisiete años y nueve meses, en el tercer lugar del Tour de l'Avenir 2017.
 
 ---
 
@@ -162,7 +162,7 @@ El podio fue al día siguiente en Albiez-Montrond.
 
 Tres corredores en el escenario: Bernal en el centro con el maillot de campeón y la mirada de siempre —sin euforia, sin desbordamiento, con esa calma que en él no era pose sino geografía interior. Lambrecht a la izquierda, segundo, con la expresión de quien llegó exactamente donde había calculado llegar y no siente la necesidad de celebrarlo. Y Santi a la derecha, en el tercer escalón, con el maillot de la selección Colombia y sin saber exactamente qué hacer con las manos cuando los organizadores los empujaron hacia adelante para las fotos.
 
-Puso las manos en las caderas. Le pareció lo más honesto.
+Puso las manos en las caderas. Le pareció lo más honesto. El podio olía a flores recién cortadas y a protector solar, una mezcla que después de ese día asociaría para siempre con la palabra *podio*.
 
 El presentador dijo los nombres. El público aplaudió. Los fotógrafos dispararon. Alguien puso un ramo de flores en las manos de cada uno —flores de montaña, el tipo que crece a mil quinientos metros sin que nadie las plante.
 
@@ -212,7 +212,9 @@ El silencio de su padre tenía una cualidad específica esa tarde —no el silen
 
 —¿Solo "bien"?
 
-—Bien, bien, bien —dijo Hernando, y había algo diferente en el tono, algo que Santi reconoció como la versión que su padre le daba a la euforia cuando decidía no dejarla salir por la voz sino por algún otro conducto—. Muy bien.
+—Bien, bien, bien —dijo Hernando, y la voz se le quebró apenas un grado, lo suficiente para que Santi lo notara y no lo suficiente para que su padre lo admitiera—. Muy bien.
+
+Se quedaron los dos callados un momento, sin colgar, como si ninguno quisiera ser el que cortara primero.
 
 Colgaron.
 
@@ -274,7 +276,7 @@ Ospina procesó esto.
 
 Ospina lo miró durante tres segundos. Era mucho tiempo para Ospina.
 
-—Vamos —dijo.
+—Anotalo bien, entonces —dijo, y por una vez no sonó a orden sino a otra cosa que no tenía nombre todavía—. Vamos.
 
 Y se fueron.
 
@@ -285,3 +287,5 @@ Lo que sí había cambiado era él.
 No de manera visible —caminaba igual, hablaba igual, llevaba la misma mochila que había llevado a Francia un mes antes. Pero en algún punto del Col de la Madeleine, o en los últimos cuatro kilómetros de Albiez-Montrond, o quizás en el aeropuerto de Lyon antes de embarcar, o quizás en el momento exacto en que el avión despegó sobre los Alpes y las cimas eran visibles desde la ventanilla por última vez este año —en algún punto de todo eso había cruzado una línea que no tenía nombre pero que se sentía.
 
 Ospina lo sabía. Por eso había venido.
+
+No dijo nada más en todo el trayecto hasta el carro. Tampoco hacía falta.

@@ -18,13 +18,13 @@ Santi entró a la zona mixta con el jersey arcoíris puesto — lo había vuelto
 
 Los periodistas italianos primero — el Giro daba derechos de atención prioritaria a los medios italianos en cualquier carrera del calendario. Después los franceses. Después los belgas, que tenían la mitad de las preguntas sobre Van Aert y la otra mitad sobre lo que significaba perder el Mundial en casa.
 
-Y después, al fondo del pasillo, con la grabadora en la mano y la credencial de prensa que decía *Colombia — Prensa Independiente*, Julián Estrada.
+Y después, al fondo del pasillo, con la grabadora en la mano y la credencial de prensa que decía *Aprender a Matar — Podcast*, Julián Estrada.
 
 ---
 
 Santi lo vio desde quince metros.
 
-No había visto a Julián desde... desde antes del Tour. Desde la primavera, en Medellín, en la última conversación que habían tenido antes de que la temporada se convirtiera en la secuencia ininterrumpida del Giro, el Tour, los Juegos, el otoño. Julián había cubierto el Giro para su podcast — Santi había escuchado dos episodios en el vuelo de regreso de Milán — y había estado en París para la llegada del Tour, pero no habían coincidido en la zona mixta porque la zona mixta del Tour era un caos de seiscientas personas y Santi había salido de ella en siete minutos.
+No había visto a Julián desde... desde antes del Tour. Desde la primavera, en Medellín, en la última conversación que habían tenido antes de que la temporada se convirtiera en la secuencia ininterrumpida del Giro, el Tour, los Juegos, el otoño. *Aprender a Matar* seguía en pausa desde agosto, como Ferretti había pedido, pero Julián había grabado dos episodios de análisis él solo —sin invitado, sin Santi— sobre el Giro y el Tour, narrando desde Bogotá lo que veía en la transmisión. Santi los había escuchado en el vuelo de regreso de Milán. Julián había estado en París para la llegada del Tour, pero no habían coincidido en la zona mixta porque la zona mixta del Tour era un caos de seiscientas personas y Santi había salido de ella en siete minutos.
 
 Lovaina era más tranquila.
 
@@ -46,11 +46,11 @@ Santi miró la grabadora.
 
 ---
 
-Julián Estrada había empezado el podcast en 2019, el año de Yorkshire, cuando había decidido que el periodismo deportivo tradicional — los diarios, las agencias, el ciclo de veinte noticias por día — no era el lugar donde quería estar. El podcast se llamaba *El Corredor* — el título lo habían discutido durante una tarde entera en un café de la Javeriana, donde Julián estudiaba comunicación, y al final habían elegido el nombre más simple porque los nombres más simples eran los que duraban.
+Esta noche era distinta a cualquier grabación anterior de *Aprender a Matar*. Por primera vez desde abril de 2020, Julián no era el coconductor que se sentaba al lado de Santi a recibir invitados — era el entrevistador, solo, con el corredor del otro lado de la grabadora, en el formato que los dos habían discutido por mensaje dos días antes: *"Un campeón del mundo no se puede entrevistar a sí mismo. Esta vez yo pregunto, vos respondés. Episodio especial."* Santi había respondido con una sola palabra: *Dale.*
 
-El podcast cubría el ciclismo colombiano con un nivel de detalle técnico que los medios generalistas no podían ofrecer: explicaciones de potencia, análisis de datos de carrera, contexto histórico de las carreras que los comentaristas de televisión trataban como entretenimiento. En dos años, sin publicidad y sin presupuesto, había llegado a cuarenta y dos mil oyentes mensuales.
+Julián llevaba dos años construyendo el podcast desde Bogotá, primero como proyecto del confinamiento y después como algo que sin publicidad y sin presupuesto se había convertido en la referencia que los medios generalistas colombianos no podían ofrecer: las entrevistas de Egan, de Nairo, de Urán, de Valverde, de Pogačar y Van Aert juntos en el episodio que rompió todo lo que el podcast había hecho hasta entonces. Cuarenta y dos mil oyentes mensuales, la mayoría colombianos, una minoría creciente que escuchaba en inglés con subtítulos automáticos.
 
-Santi lo había escuchado ocasionalmente — en los vuelos largos, en las noches de hotel cuando el cuerpo estaba demasiado cansado para leer pero no para escuchar — y lo que escuchaba le parecía lo más parecido a una conversación real sobre ciclismo que existía en Colombia. Sin la artificialidad de la televisión. Sin el entusiasmo destemplado de las transmisiones en directo. Julián hablaba del ciclismo como hablaba de todo: con la precisión del hombre que había leído lo suficiente como para saber lo que no sabía.
+Pero esta noche, con la grabadora en la mano y Santi todavía con el jersey arcoíris puesto, Julián no estaba haciendo *Aprender a Matar*. Estaba haciendo la otra cosa que llevaba años queriendo hacer y que el podcast con Santi nunca le había permitido: una entrevista de verdad, sin la complicidad de la amistad escondiendo las preguntas difíciles detrás del cariño. Esta vez se lo iba a preguntar todo como si no se conocieran de toda la vida, y los dos sabían que esa distancia fingida, por una noche, era el regalo que se estaban haciendo.
 
 — Primera pregunta — dijo Julián. — Y es la que me importa más. ¿Qué se siente ganar el arcoíris por segunda vez?
 
@@ -106,7 +106,7 @@ Julián asintió despacio.
 
 — Bien — dijo, con el mismo registro de Ferretti. Con el mismo peso.
 
-— Bien — confirmó Santi.
+Santi le dio un golpe corto en el hombro, el saludo que les quedaba de los recreos del colegio, y guardó el resto para sí mismo.
 
 Salió de la zona mixta con el jersey arcoíris todavía puesto y las piernas que llevaban dos horas pidiendo cama, y pensó en que la única persona de la prensa que le había preguntado por Hernando esa tarde era el mismo que en los recreos del colegio de San José le había enseñado las fichas de los corredores del Tour que recortaba de las revistas.
 
@@ -158,9 +158,9 @@ Ferretti asintió.
 
 El ascensor llegó.
 
-— Bien — dijo Ferretti.
+— Bien — dijo Ferretti, y se quedó ahí, las manos en los bolsillos, mirando las puertas abrirse.
 
-— Bien — dijo Santi, y entró.
+Santi entró sin decir nada más. No hacía falta.
 
 ---
 
@@ -184,7 +184,7 @@ El ascensor llegó.
 
 *Dos arcoíris.*
 
-*Cerró el cuaderno y fue a la cama.*
+*Dejó el cuaderno abierto sobre la mesa de noche, la tapa azul hacia arriba, y apagó la luz sin terminar de mirarlo. Afuera, un perro del vecindario ladraba dos veces y se callaba, y el ventilador del techo seguía girando despacio en la oscuridad de Laureles.*
 
 ---
 

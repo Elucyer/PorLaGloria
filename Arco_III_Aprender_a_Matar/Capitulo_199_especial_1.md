@@ -44,7 +44,17 @@ Julián se acomodó en la silla, buscando la respuesta con el mismo cuidado que 
 
 — ¿Te dio miedo?
 
-— Pánico —admitió Julián, riendo—. Recuerdo estar sudando frente a la pantalla, improvisando preguntas, mientras vos te reías de mi cara en la videollamada.
+— Pánico —admitió Julián, riendo—. Recuerdo estar sudando frente a la pantalla, improvisando preguntas, mientras vos te reías de mi cara en la videollamada. Y Pogačar ahí, sonriendo todo el tiempo, como si estuviera disfrutando más el caos que la entrevista en sí.
+
+— Es así siempre —dijo Santi—. Le gusta el momento en que algo se sale del libreto. Lo vi en carrera. Cuando un plan se rompe, a él se le ilumina la cara antes de que se le ocurra qué hacer con eso.
+
+— Eso se notó. En un momento yo le pregunté algo torpe, sobre si tenía miedo de que lo superaras, y él se quedó callado dos segundos, apretando los labios, buscando la palabra exacta en inglés, y al final dijo algo que todavía repito: que el miedo bueno era el que te hacía entrenar más, no el que te hacía dormir mal. Lo dijo sin estrategia, sin la respuesta ensayada que dan otros deportistas. Como si estuviera pensando la frase en el momento, no recitándola.
+
+— Nunca prepara nada —dijo Santi—. Ni en carrera ni frente a un micrófono. Por eso a veces dice cosas que después tiene que explicar dos veces.
+
+— ¿Y cuando pierde? —preguntó Julián—. Porque me acuerdo que en ese episodio también habló de Lieja, del Tour, de perder contra vos.
+
+— Ahí es donde más se le nota el carácter —dijo Santi—. No esconde que le duele. Se le escapa la sonrisa igual, medio segundo, pero después dice exactamente lo que piensa: que no le gustó perder, que va a volver a intentarlo, que la próxima vez ataca antes. Roglič no te explica nada. Vingegaard te mira y no dice ni media palabra de lo que siente. Pogačar te lo dice todo, completo, ahí mismo, todavía con el sudor de la carrera.
 
 — No me reía de tu cara. Me reía de que lo estabas logrando, a pesar del pánico.
 

@@ -97,6 +97,8 @@ Una tarde, después de un entrenamiento de seis horas que había incluido la sub
 
 — Lo sé —dijo Clarke—. Pero ya no es "el rival". Ahora hay tres.
 
+— Con Pogačar ya sé qué esperar, por lo menos —dijo Colombo—. Va a atacar antes de lo que cualquiera calcule y después, gane o pierda, te va a decir en la cara lo que pensó mientras lo hacía. Con Vingegaard no tengo ni idea.
+
 Santi, con la mirada en los glaciares, no dijo nada durante un momento.
 
 — ¿Te acordás lo que dijo Caruso, en Stradella? —dijo finalmente—. Que el Giro de este año va a ser recordado como "el Giro donde estuvieron Bernal y Reyes".
@@ -174,19 +176,9 @@ Santi se quedó un momento más junto a la ventana, mirando el puerto de Brest, 
 
 *Para cuando termine.*
 
-Abrió el cuaderno —el mismo de siempre, el que llevaba desde el inicio de la temporada.
+Los barcos en el muelle se mecían apenas, con el movimiento mínimo de un agua que en Bretaña nunca terminaba de estar quieta. Pensó en el Giro, en la diferencia de dos minutos cuarenta y ocho segundos que había sido, al mismo tiempo, la más grande de su carrera y la prueba de la carrera más pareja que había corrido nunca. Las dos cosas eran verdad, y por algún motivo esa noche, frente al Atlántico, esa contradicción no le pesaba — la sentía, simplemente, como la forma que tenía el ciclismo de decir las cosas más importantes.
 
-Escribió:
-
-*Milán. El Tour en 26 días.*
-
-Después, debajo, después de un espacio:
-
-*Doblete: mitad cumplida.*
-
-*Giro 2021: ganado por 2:48. La diferencia más grande de mi carrera. La carrera más pareja de mi carrera. Las dos cosas son verdad.*
-
-Cerró el cuaderno.
+Cerró la cortina y se acostó.
 
 ---
 

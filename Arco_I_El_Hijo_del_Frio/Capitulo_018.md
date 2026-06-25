@@ -44,7 +44,7 @@ Fue, como lo anotó esa noche en la libreta, una medición: *Contrarreloj: quinc
 
 Ospina lo llamó al día siguiente.
 
-—El resultado está bien —dijo.
+—El resultado está bien —dijo Ospina, sin saludo, directo como siempre que tenía algo concreto que decir.
 
 —El crono no está bien.
 
@@ -118,7 +118,7 @@ Desde arriba, Medellín era una mancha de luz en el fondo del valle que iba apag
 
 Escribió en la libreta, con el manubrio como mesa: *Año 2016. Clásico RCN juvenil. Porvenir Antioqueño. Juventud de Colombia: cuarto. Clásica Antioqueña: primero. Clásica del Café: segundo. Contratos: Manzana Postobón hasta dic. Objetivo 2017: la Vuelta del Porvenir. Arroyave.*
 
-Debajo de eso no escribió nada durante un momento. El viento en la cima tenía esa temperatura exacta entre el frío y lo soportable. Abajo, la ciudad.
+Debajo de eso no escribió nada durante un momento. El viento en la cima tenía esa temperatura exacta entre el frío y lo soportable, y le secaba el sudor de la nuca despacio, casi con cuidado. Abajo, la ciudad seguía apagándose de luces a medida que el sol terminaba de salir.
 
 Luego escribió: *Cuarenta y tres segundos. Esa es la distancia.*
 
@@ -126,7 +126,7 @@ Luego escribió: *Cuarenta y tres segundos. Esa es la distancia.*
 
 Arenas llamó la primera semana de diciembre.
 
-—Renovamos para el año que viene —dijo—. Las condiciones son las mismas más una prima por clasificación en la Vuelta del Porvenir. Top cinco en la general.
+—Renovamos para el año que viene —dijo Arenas, sin preámbulo, dibujando ya con la voz el contrato que todavía no estaba firmado—. Las condiciones son las mismas más una prima por clasificación en la Vuelta del Porvenir. Top cinco en la general.
 
 —¿Solo top cinco?
 
@@ -206,7 +206,7 @@ Eran la misma edad. Tenían el mismo punto de partida.
 
 Y el lugar en el que habían llegado era completamente distinto.
 
-No era una tragedia. Era simplemente como funcionaba: cada uno con su carretera.
+Santi no dijo nada de esto en voz alta. Se quedó con el teléfono pegado a la oreja, mirando el cerro oscuro, dejando que el silencio hiciera la cuenta por los dos.
 
 —La Porvenir es el año que viene —dijo Santi.
 
@@ -228,5 +228,5 @@ El cerro de Floresta desde el balcón, oscuro. La mata de heliconias de su madre
 
 —Para el año que viene —dijo Santi.
 
-Y las dos palabras tenían el mismo peso que cuando las había escuchado de la boca de Arroyave en el podio de la Juventud, seis semanas antes, en Manizales.
+Colgó, se quedó un rato más en el balcón con el teléfono todavía tibio en la mano, y no entró hasta que el frío de diciembre le ganó la espalda.
 

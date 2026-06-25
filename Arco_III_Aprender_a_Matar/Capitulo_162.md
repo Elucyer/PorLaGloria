@@ -28,7 +28,11 @@ Colombo no respondió.
 
 Santi tampoco.
 
-Los tres comieron sin hablar más. El desayuno de la mañana de clásica larga — la pasta y el arroz de la noche anterior que el hotel servía de nuevo porque el corredor de fondo en la mañana de la carrera más larga del calendario de las Ardenas necesita los carbohidratos que van a sostener seis horas de esfuerzo.
+— En Melbourne no existe esta lluvia — dijo Clarke, mirando la ventana, después de un rato. — Llueve fuerte o no llueve. Esto es una cosa que solo entendieron los belgas: inventar un clima que no es ni una cosa ni la otra y correr una carrera adentro de él.
+
+— En Bérgamo tampoco existe — dijo Colombo. — Pero a esto me acostumbré rápido. A lo que nunca me acostumbré fue al frío de después. El de la ducha, cuando el cuerpo entiende que ya puede temblar.
+
+Clarke asintió, sin decir nada más. Los tres comieron sin hablar más. El desayuno de la mañana de clásica larga — la pasta y el arroz de la noche anterior que el hotel servía de nuevo porque el corredor de fondo en la mañana de la carrera más larga del calendario de las Ardenas necesita los carbohidratos que van a sostener seis horas de esfuerzo.
 
 Seis horas.
 
@@ -72,7 +76,7 @@ Pogačar en la primera fila — el dorsal uno, el subcampeón del Tour, el corre
 
 Santi lo vio desde diez metros antes de que la carrera arrancara.
 
-Pogačar miraba hacia adelante — la carretera, no el pelotón, no los otros corredores. El gesto del corredor que en el momento previo al inicio ya está dentro de la carrera aunque la carrera no haya empezado.
+Pogačar miraba hacia adelante — la carretera, no el pelotón, no los otros corredores. El gesto del corredor que en el momento previo al inicio ya está dentro de la carrera aunque la carrera no haya empezado. No había sonrisa todavía — esa aparecía después, en la carretera, cuando algo en la propia carrera le gustaba. En la salida solo estaba la concentración, sin la cara puesta para nadie.
 
 Alaphilippe al lado de Pogačar — el maillot arcoíris del Campeón del Mundo, el francés que en las Ardenas tenía una versión de sí mismo que no aparecía en otras partes del calendario. Van Aert detrás, en la segunda fila.
 
@@ -294,15 +298,9 @@ Santi aguantó.
 
 No con el sprint de Pogačar — con el ritmo que el cuerpo tenía en el metro cero de la Redoute con doscientos treinta y ocho kilómetros encima: el ritmo del escalador que en la subida explosiva no tiene la potencia del esloveno pero que en el segundo kilómetro de la Redoute, cuando el dieciséis baja al doce y el doce al ocho, empieza a recuperar el terreno que el esloveno ganó en los primeros doscientos metros.
 
-Veinte metros de Pogačar en el metro cero.
+Veinte metros de Pogačar en el metro cero — la ventaja se fue achicando despacio en el siguiente medio kilómetro, primero por el oído, después por la vista, a medida que la Redoute bajaba del doce al ocho y el ritmo de Pogačar y el ritmo de Santi se aproximaban porque el ocho por ciento es el territorio del escalador puro más que del sprinter de hellingen.
 
-Dieciséis en el metro doscientos.
-
-Doce en el metro cuatrocientos — la parte donde la Redoute bajaba del doce al ocho y el ritmo de Pogačar y el ritmo de Santi se aproximaban porque el ocho por ciento es el territorio del escalador puro más que del sprinter de hellingen.
-
-Ocho metros.
-
-Al kilómetro uno y medio de la Redoute, Santi estaba a ocho metros de Pogačar.
+Al kilómetro uno y medio de la Redoute, Santi tenía a Pogačar al alcance de la voz, si hubiera tenido aire para gastar en hablar.
 
 Alaphilippe a doce.
 

@@ -95,6 +95,8 @@ Cuatro minutos después, Pogačar cruzó la misma línea. Su tiempo: treinta y t
 
 El Tour de France 2021, a partir de ese momento, tenía un líder con nombre y apellido: Tadej Pogačar, maillot amarillo, treinta y siete segundos sobre Santi, cuarenta y cinco sobre Vingegaard.
 
+En la zona de meta, cuando le preguntaron por el margen, Pogačar no se guardó nada. — Es un buen colchón —dijo, con la sonrisa que no le costaba nada mostrar incluso cuando hablaba de números que le convenían a él—. Pero treinta y siete segundos contra Santi en la montaña no son nada. Lo sé. Él lo sabe.
+
 La brecha entre el tercero y el cuarto ya era, después de solo cinco etapas, suficientemente grande para que los comentaristas de Eurosport y los tres canales colombianos que cubrían el Tour empezaran a usar la misma frase, con variaciones: *"Esta ya es una carrera entre tres."*
 
 ---

@@ -237,6 +237,8 @@ Uno más en el kilómetro cinco.
 
 El gregario final de Yates se dio la vuelta en el kilómetro seis — había hecho su trabajo, había sacrificado su clasificación personal para llevar al líder hasta ese punto, y ahora el grupo era de seis: Yates, Froome, Pinot, Pozzovivo, López, Santi. Seis corredores en el Zoncolan, con cuatro kilómetros para la cima y el bosque cerrado a ambos lados de la carretera.
 
+Pozzovivo subía en la posición de siempre: encorvado sobre el manillar, los hombros estrechos hundidos hacia adentro, el cuerpo pequeño que en las rampas más duras del Zoncolan parecía cargar una bicicleta demasiado grande para él. A los treinta y seis años seguía ahí, en el sexto lugar del grupo de favoritos de un Giro de Italia, sin equipo capaz de pelear el GC a su nombre y sin necesidad aparente de que lo fuera. Subía como subía siempre: sin gesto de sufrimiento visible, sin mirar a los lados, con la cabeza baja y la mirada fija en el metro de asfalto que tenía delante de la rueda.
+
 Santi hizo su inventario.
 
 El sistema cardiovascular: alto pero sostenible. La respuesta muscular: clara, sin el retraso que precede al vaciamiento. El glucógeno: calculado — tenía para cuatro kilómetros de este ritmo. O para seis kilómetros si bajaba dos vatios.

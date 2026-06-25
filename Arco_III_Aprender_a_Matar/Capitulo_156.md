@@ -163,3 +163,27 @@ Santi no la vio escribir. La vio meses después, en otra circunstancia, en otra 
 *La casa tiene un níspero. No lo sembré yo. No lo sembró Carmen. Alguien que no conocemos hizo algo que ahora es nuestro. Eso es lo que el muchacho entendió antes que nosotros: que las cosas buenas casi nunca las siembra uno mismo.*
 
 El Valle de Aburrá abajo, las luces de los cerros, la última noche en el balcón viejo antes de que algunas cosas —pocas, las que importaban— empezaran a vivir en una dirección nueva.
+
+---
+
+Carmen no se durmió enseguida.
+
+Hernando sí —el sueño del hombre que ese día había cargado una llave nueva en el bolsillo durante seis horas sin soltarla ni una vez, y que al llegar a la cama la dejó por fin sobre la mesa de noche como quien deja un peso que ya cumplió su trabajo. Carmen lo escuchó respirar, parejo, hondo, y se quedó mirando el techo del apartamento que en unos meses iba a dejar de ser de ellos.
+
+Pensó en las escaleras.
+
+No las de la casa nueva, que todavía no había subido más de dos veces. Las otras —las que había subido durante treinta años, primero en el edificio de la familia Uribe en El Poblado, después en el de los Mejía en Laureles, después en tres edificios distintos de Belén que ya ni recordaba bien en qué orden, limpiando casas que no eran la suya, oyendo conversaciones de familias que no eran la suya, aprendiendo a querer matas en balcones que tampoco eran los suyos porque a alguien había que cuidarlas y a Carmen Cardona, desde niña, las plantas que nadie más quería cuidar se le entregaban solas, sin que ella las buscara.
+
+Nunca le había molestado el trabajo. Eso era lo que nadie entendía cuando le preguntaban, con esa lástima mal disimulada de la gente que cree que limpiar las escaleras de la casa de otro es necesariamente una humillación. No lo era. Era un oficio, como el de Hernando con los inventarios de la distribuidora, como el de Santi con la bicicleta. Lo que sí le había costado —lo que todavía, a los cuarenta y nueve años, en una cama nueva en un apartamento viejo, le apretaba el pecho un poco al pensarlo— era la cuenta exacta de cuántas tardes de las tardes de Santi de niño se le habían ido subiendo escaleras ajenas en vez de estar en la suya.
+
+No todas. Pero algunas. Las suficientes para que el número existiera.
+
+Nadie le había pedido perdón por eso, porque nadie tenía que pedírselo —ella había elegido ese trabajo con los ojos abiertos, sabiendo lo que costaba y lo que daba— pero la casa de hoy, con el níspero que no había sembrado nadie que conocieran, le devolvía algo que no esperaba que le devolvieran: la sensación de que esas tardes, sumadas todas, habían construido sin que ella lo supiera la posibilidad exacta de esta otra tarde.
+
+Eso era lo que Hernando no iba a escribir en el cuaderno, porque el cuaderno era de él y de Santi y de las carreras, y esto no era una carrera.
+
+Esto era de ella sola, por esta noche, antes de dormirse.
+
+Carmen cerró los ojos.
+
+Pensó en el patio de tierra, no baldosa, y en dónde iba a quedar la primera mata que llevara —no la más bonita, sino la más vieja, la que había sobrevivido quince años de balcón sin sol— y se durmió pensando en eso, en la tierra, en lo que por fin iba a poder sembrar en lugar de solo cuidar.

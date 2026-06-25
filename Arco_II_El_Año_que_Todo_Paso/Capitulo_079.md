@@ -1,10 +1,9 @@
 # POR LA GLORIA
 ## Arco II — El Año que Todo Pasó
-### Capítulo 79 — Giro II: San Marino (Etapas 5–9, 15–19 de mayo de 2019)
+### Capítulo 79 — Giro II: Carapaz (Etapas 5–8, 15–18 de mayo de 2019)
 
-*Giro de Italia 2019 — Etapas 5 a 9.*
-*Etapas 5-8 — jornadas de transición y sprint (Ewan gana dos), 140-239 km cada una.*
-*Etapa 9 (CRI) — Riccione → San Marino. 34,8 km. Primeros 12 km ondulados; subida final de 6 km al 8%. Roglič gana; Santi 10º, +1:38.*
+*Giro de Italia 2019 — Etapas 5 a 8.*
+*Jornadas de transición y sprint (Ewan gana dos), 140-239 km cada una. La contrarreloj de San Marino, al día siguiente, se narra en el capítulo 80.*
 
 ---
 
@@ -48,124 +47,20 @@ Broeckx lo miró.
 
 — Lo estudio.
 
-Broeckx no dijo nada más. Era, Santi pensó, la diferencia entre el primer Giro y el segundo: en el primer Giro estudiaba el territorio. En el segundo estudiaba a los otros.
+— ¿Qué hay para estudiar? Es un escalador más.
+
+Santi no respondió de inmediato. Pensó en el ataque del kilómetro cien — en la ausencia total de aviso, en la manera en que el ecuatoriano había subido la cadencia como quien cambia de marcha sin pensarlo, sin ese segundo de duda que casi todos los corredores tenían antes de comprometerse a un esfuerzo.
+
+— No ataca para ganar la etapa — dijo Santi finalmente—. Ataca para ver qué pasa. Es distinto.
+
+— ¿Y qué pasa?
+
+— Todavía nada. Por eso sigue probando.
+
+Broeckx no dijo nada más. Era, Santi pensó, la diferencia entre el primer Giro y el segundo: en el primer Giro estudiaba el territorio. En el segundo estudiaba a los otros. Carapaz era, de los nombres que Duchêne había proyectado en la pantalla blanca de Bolonia, el que menos se parecía a un dato y más a una pregunta sin terminar de formular — un corredor sudamericano, como él, que en cada ataque corto parecía estar buscando algo que todavía no sabía nombrar. Santi no se sentía cerca de él. No habían cruzado palabra en dos Giros. Pero había en esa distancia un reconocimiento que no necesitaba conversación: el mismo tipo de cuerpo construido en otra altitud, el mismo silencio de quien no tiene nada que demostrarle a un micrófono.
 
 ---
 
-La contrarreloj individual de la novena etapa recorrió treinta y cuatro kilómetros y ochocientos metros de Riccione a San Marino.
+El sábado llegó la contrarreloj de San Marino — la etapa que Ferretti había marcado en rojo desde enero, la que de verdad iba a mover la GC por primera vez en este Giro.
 
-No era el crono más largo de la historia del Giro. Era, sin embargo, el crono más importante de este Giro por lo que significaba en la GC: el momento donde los especialistas de la rueda aérea separaban lo que era posible de lo que no.
-
-Santi salió el décimo entre los candidatos de GC.
-
-Los primeros doce kilómetros eran ligeramente ondulados — el terreno de la Emilia-Romaña que entre el Adriático y los Apeninos tiene esa ondulación suave que en la carretera llana se siente como resistencia intermitente, como si el viento viniera de ningún lado específico pero estuviera siempre presente.
-
-Duchêne, por el pinganillo:
-
-— Roglič salió hace dieciocho minutos. Al kilómetro doce, cuatro minutos cuatro segundos. Está destruyendo el crono.
-
-Cuatro cero cuatro en el kilómetro doce. El ritmo de los especialistas en ese punto era cuatro doce. Roglič iba ocho segundos por delante del ritmo de referencia.
-
-Santi miró su propio tiempo en el ordenador del manillar: cuatro veintidós en el kilómetro doce.
-
-Dieciocho segundos por detrás de Roglič.
-
-Hizo el cálculo. A esa diferencia de ritmo, en los veintidós kilómetros restantes perdería otro minuto dieciséis, llevando la diferencia total a un minuto treinta y cuatro. Dentro del margen que Duchêne había proyectado. Ajustado, pero dentro.
-
-La subida final a San Marino: seis kilómetros al ocho por ciento, la carretera que sube en espiral hacia la roca donde la República de San Marino lleva siglos instalada como si las montañas fueran el único argumento válido para la independencia política.
-
-En la subida Santi recuperó.
-
-No con el sprint — con la progresión sostenida del escalador que en el crono ondulado pierde en los tramos planos lo que puede recuperar en las subidas. Cuatro kilómetros. Cinco. En el sexto, el arco de llegada con el cronómetro y las banderas de los doscientos países que tienen relaciones diplomáticas con San Marino, que en este primer sábado de mayo estaban completamente quietas porque tampoco había viento aquí.
-
-Cincuenta y tres minutos y treinta segundos.
-
-Décimo del día.
-
-Un minuto y treinta y ocho segundos por detrás de Roglič, que había ganado el crono con una autoridad que en las contrarrelojes de distancia media era simplemente su terreno natural.
-
-GC provisional de favoritos tras la novena etapa: Roglič primero entre los candidatos. Nibali segundo, a un minuto y cinco de Roglič. Santi tercero entre los candidatos GC, a un minuto y treinta y ocho de Roglič.
-
-La Maglia Rosa seguía en los hombros de Valerio Conti, el corredor del UAE que había sumado los minutos de la escapada de la sexta etapa y que ahora llevaba la camiseta rosa con la cara del hombre que sabe que lleva algo prestado y que en algún momento de la segunda semana alguien va a venir a cobrarlo.
-
----
-
-En el autobús, después del crono.
-
-Ferretti entró, se sentó, miró a Santi.
-
-— Un treinta y ocho — dijo.
-
-— Un treinta y ocho — confirmó Santi.
-
-— ¿Las piernas?
-
-— Al noventa y tres.
-
-Ferretti asintió. Un noventa y tres después de nueve etapas era exactamente donde tenía que estar. Si las piernas estaban al noventa y tres en la novena, estarían al noventa y cinco en la decimotercera.
-
-— Primer descanso mañana — dijo Ferretti —. El martes: la segunda semana. Cuatro etapas de transición y luego el Agnello.
-
-Santi miró por la ventana del autobús. El sol de la tarde caía sobre la roca de San Marino con esa luz de los sábados italianos de mayo que no es el sol vertical del mediodía sino la luz inclinada de las cinco que convierte las fachadas de piedra en algo entre el dorado y el ocre.
-
-— ¿Cuánto pensás que perdemos con Roglič en el Stelvio? — dijo Santi.
-
-Ferretti lo miró. Era una pregunta que no correspondía a la primera semana del Giro — era una pregunta de la tercera semana formulada desde la novena etapa.
-
-— Nada — dijo Ferretti —. En el Stelvio no perdés nada.
-
-Santi no respondió.
-
-Ferretti tampoco.
-
-Era, Santi entendió, la única respuesta posible: no una proyección sino una instrucción. Una instrucción disfrazada de predicción.
-
----
-
-*La noche del diecinueve de mayo, en Laureles:*
-
-Hernando y Carmen vieron el crono de San Marino en la repetición del canal deportivo. Carmen con el té. Hernando con el vaso de agua que el oncólogo había recomendado tomar con el analgésico de la noche — el cuerpo en el segundo ciclo pedía líquido de una manera que no pedía en los días normales, como si el tratamiento hubiera acelerado algo en el metabolismo que todavía no tenía nombre claro en el protocolo del médico Urquijo.
-
-En la pantalla: Roglič cruzando la línea de San Marino con el tiempo que destruía la tabla de referencia.
-
-Y luego, dieciocho minutos después: Santi.
-
-Un minuto y treinta y ocho segundos después que el esloveno.
-
-Carmen fue a decir algo y Hernando levantó una mano. No para callarla — para pedirle que esperara. Esperó él también, contando en silencio los segundos desde que Santi cruzó la línea hasta que el cronómetro congeló su tiempo en la pantalla.
-
-— Bien — dijo finalmente.
-
-Carmen lo miró.
-
-— Bien — repitió Hernando —. Un treinta y ocho en un crono de treinta y cuatro kilómetros y ochocientos metros con subida. La montaña va a compensar eso.
-
-— ¿Estás seguro?
-
-— Lo vi subir el primer puerto de su vida — dijo Hernando —. Sí. Estoy seguro.
-
-Carmen no dijo más.
-
-Hernando terminó el agua. Dejó el vaso en la mesa de noche. El televisor siguió con el análisis del crono — el presentador del canal citando los vatios de Roglič, los vatios de Nibali, los vatios de Santi en los sectores planos versus los sectores de subida.
-
-Hernando apagó el televisor antes de que terminara el análisis.
-
-Ya sabía lo que necesitaba saber.
-
----
-
-*Giro de Italia 2019 — Primera semana.*
-
-*Etapas 5–8: GC sin cambios. Maglia Rosa: Valerio Conti (UAE, escapada).*
-*GC tras E9 (favoritos):*
-*1º Roglič (SLO / Jumbo-Visma)*
-*2º Nibali (ITA / Bahrain-Merida) +1:05*
-*3º Santi (COL / FCV-Procycling) +1:38*
-*4º Carapaz (ECU / Movistar) +3:30*
-*Maglia Rosa: Valerio Conti (UAE)*
-
-*Etapa 9 (CRI San Marino): Roglič gana. Santi décimo, +1:38 de Roglič.*
-*Primer descanso: lunes 20 de mayo.*
-*La carrera empieza en la trece.*
-
----
+Esa, Santi lo sabía, no era una etapa para correr. Era una etapa para resolver.

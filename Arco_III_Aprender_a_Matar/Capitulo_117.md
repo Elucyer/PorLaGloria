@@ -20,7 +20,7 @@ Santi a la izquierda de Ferretti — el líder siempre junto al director, la pos
 
 **Simon Clarke** — el australiano de treinta y tres años de Melbourne. El corredor que en enero de dos mil dieciocho había enseñado a Santi los adoquines de Flandes, los descensos en asfalto mojado, la economía de movimiento que distingue al ciclista del norte del ciclista de montaña. El tercer Grand Tour que corrían juntos — después del Giro 2018 y del Giro 2019. Clarke que era el rouleur del equipo: las etapas de viento lateral, los echelones que los escaladores no podían hacer, los días de pavés donde aguantaba cuando los demás cedían, el relevo del tren en el Tour cuando Broeckx y Vidal ya habían dado todo. Clarke que en las reuniones de equipo tenía la costumbre de inclinarse hacia atrás con los brazos cruzados — la postura del veterano que ha escuchado suficientes reuniones como para saber cuáles partes son para él y cuáles son para los otros.
 
-**Jorge Vidal** — el español de veintiséis años de Vitoria-Gasteiz que en su primera temporada con el FCV-WorldTour era el fichaje de montaña del invierno. Vidal que en el Vuelta del año anterior había sido el gregario de los últimos cinco kilómetros del equipo del que provenía — el corredor que en la montaña sostenida tenía el nivel de los mejores auxiliares del pelotón y que Rusconi había identificado en los datos como el gregario que podía llevar a Santi hasta más arriba que cualquier otro del equipo. Silencioso en la reunión. La mirada en el portátil de Duchêne cuando Duchêne pasaba la pantalla.
+**Jorge Vidal** — el español de veintiséis años de Vitoria-Gasteiz que en su primera temporada con el FCV-WorldTour era el fichaje de montaña del invierno. Vidal que en el Vuelta del año anterior había sido el gregario de los últimos cinco kilómetros del equipo del que provenía — el corredor que en la montaña sostenida tenía el nivel de los mejores auxiliares del pelotón y que Rusconi había identificado en los datos como el gregario que podía llevar a Santi hasta más arriba que cualquier otro del equipo. Silencioso en la reunión. La mirada en el portátil de Duchêne cuando Duchêne pasaba la pantalla. Vidal que había firmado el contrato del FCV-WorldTour en diciembre, en la cocina de la casa de sus padres en Vitoria-Gasteiz, con la lluvia vasca golpeando la ventana y su padre — gregario amateur en los años ochenta, las piernas todavía marcadas por cuarenta años de bicicleta — leyendo la cláusula de calendario internacional dos veces antes de firmar él también, como testigo, como si la firma de un padre que nunca había salido del territorio nacional pudiera darle al contrato un peso que el papel por sí solo no tenía. Vidal que desde entonces medía cada mes del año en función de cuántas semanas le quedaban en Euskadi antes de la siguiente concentración, y que en agosto ya había hecho la cuenta: doce días en casa entre enero y agosto, frente a los noventa que solía tener en su equipo anterior, donde la montaña era un trabajo de unas pocas semanas al año y no la temporada entera.
 
 **Martín Echavarría** — el colombiano de veinticinco años de Manizales que era el segundo colombiano del FCV-WorldTour y que en el equipo tenía el rol del gregario que puede convertirse en el corredor secundario en montaña — el hombre que si Santi tiene un mal día puede subir entre los diez primeros y no perder demasiado tiempo. Echavarría que en la Strade Bianche del día anterior había sido el primero del equipo en ceder en el Monte Sante Marie — en el kilómetro dos, antes incluso que Clarke — y que en la reunión de la mañana tenía la cara del corredor que está procesando por qué el kilómetro dos le había costado lo que le costó.
 
@@ -45,6 +45,8 @@ No era sarcasmo. Era la pregunta genuina del australiano que quería entender el
 Santi: — Cuando la respiración del otro cambia de frecuencia.
 
 Clarke asintió — la asimilación rápida del veterano que ha escuchado suficientes respuestas para saber cuándo una es verdadera.
+
+— Pogačar hace lo mismo, pero lo dice en voz alta apenas termina la carrera — agregó Clarke. — Se lo escuché a un periodista esloveno después de una etapa: «vi que dudaba, así que ataqué». Sin estrategia de prensa, sin protegerse. — Pausa. — Roglič jamás diría eso. Roglič ni siquiera diría que dudó.
 
 — La crono de apertura — continuó Duchêne. — Santi: cuarto, a 28 segundos de Van Aert. En el Monte Sante Marie, ganó con 44 segundos sobre Pogačar. — Pausa. — El mismo patrón que en todas las carreras. La montaña da. La crono quita.
 
@@ -74,7 +76,7 @@ Ferretti: — Santi va al Tour. Si el Tour va bien, el Giro se decide después. 
 
 — Correcto — dijo Santi.
 
-Echavarría, desde el medio de la mesa: — ¿El Giro quién lo lidera si Santi no va?
+Echavarría, desde el medio de la mesa: — ¿El Giro quién lo lidera si Santi no va? — La pregunta del corredor que en Manizales, antes de salir para Europa la primera vez, le había prometido a su madre que en tres años iba a ser algo más que el segundo colombiano del equipo, el nombre que aparecía en las listas debajo del nombre de Santi, y que dos años después de esa promesa todavía estaba calculando cuánto le faltaba para cumplirla.
 
 Ferretti: — Todavía no hay decisión. El Giro sin Santi tiene otro planteamiento. — Pausa. — Hoy nos concentramos en el Tour.
 
@@ -98,6 +100,10 @@ Clarke: — Me parece bien. Aunque me alegra que Rensen esté para los echelones
 Rensen: — *Tak.*
 
 Risa corta alrededor de la mesa. No la risa del grupo que se relaja — la risa de los corredores que en la tensión de la víspera de tres semanas de trabajo usan el humor como el calibrador de la presión.
+
+— En Melbourne, a los veinte años, yo era de los rápidos — agregó Clarke, sin que nadie le preguntara, la mirada todavía en la pantalla. — Crit semanal, el sprint cada domingo. Tardé ocho años en Europa en entender que mi cuerpo nunca iba a sprintar contra nadie de este nivel, y otros tres en dejar de intentarlo. — Pausa. — El viento lateral fue lo que quedó cuando dejé de perseguir lo otro.
+
+Nadie respondió. No era el tipo de frase que pedía respuesta — era la clase de cosa que el australiano soltaba una vez por reunión, sin literatura, y que la mesa dejaba pasar sin comentar porque comentarla le habría quitado el peso.
 
 Broeckx miró a Santi. Santi no miraba la pantalla — miraba la mesa, el punto fijo que en las reuniones del equipo era el punto donde almacenaba lo que escuchaba.
 
@@ -149,11 +155,23 @@ Echavarría asintió.
 
 La respuesta correcta. No un no, no un sí — el posiblemente del director que deja la puerta abierta para el corredor que la puede merecer.
 
+Echavarría volvió a su silla con la cara del corredor que ha escuchado lo que necesitaba escuchar pero que todavía no sabe si lo que necesitaba escuchar es suficiente. El kilómetro dos de la Strade Bianche le pesaba más de lo que el resultado en la hoja de ruta decía que debía pesarle — no porque hubiera fallado, sino porque había fallado primero, antes que Clarke, antes que Broeckx, y en un equipo donde el orden de la caída se leía como un mapa de quién valía cuánto, ser el primero en ceder era la frase que se repetía sola, sin que nadie tuviera que decirla en voz alta.
+
 ---
 
 La reunión terminó cuarenta minutos después de empezar.
 
 Los corredores salieron en grupos. Clarke y Colombo hacia el desayuno tardío — el australiano y el italiano que en el equipo compartían la franja de edad de los veteranos y que en los desayunos de los días de reunión hablaban del ciclismo con la perspectiva de los que lo han visto suficiente como para no necesitar analizarlo todo.
+
+— Seis Tours — dijo Clarke, sirviéndose el café, más para sí mismo que para Colombo. — ¿Y todavía te pesa el primero?
+
+— El primero no — dijo Colombo. — El primero lo corrí sin saber lo que estaba corriendo. Pesa el tercero. El que terminé sin hacer nada, ni una etapa para el equipo, ni un día donde alguien se acordara que yo había estado ahí. — Untó el pan despacio, sin apuro. — Volví a Bérgamo esa Navidad y mi papá me preguntó cómo me había ido. Le dije "bien". Y él, que nunca subió a una bicicleta de carreras en su vida, me miró y me dijo: "Andrea, vos no sabés mentir." Tenía razón.
+
+— ¿Y ahora? — dijo Clarke.
+
+— Ahora ya no miento — dijo Colombo. — Ahora sé exactamente cuánto valgo en cada carrera, y me alcanza con saberlo yo.
+
+Arnheim salió último, solo, el cuaderno bajo el brazo. Al pasar junto a Santi se detuvo media fracción de segundo — lo suficiente para que Santi levantara la vista — y no dijo nada. Solo asintió, una vez, seco, y siguió caminando hacia el ascensor. Santi anotó después, en su propio cuaderno, que no sabía todavía qué significaba ese gesto, pero que algo en él pedía ser anotado igual.
 
 Broeckx se quedó al lado de Santi mientras Ferretti y Rusconi revisaban los datos con Duchêne.
 
@@ -191,11 +209,9 @@ Ferretti llamó al mediodía.
 
 No para el análisis de la carrera — eso ya había ocurrido en la reunión. La llamada del dos de agosto era para confirmar lo que la reunión había establecido en los términos oficiales del equipo: la decisión de Santi, en voz alta, para el registro.
 
-— El Giro — dijo Ferretti. — El Giro empieza el tres de octubre. Trece días después del final del Tour el veinte de septiembre.
+— El Giro — dijo Ferretti. — Empieza el tres de octubre. Trece días después del final del Tour, el veinte de septiembre.
 
-— El Giro — dijo Ferretti. — El Giro empieza el tres de octubre. Trece días después del final del Tour el veinte de septiembre.
-
-Santi lo sabía.
+Santi lo sabía. Lo había contado ya, en el avión, mirando el calendario en el teléfono mientras Niza se acercaba por la ventanilla.
 
 — El cuerpo — dijo Ferretti — si el Tour va bien, no va a tener trece días para recuperar el Giro. Los médicos dicen: el corredor que termina el Tour en el podio o peleando el podio necesita tres semanas mínimas de recuperación antes de empezar otro Grand Tour.
 
@@ -271,21 +287,23 @@ Ferretti en el plan:
 
 El plan en el cuaderno de Santi — el cuaderno del Tour de France que empezaba a llenarse con los datos del reconocimiento y el análisis y las notas del corredor que se prepara para la carrera más grande del año.
 
-Rusconi, en las sesiones de crono del bloque final:
+Rusconi llegó a la sesión de crono del bloque final con dos cronos marcadas en rojo en el calendario impreso, no en la pantalla — decía que el papel lo obligaba a pensar antes de hablar.
 
-— El Tour tiene la crono del día doce: veintisiete kilómetros de Sisteron a Orciéres-Merlette con veinte kilómetros de montaña al final. No es una crono plana — es una crono de montaña. Tu ventaja en montaña aplica.
+La primera, explicó sin que Santi preguntara, era la del día doce: veintisiete kilómetros de Sisteron a Orcières-Merlette, con veinte de montaña al final. No una crono plana — una crono de montaña, donde la ventaja de Santi sobre el cronómetro puro se sostenía.
 
-— ¿Y la segunda crono?
+La segunda era distinta, y ahí sí esperó la pregunta de Santi antes de seguir.
 
-— La Planche des Belles Filles. Kilómetro veinte del Tour: treinta y seis kilómetros, con el final en la montaña. La montaña final es al diecisiete por ciento. — Rusconi abrió el portátil. — En las cronos de montaña, la diferencia entre vos y los mejores especialistas del crono se reduce porque la pendiente favorece tu perfil de potencia. El problema sigue siendo el llano.
+— ¿Y la de La Planche?
 
-— ¿Cuánto pierdo en el llano de la Planche?
+— Kilómetro veinte del Tour. Treinta y seis kilómetros, final en montaña al diecisiete por ciento. — Rusconi giró el portátil sobre la mesa para que Santi viera las dos curvas superpuestas. — Ahí la diferencia con los especialistas se reduce, porque la pendiente favorece tu perfil. El problema sigue siendo el llano de los primeros veintiún kilómetros.
 
-— Contra Roglič, si está en el mejor día: cuarenta a cincuenta segundos en los primeros veintiún kilómetros. En los últimos quince de montaña, los recuperás todos y ganás treinta más.
+Santi miró la curva del llano, la pendiente suave que en el gráfico no parecía nada y que en la carretera real eran cuarenta, cincuenta segundos regalados a Roglič si el esloveno tenía el día perfecto. En los últimos quince kilómetros de montaña los recuperaría todos, y treinta más.
 
-— El balance neto es positivo.
+— Entonces el balance es a favor.
 
-— El balance neto es positivo — confirmó Rusconi — si llegás a la crono con la ventaja acumulada de las etapas de montaña. Si la diferencia con Roglič en la GC antes de la crono es de un minuto, ganás la crono por treinta segundos. Si la diferencia es de menos de cuarenta segundos, Roglič puede ganar el Tour en la crono.
+Rusconi tardó en responder, como si quisiera que la condición pesara tanto como la conclusión.
+
+— A favor si llegás a la crono con la ventaja acumulada en las etapas de montaña. Con un minuto de margen en la GC, ganás la crono por treinta segundos. Con menos de cuarenta, Roglič puede ganar el Tour ahí mismo.
 
 Santi anotó.
 

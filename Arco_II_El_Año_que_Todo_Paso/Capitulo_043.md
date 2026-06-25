@@ -124,7 +124,7 @@ Pedaló.
 
 El pelotón llegó al pie de la subida en el kilómetro ciento cuarenta y ocho y en ese momento, como en todas las llegadas en alto de los Grandes Tours, el ritmo cambió.
 
-No fue un ataque. Fue un estiramiento. La cuerda que siempre está tensa en los grupos de corredores y que en los primeros kilómetros de la subida empieza a ajustarse — el pelotón que se alarga, las posiciones que de pronto pesan, los equipos que llevan a sus líderes al frente con esa economía táctica de quien sabe que los próximos dieciséis kilómetros van a reescribir la clasificación general.
+No era todavía un ataque, sino un estiramiento — la cuerda que siempre está tensa en los grupos de corredores y que en los primeros kilómetros de la subida empieza a ajustarse — el pelotón que se alarga, las posiciones que de pronto pesan, los equipos que llevan a sus líderes al frente con esa economía táctica de quien sabe que los próximos dieciséis kilómetros van a reescribir la clasificación general.
 
 El Sky fue primero. Cuatro hombres de negro al frente, ritmo alto pero no máximo — el ritmo del equipo que controla, que impone la cadencia sin revelar todavía el nivel real de sus piernas. El ritmo del depredador que primero agota y después ataca.
 
@@ -144,7 +144,7 @@ Kilómetro ocho.
 
 El Mitchelton-Scott lanzó a Yates.
 
-No fue un ataque explosivo. Fue la aceleración del escalador que decide que el ritmo actual no es el suyo y que el suyo es más rápido. Yates salió del grupo con esa fluidez característica — sin brusquedad, como si simplemente hubiera encontrado otra marcha que el grupo no tenía. Veinte metros en diez segundos. Cuarenta metros. La diferencia que en la montaña se hace definitiva antes de que los demás acaben de procesar que hay una diferencia.
+No hubo explosión, solo la aceleración del escalador que decide que el ritmo actual no es el suyo y que el suyo es más rápido. Yates salió del grupo con esa fluidez característica — sin brusquedad, como si simplemente hubiera encontrado otra marcha que el grupo no tenía. Veinte metros en diez segundos. Cuarenta metros. La diferencia que en la montaña se hace definitiva antes de que los demás acaben de procesar que hay una diferencia.
 
 Chaves fue con él. Inmediato, sin dudar — los dos corredores del Mitchelton que se conocían tan bien que no necesitaban señales.
 
@@ -384,7 +384,7 @@ Luego llegó Yates. El inglés lo miró una vez — no con hostilidad, sino con 
 
 Luego llegó Froome.
 
-Froome no lo miró. Froome ya estaba hablando por el pinganillo con su equipo.
+Froome no lo miró. Froome ya estaba hablando por el pinganillo con su equipo — la voz baja, profesional, repasando algo sobre los tiempos parciales del día siguiente, como si el podio de etapa que tenía detrás fuera un dato más en una hoja de cálculo y no un volcán siciliano que acababa de escupir a un debutante de dieciocho años directo a la portada de todos los periódicos de Europa. No era desdén. Era la economía de un hombre que llevaba quince años en el pelotón y que había aprendido, mucho antes de que Santi naciera, que la energía que se gasta mirando a los rivales es energía que no se recupera para la etapa siguiente. Froome desmontó, le entregó la bicicleta al mecánico sin mirarla, y caminó hacia el autobús del Sky con la misma cadencia exacta con la que subía un puerto: ni un paso más rápido de lo necesario.
 
 Ferretti llegó en el coche cinco minutos después.
 
@@ -396,7 +396,7 @@ Solo eso.
 
 Santi asintió.
 
-Era suficiente. Era, en realidad, todo lo que hacía falta.
+Una palabra italiana y una mano en el hombro. No hacía falta nada más.
 
 ---
 

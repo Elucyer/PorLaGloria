@@ -192,6 +192,12 @@ Santi se quedó de pie con la bicicleta en la mano durante diez segundos sin dec
 
 Segundo. Por dos segundos. En veintiún días de Tour.
 
+A unos metros, todavía sin desmontar, Pogačar lo encontró con la mirada. No dijo nada de inmediato — apretó los labios, el gesto de quien busca la frase exacta en un idioma que no es el suyo y no quiere arruinarla — y cuando habló fue solo para Santi, sin que las cámaras llegaran a tiempo de captar el audio completo:
+
+— Two seconds —dijo, casi sin aire todavía—. I don't even feel like I won. Dos segundos. Ni siquiera siento que gané.
+
+Santi no respondió. Pogačar tampoco esperó respuesta — se dio la vuelta hacia su propio equipo con la sonrisa ya puesta, la misma que le salía ganara o casi perdiera, como si una parte de él disfrutara más el margen mínimo que una victoria cómoda.
+
 Ferretti llegó desde el coche del equipo.
 
 — Corregiste la proyección — dijo el director, en un tono que era a la vez el reconocimiento y la consternación. — Ibas a perder por dieciséis. Perdiste por dos.

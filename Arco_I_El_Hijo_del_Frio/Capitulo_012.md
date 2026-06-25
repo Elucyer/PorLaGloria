@@ -12,9 +12,9 @@ Santi fue con él en diciembre de 2015, después del entrenamiento del Boquerón
 
 Salieron un viernes por la tarde, por la carretera que sube hacia el norte desde Medellín, cruzando Bello y luego los municipios del norte de Antioquia que se van poniendo más fríos y más silenciosos a medida que la altitud sube. San José está a cincuenta y seis kilómetros de Medellín en línea recta pero la carretera es otra historia —curvas cerradas, tramos sin pavimentar en algunos sectores, y la niebla que va apareciendo a partir de los dos mil metros como si el pueblo mandara un mensajero a recibirlos.
 
-Llegaron de noche. La plaza principal de San José de la Montaña estaba iluminada con las luces de navidad que alguien había colgado entre las palmas y la iglesia, y el frío —ese frío que Santi había olvidado que era tan específico, tan distinto al frío de las mañanas en el Alto de Minas, más húmedo, más permanente, más honesto— le entró por el cuello del abrigo en cuanto bajó del carro.
+Llegaron de noche. La plaza principal de San José de la Montaña estaba iluminada con las luces de navidad que alguien había colgado entre las palmas y la iglesia, y el frío —ese frío que Santi había olvidado que era tan específico, tan distinto al frío de las mañanas en Santa Elena, más húmedo, más permanente, más honesto— le entró por el cuello del abrigo en cuanto bajó del carro.
 
-—Bienvenido —dijo su padre, con esa ironía suave que usaba para las cosas que en realidad eran serias.
+—Bienvenido —dijo su padre, alargando la palabra como hacía siempre que algo le importaba más de lo que iba a admitir.
 
 ---
 
@@ -82,13 +82,13 @@ Santi pensó.
 
 —Porque cuando alguien te ofrece algo, también te dan la posibilidad de perderlo. Y antes de que te lo ofrezcan no tenías nada que perder.
 
-Santi consideró esto.
+Santi consideró esto en la oscuridad, escuchando el viento golpear la lámina mal asegurada de algún techo cercano.
 
 —Pero si nunca aceptas nada por no perderlo, nunca llegas a ningún lado.
 
 —Ya lo sé —dijo Hernando—. Por eso te lo preguntaba. Quería saber si lo sabías tú también.
 
-Silencio.
+El silencio se quedó un rato largo, del tamaño justo para que ninguno de los dos tuviera que llenarlo.
 
 —¿Tú aceptaste cuando te ofrecieron el equipo? —dijo Santi.
 
@@ -122,14 +122,10 @@ Santi lo miró.
 
 —¿Incluyendo la última?
 
-Su padre no respondió de inmediato. Las luces de Medellín crecieron en el parabrisas.
+Su padre no respondió de inmediato. Las luces de Medellín crecieron en el parabrisas, anaranjadas contra el vidrio empañado por el aliento de los dos.
 
-—Incluyendo la última —dijo.
+—Incluyendo la última —dijo, sin apartar los ojos de la carretera.
 
-No dijeron más en todo el camino.
+No dijeron más en todo el camino. El motor y las curvas hicieron la conversación que les faltaba.
 
-Pero cuando llegaron al apartamento de Floresta y subieron las escaleras en silencio y su madre abrió la puerta y les preguntó cómo les había ido, y los dos dijeron bien al mismo tiempo, Santi vio que su padre lo miró de reojo con una expresión que no era orgullo exactamente sino algo más profundo: la expresión de un hombre que ve que el camino que él dejó a medias alguien más lo va a terminar.
-
-Y que ese alguien es su propio hijo.
-
-Y que eso es lo más cerca que puede estar de haberlo terminado él mismo.
+Cuando llegaron al apartamento de Floresta y subieron las escaleras en silencio, su madre abrió la puerta y les preguntó cómo les había ido. Los dos dijeron bien al mismo tiempo. Hernando se quedó un segundo de más en el umbral, mirando a su hijo subir el morral hasta el cuarto, antes de cerrar la puerta detrás de los dos.

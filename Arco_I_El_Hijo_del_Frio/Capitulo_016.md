@@ -10,7 +10,7 @@ Julián se enteró por el grupo de WhatsApp de padres del Salesiano, donde algui
 
 Julián imprimió la foto en la biblioteca del colegio antes de la primera hora.
 
-—Veinticinco pesos la hoja —dijo con el orgullo del agente de prensa no contratado—. La más cara del año.
+—Veinticinco pesos la hoja —dijo, estirando cada palabra con el orgullo del agente de prensa no contratado—. La más cara del año.
 
 Pegó la foto en el tablero de logros del pasillo del cuarto piso, debajo del campeonato departamental del año anterior que todavía estaba ahí porque nadie lo había quitado. Dos triunfos de Santi Reyes en el mismo tablero.
 
@@ -54,6 +54,44 @@ No porque fuera justa. Sino porque era la única que tenía, y reclamarla como i
 
 ---
 
+Lo descubrió por accidente, un martes de esa misma semana, cuando volvió del entrenamiento de noche más temprano de lo que su madre esperaba.
+
+La sala estaba en penumbra —solo la lámpara del rincón encendida— y Carmen estaba en la mesa del comedor con la máquina de coser portátil que había sido de su propia madre, rodeada de un cerro de pantalones de uniforme escolar: el verde y café del Salesiano, pero también el azul del INEM y el gris de un colegio que Santi no reconoció. Cosía bastas. Cambiaba botones. Remendaba bolsillos descosidos con una puntada tan pareja que parecía hecha a máquina industrial, no a pulso, a las nueve y media de la noche, con los anteojos de cerca que solo se ponía cuando estaba sola.
+
+Se quedó en el marco de la puerta sin que ella lo notara.
+
+—¿Desde cuándo? —dijo finalmente.
+
+Carmen no se sobresaltó. Levantó la vista, midió la pregunta, y siguió cosiendo.
+
+—Desde marzo —dijo—. La señora Patricia del cuarto piso le cuenta a las otras señoras del edificio. Cobro tres mil pesos por arreglo. Algunas semanas son quince arreglos.
+
+—¿Por qué no me dijo?
+
+—Porque no es asunto suyo.
+
+—Es mi uniforme el que no compré nuevo.
+
+Carmen cortó un hilo con los dientes, gesto rápido, casi violento, que contradecía la calma de su voz.
+
+—Su uniforme lo compré nuevo. Lo que no compré nuevo fue lo mío. —Señaló con la cabeza hacia su propio cuarto, hacia unos zapatos que Santi llevaba meses viendo sin verlos de verdad: la suela despegándose en la punta, pegada de nuevo con el mismo pegante industrial que él usaba en las zapatillas de ciclismo—. Y no se lo cuento porque usted ya carga suficiente con lo suyo. No necesita cargar con esto también.
+
+—Eso no es justo.
+
+—Nada de esto es justo, Santi. —Lo dijo sin dramatismo, como quien repite un hecho del clima—. Pero la injusticia no se resuelve contándola. Se resuelve cosiendo el siguiente bolsillo.
+
+Volvió a la máquina. El motor pequeño zumbó en la sala en penumbra, y la aguja entró y salió de la tela con esa regularidad hipnótica de quien ha hecho el mismo movimiento diez mil veces. Olía a hilo quemado por el roce de la aguja y a café frío en una taza que llevaba horas en la mesa, sin que ella se acordara de tomárselo.
+
+Santi se quedó un momento más en el marco de la puerta.
+
+Luego se sentó al otro lado de la mesa, sin decir nada, y empezó a separar los pantalones por colegio mientras ella cosía, porque no sabía coser pero sí sabía clasificar, y porque quedarse ahí, en silencio, haciendo lo único que podía hacer, era lo más cerca que iba a estar esa noche de pagarle algo de lo que le debía.
+
+Carmen no le agradeció el gesto. Tampoco le pidió que se fuera.
+
+Cosieron juntos hasta las once.
+
+---
+
 La segunda semana de agosto, Ospina llamó a una reunión extraordinaria.
 
 No los lunes —ese era el horario habitual— sino un miércoles, a las cuatro de la tarde, en la oficina detrás del taller. Santi llegó antes de tiempo, como siempre, y Ospina ya estaba con el tinto servido y la libreta abierta.
@@ -79,6 +117,8 @@ Ospina tomó el tinto.
 Santi procesó eso.
 
 —¿Qué decisión?
+
+Ospina giró el pocillo en la mesa, despacio, antes de contestar, como si necesitara ese segundo para ordenar la frase.
 
 —Esa todavía no me la dijeron. Pero cuando un equipo quiere más datos de un corredor que acaba de ganar su carrera más importante de la temporada, la decisión que están evaluando no es si seguir o no seguir. Es cuánto más lejos pueden llegar juntos.
 
@@ -128,7 +168,7 @@ Rodrigo lo dejó hablar durante un rato, como siempre, sin interrumpir cuando no
 
 —¿En San José saben? —preguntó Santi.
 
-—Que si saben. Doña Carmen Restrepo lo puso en la cartelera de la iglesia. Tu nombre y el título. La gente del pueblo pregunta por vos.
+—Que si saben. Doña Lucía Restrepo lo puso en la cartelera de la iglesia. Tu nombre y el título. La gente del pueblo pregunta por vos.
 
 Santi se rió.
 
@@ -138,6 +178,6 @@ Santi se rió.
 
 —Decile que lo quite.
 
-—Decíselo vos —dijo Rodrigo—. Yo no le voy a decir nada a doña Carmen sobre qué poner en la cartelera.
+—Decíselo vos —dijo Rodrigo—. Yo no le voy a decir nada a doña Lucía sobre qué poner en la cartelera.
 
-Y los dos se rieron, y afuera el cerro de Floresta estaba oscuro, y la ciudad seguía con su vida de ciudad, indiferente y perfecta, abajo.
+Y los dos se rieron, y afuera el cerro de Floresta estaba oscuro, y la ciudad seguía con su vida de ciudad, indiferente y perfecta, abajo, con las luces de los edificios encendiéndose una por una como si alguien las fuera contando.

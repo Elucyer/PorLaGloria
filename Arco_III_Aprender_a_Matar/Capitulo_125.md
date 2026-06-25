@@ -17,7 +17,7 @@ Ferretti con el tablet. Los ocho corredores en la mesa.
 
 — El Grand Colombier — dijo Ferretti — es el primer puerto largo de los Alpes. Diecisiete coma siete kilómetros al siete y medio. Los lacets en los kilómetros siete al once — las curvas en horquilla donde el ciclismo se ve desde el helicóptero y se siente desde las piernas de manera completamente diferente. — Pausa. — El objetivo de hoy no es ganar la etapa. Es confirmar el nivel para el Loze.
 
-Nadie dijo nada.
+Las tazas de café quietas sobre la mesa, el vapor subiendo despacio en el aire frío del comedor.
 
 Era el briefing más corto del Tour — porque todos en la mesa sabían que en los Alpes, el briefing de la mañana era la recapitulación de lo que los cuerpos ya sabían.
 
@@ -249,13 +249,21 @@ El periodista de France 2:
 
 — Pogačar, segundo en el Colombier, seis segundos. ¿Podés ganar el Tour?
 
-Pogačar: — Falta el Loze.
+Pogačar apretó los labios un segundo, el gesto de quien busca la palabra exacta en una lengua que no es la suya antes de soltarla en inglés con el acento esloveno marcado en cada vocal.
+
+— Falta el Loze.
+
+Y entonces, sin que nadie le preguntara nada gracioso, sin que hubiera nada gracioso que decir a veintinueve segundos de Roglič y a seis de la victoria de etapa, le salió la sonrisa — la misma sonrisa rápida, casi de niño, que en el pelotón ya empezaban a reconocerle: aparecía igual cuando ganaba que cuando estaba a punto de perder, como si el cuerpo no supiera fingir solemnidad ni en la derrota ni en la espera.
 
 El periodista de *Sporza*:
 
 — Roglič, veintinueve segundos en el Colombier. Primera vez que cedés tiempo significativo en montaña. ¿Preocupado?
 
 Roglič, con la economía de siempre: — El Tour no termina en el Colombier.
+
+El periodista insistió: — Pero veintinueve segundos es mucho.
+
+Roglič no respondió con palabras. Levantó el ciclocomputador que todavía llevaba en la mano — el mecánico no había alcanzado a quitárselo de la bicicleta — y lo miró un segundo, como si la cifra que importaba estuviera ahí y no en lo que el periodista quería que dijera. Después se lo entregó al mecánico y caminó hacia el autobús sin decir más.
 
 Era la respuesta de los tres que en la zona mixta del Grand Colombier decían lo mismo con palabras diferentes: que el Grand Colombier no era el final de nada, que el Grand Colombier era la primera carnicería de los Alpes y que las carnicerías que seguían eran distintas.
 
@@ -291,9 +299,9 @@ Rusconi:
 
 Santi lo miró.
 
-— Lo sé — dijo.
+— Lo sé.
 
-Dejó el cuaderno en la mesa.
+Dejó el cuaderno en la mesa, las manos quietas un momento sobre la tapa antes de cerrarla.
 
 Era la verdad del Grand Colombier que los números de Rusconi confirmaban: que el Tour 2020 tenía un corredor que en el kilómetro final de los puertos respondía con la velocidad que los otros dos no podían igualar.
 

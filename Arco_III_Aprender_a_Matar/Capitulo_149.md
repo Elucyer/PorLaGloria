@@ -4,7 +4,7 @@
 
 ---
 
-La bicicleta llegó al apartamento de Laureles el martes dieciocho de noviembre.
+La bicicleta llegó al apartamento de Laureles el miércoles nueve de diciembre.
 
 No una bicicleta de carrera profesional — Santi lo había pensado desde el día en que el Dr. Restrepo había dicho *bicicleta: sí*. La bicicleta de carrera profesional era el instrumento del corredor que compite, el que en el Tour de France lleva los vatímetros y los sensores y el cuadro de carbono que pesa 6,8 kilogramos exactos porque el reglamento de la UCI no permite menos.
 
@@ -16,11 +16,9 @@ El color: azul marino.
 
 No el azul del FCV-WorldTour — el azul oscuro, casi negro, que en la luz de la mañana tenía un reflejo que cambiaba dependiendo del ángulo.
 
-Santi la había pedido en octubre, desde Bélgica, a través de Duarte. Había llegado el día siguiente a la cita del Pablo Tobón.
+Santi la había pedido en octubre, desde Bélgica, a través de Duarte, apenas salió del consultorio del Dr. Restrepo con la noticia de la remisión completa.
 
-Duarte había coordinado con el distribuidor de Specialized en Medellín.
-
-Llegó en diciembre.
+Duarte había coordinado con el distribuidor de Specialized en Medellín. El pedido tardó tres semanas en llegar.
 
 ---
 
@@ -388,11 +386,7 @@ El padre que en el cuaderno llevaba los datos del hijo desde 2014 y que en novie
 
 Una sola palabra. La misma que Hernando le había dicho a él cientos de veces con el mismo peso exacto.
 
-Hernando lo miró.
-
-La sonrisa mínima de nuevo — la que en él era el gesto máximo.
-
-— Bien — dijo Hernando.
+Hernando no respondió con la palabra esta vez. Dejó salir la sonrisa mínima —la que en él era el gesto máximo— y eso bastó.
 
 Se quedaron en el balcón otro rato sin hablar.
 

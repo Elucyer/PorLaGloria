@@ -56,9 +56,9 @@ Julián: — ¿Cómo así?
 
 Egan: — Lo que describe Santi es la certeza del corredor que sabe que tiene más físicamente. Yo en Val d'Isère no tenía certeza de tener más físicamente — tenía certeza de que en ese momento iba a dar más. Es diferente. La certeza de Santi es una certeza matemática. La mía fue una decisión.
 
-Silencio.
+Nadie habló. Se oyó, lejos, una olla sobre la estufa en la casa de Zipaquirá, y la voz de la madre de Egan diciendo algo que el micrófono no alcanzó a recoger entero.
 
-Julián escribía. Se le oyó la lapicera.
+Julián escribía. Se le oyó la lapicera rayando el cuaderno, el trazo rápido de quien quiere anotar antes de que se le escape la frase exacta.
 
 Santi: — ¿Y si el cuerpo no hubiera respondido?
 
@@ -82,7 +82,7 @@ Egan: — Eso es porque vos sos más seguro de lo que yo era a tu edad. Yo tení
 
 Julián: — ¿Eso es experiencia o es otro tipo de corredor?
 
-Silencio largo. Fue Egan quien respondió.
+El silencio se estiró tanto que Julián estuvo a punto de repetir la pregunta. Fue Egan quien respondió primero.
 
 — Son los dos — dijo Egan. — Santi tiene algo que yo no tenía a su edad. Que tampoco tenía Nairo. Lo que tiene Santi es que cuando sube, no parece que le cueste. No sé cómo explicarlo diferente.
 
@@ -118,13 +118,11 @@ Julián: — ¿Qué?
 
 Egan: — Que hay carreras que ya no son por ganar. Son por otra cosa. Y en esas carreras el cuerpo da cosas que en las otras no da.
 
-Silencio.
-
-Santi no respondió.
+Santi miró el micrófono como si fuera a decir algo y después no dijo nada. Movió la mandíbula, apretó los labios, y se quedó así, con la mirada fija en la pantalla apagada del computador.
 
 No porque no supiera la respuesta. Porque la respuesta era verdad y la verdad de esa clase no se confirma en voz alta — se deja estar.
 
-Julián dejó el silencio correr durante doce segundos.
+Julián dejó correr doce segundos sin decir nada, los dedos quietos sobre el teclado.
 
 Después dijo: — Egan, gracias.
 

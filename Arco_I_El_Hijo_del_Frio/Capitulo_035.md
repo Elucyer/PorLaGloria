@@ -22,7 +22,7 @@ En los primeros veinte kilómetros, el cuerpo todavía se estaba encendiendo. No
 
 A los veinticinco kilómetros el cambio era perceptible. Las piernas funcionaban como un sistema coherente. La potencia llegaba con facilidad a doscientos cuarenta vatios sin que el corazón tuviera que trabajar a más de ciento cuarenta y cinco pulsaciones. Eso era la zona dos de entrenamiento: el motor largo, el que se construía kilómetro a kilómetro en los días lentos y que aparecía en las etapas largas cuando todos los demás habían gastado lo que tenían.
 
-Santi había aprendido que Clarke era un hombre de silencios funcionales —no incómodos, no hostiles, sino simplemente el silencio de alguien que no habla cuando no tiene nada que decir y que cuando habla dice algo que vale la pena escuchar. En las reuniones de equipo Clarke tomaba notas y preguntaba una o dos cosas al final, precisas y técnicas. En los entrenamientos pedaleaba con esa regularidad de máquina bien calibrada que Santi había empezado a estudiar como se estudia una técnica que no se domina.
+Santi había aprendido que Clarke era un hombre de silencios funcionales —no incómodos, no hostiles, sino simplemente el silencio de alguien que no habla cuando no tiene nada que decir. Cuando hablaba, lo hacía despacio, como verificando cada frase antes de soltarla, sin la prisa con que Tom atropellaba las suyas. En los entrenamientos pedaleaba con esa regularidad de máquina bien calibrada que Santi había empezado a estudiar como se estudia una técnica que no se domina.
 
 A los sesenta kilómetros pararon en un café de carretera.
 
@@ -70,9 +70,9 @@ Clarke le preguntó al hombre.
 
 —*'t Wielerke* —respondió el hombre sin levantar la vista de los vasos. *El Ciclista*, en flamenco diminutivo.
 
-Santi lo anotó en la libreta que llevaba en el bolsillo trasero del jersey. No sabía exactamente para qué. Para recordarlo, quizás. Para tener el nombre de algo que en ese momento era simplemente un lugar donde el cuerpo se cargaba antes de los cuarenta kilómetros que faltaban, pero que con el tiempo podría convertirse en otra cosa.
+Santi lo anotó en la libreta que llevaba en el bolsillo trasero del jersey, con el bolígrafo casi sin tinta por el frío. No sabía exactamente para qué. Para recordarlo, quizás.
 
-Santi bebió el agua. El calor de la estufa le llegaba desde la esquina con esa agresividad agradable de las cosas calientes cuando el cuerpo lleva horas bajo el frío.
+Santi bebió el agua, sintiendo cómo le bajaba fría hasta el estómago mientras la cara seguía ardiendo del calor de la estufa.
 
 —¿Cómo fue tu primer Giro? —preguntó.
 
@@ -166,13 +166,11 @@ Santi lo miró.
 
 —En el Giro, cuando llegues al Stelvio —en la tercera semana, cuando ya no queda nada fácil—, acordate de esto. —Señaló la carretera que habían dejado atrás, la llanura gris de Flandes, los campos vacíos—. Acordate que subiste esto en febrero. Que el frío y la lluvia y los adoquines y todo lo que fue incómodo ya lo tenés en las piernas. El Stelvio es solo una subida. Larga, alta, difícil. Pero solo una subida.
 
-Santi miró la carretera.
+Santi miró la carretera, la línea gris perdiéndose entre los campos vacíos, y por un momento no dijo nada.
 
-Solo una subida.
+—Gracias —dijo, al fin.
 
-—Gracias —dijo.
-
-Clarke levantó una mano y entró al cuartel.
+Clarke levantó una mano, sin darse la vuelta del todo, y entró al cuartel dejando un rastro de agua en el piso del pasillo.
 
 ---
 
@@ -248,12 +246,10 @@ Escribió: *200 km. Frío. Clarke tiene razón sobre el Stelvio. El Stelvio es s
 
 Tomó el café. El sabor no era el de Medellín —era café belga, más ácido, menos redondo— pero era café, y en ese momento era suficiente.
 
-Cerró la libreta. Se fue a dormir.
+Cerró la libreta y apagó la luz de la cocina. Por la ventana, las ventanas del bloque de enfrente se iban apagando una a una, como si todo Waregem se durmiera al mismo tiempo que él.
 
 El Stelvio.
 
 Dos mil setecientos cincuenta y ocho metros. Veinticuatro kilómetros de subida desde Bormio. Lo tenía marcado en el calendario como lo que era: la etapa que definiría su primera Grand Tour.
 
-No sabía todavía todo lo que el Stelvio le iba a pedir.
-
-Entró al cuartel.
+Afuera, la lluvia de Flandes seguía cayendo sobre una bicicleta que ya sabía leer los adoquines. Santi apagó la luz sin saber todavía todo lo que el Stelvio le iba a pedir.

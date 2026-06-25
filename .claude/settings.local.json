@@ -25,7 +25,14 @@
       "Bash(sed -i 's/Montmeló/Sion/g' Capitulo_202.md)",
       "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/Arco_IV_El_Reinado_Incompleto/**)",
       "Bash(cd \"/c/Users/Usuario/Documents/Proyectos/PorLaGloria\" && grep -n \"Arco V\\\\|La Cosecha\" BIBLIA_PorLaGloria.md | head -50)",
-      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/**)"
+      "Read(//c/c/Users/Usuario/Documents/Proyectos/PorLaGloria/**)",
+      "Bash(grep -l \"Clarke\" Capitulo_*.md)",
+      "Bash(grep -l \"Colombo\" Capitulo_*.md)",
+      "Read(//tmp/**)",
+      "Bash(sort -t: -k3)",
+      "Bash(uniq -c -f2)",
+      "Bash(git stash *)",
+      "Bash(git checkout *)"
     ]
   }
 }

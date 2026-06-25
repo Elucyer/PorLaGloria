@@ -10,9 +10,7 @@
 
 *El maillot amarillo no estaba en la maleta de cabina — estaba en la maleta de bodega, doblado en el mismo papel de seda con el que lo había guardado Rusconi en el hotel de París la noche de los Campos Elíseos. Rusconi con el papel de seda y el gesto del hombre que sabe que lo que está doblando no es tela amarilla sino algo que en el ciclismo tarda años en llegar y a veces no llega.*
 
-*Santi había mirado el proceso desde la puerta del armario.*
-
-*No dijo nada.*
+*Santi había mirado el proceso desde la puerta del armario, los brazos cruzados, sin acercarse.*
 
 ---
 
@@ -44,9 +42,7 @@ A la salida del túnel, Medellín apareció abajo.
 
 El Valle de Aburrá a las ocho y cuarto de la mañana de septiembre — la ciudad que desde arriba mostraba el mismo perfil de siempre: las laderas, las comunas, el río Medellín al centro, los edificios del Poblado y Laureles, las montañas cerrando el horizonte en todos los lados.
 
-Santi lo miró.
-
-No dijo nada.
+Santi lo miró, la frente apoyada un momento contra el vidrio frío de la ventanilla.
 
 Duarte lo dejó mirar.
 
@@ -54,9 +50,7 @@ En el kilómetro veinte, cuando la autopista Sur los metía en el flujo de la ci
 
 — Esta semana descansás. La semana que viene hablamos de lo que viene.
 
-— Bien — dijo Santi.
-
-Y no dijo más.
+Santi miró el túnel pasar por la ventanilla, las luces amarillas marcando el ritmo, y no dijo más.
 
 ---
 
@@ -74,11 +68,7 @@ La madre con la bata de la mañana y la mascarilla puesta — el protocolo que e
 
 Carmen lo miró.
 
-Bajó la mascarilla.
-
-No dijo nada.
-
-Lo abrazó.
+Bajó la mascarilla y lo abrazó directamente, sin pasar por ninguna palabra.
 
 Santi la dejó abrazar. Los brazos de Carmen que en veinte años de ciclismo lo habían abrazado en las llegadas y en las salidas y en los momentos intermedios que no tenían nombre — el abrazo de la madre que no sabe de vatios ni de modelos de crono ni de tiempos de respuesta en los ataques pero que sabe exactamente cuándo el cuerpo del hijo que abraza llegó de lejos y llegó entero.
 
@@ -94,23 +84,19 @@ Hernando estaba en la silla del balcón con el cuaderno cerrado sobre las rodill
 
 La mañana de Laureles desde el balcón del cuarto piso — el parque abajo, los árboles que en septiembre tenían el verde oscuro de la temporada de lluvias, el ruido de la calle que a esa hora era el ruido del bus y el taxi y la moto que en Medellín a las nueve de la mañana era el ruido de siempre.
 
-Hernando lo escuchó llegar desde el pasillo.
+Hernando lo escuchó llegar desde el pasillo y no se giró — los ojos fijos en el parque, en los dos niños que a esa hora ya habían sacado el balón a pesar de la humedad de la madrugada.
 
-No se giró.
+Santi se sentó en la otra silla, la de siempre, la del lado derecho.
 
-Santi salió al balcón y se sentó en la otra silla — la silla de siempre, la del lado derecho, la que desde el balcón daba al costado del parque donde los sábados jugaban los niños del barrio.
-
-Silencio.
-
-El silencio de los dos en el balcón del cuarto piso de Laureles a las nueve de la mañana del veintidós de septiembre de 2020, tres días después de que Santi hubiera ganado el Tour de France con catorce segundos sobre Roglič.
+El vapor del café de Hernando subía recto en el aire quieto de la mañana y se deshacía antes de llegar a la altura de su cara. Ese vapor, y el ruido lejano de un camión de la basura dos cuadras más allá, fueron lo único que se movió durante un rato largo.
 
 No el análisis — eso ya estaba en el cuaderno. No los números — esos ya los habían hablado por teléfono en la noche del Col de la Loze y en la noche de La Planche.
 
-El silencio de los dos que en veinte años de ciclismo habían construido un idioma que no necesitaba la palabra para decir lo que el balcón ya decía solo: que el hijo había vuelto, que el padre estaba aquí, que el Valle de Aburrá a las nueve de la mañana de septiembre seguía siendo el mismo de siempre.
+Veinte años de ciclismo habían construido entre los dos un idioma que no necesitaba la palabra para decir lo que el balcón ya decía solo: que el hijo había vuelto, que el padre estaba aquí, que el Valle de Aburrá a las nueve de la mañana de septiembre seguía siendo el mismo de siempre.
 
-Hernando le extendió el café.
+Hernando le extendió su propia taza sin decir nada, el asa todavía caliente de la mano que la había sostenido.
 
-Santi lo tomó.
+Santi la tomó y bebió del mismo borde.
 
 — ¿Cómo están las piernas? — dijo Hernando.
 
@@ -140,7 +126,7 @@ Hernando lo abrió. La última página — la misma que Santi tenía en su cuade
 
 Cerraron los dos sus cuadernos al mismo tiempo sin haberlo coordinado.
 
-Carmen los miró desde adentro a través del vidrio de la puerta del balcón. No dijo nada. Se fue hacia la cocina.
+Carmen los miró desde adentro a través del vidrio de la puerta del balcón, las dos tazas vacías ya en la mano, y se fue hacia la cocina.
 
 El café de la mañana de Laureles.
 
@@ -212,9 +198,7 @@ Hernando entró desde el balcón.
 
 Se detuvo en la puerta del comedor.
 
-Miró la bicicleta.
-
-No dijo nada durante diez segundos.
+Miró la bicicleta diez segundos largos, las manos todavía a los costados.
 
 Después se acercó. Las manos del corredor que en cuarenta años de ciclismo había tocado docenas de bicicletas y que en esas manos llevaba el conocimiento táctil del cuadro que no se aprende en ningún libro — las manos que recorrieron el tubo superior, el tubo del sillín, la unión de la horquilla con el cuadro donde el carbono de competición tiene una rigidez diferente al carbono de entrenamiento.
 

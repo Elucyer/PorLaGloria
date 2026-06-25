@@ -219,9 +219,13 @@ No esperó el análisis — el cuerpo ya había analizado y la respuesta era ir.
 
 Nibali, detrás, no pudo seguir el ritmo de los dos.
 
+No fue derrota en la cara del siciliano — fue otra cosa, algo más cercano al reconocimiento de quien lleva treinta y cuatro años de cuerpo y sabe exactamente cuándo el cuerpo ya dio lo que tenía para dar ese día. Miró las dos espaldas alejándose — el colombiano y el ecuatoriano, los dos con menos de la mitad de sus años en el pelotón profesional— y no apretó los dientes ni se levantó del sillín buscando un último vatio que no estaba. Se acomodó en el ritmo que podía sostener. Había ganado tres Giros distintos en tres décadas distintas del deporte; sabía, mejor que nadie en esa carretera, que perder seiscientos metros contra los que venían después no era el final de nada — era simplemente lo que pasaba, tarde o temprano, en cualquier carrera lo bastante larga.
+
 Kilómetro nueve: Santi y Carapaz juntos.
 
 Doscientos metros donde los dos subían al mismo ritmo, la diferencia en cero, los dos sabiendo que en el kilómetro siguiente uno de los dos iba a tener algo que el otro no tenía.
+
+En esos doscientos metros, Carapaz giró la cabeza una sola vez —la única vez en todo el ataque— y miró a Santi. No fue un gesto de provocación ni de súplica. Fue, si acaso, una pregunta breve hecha sin palabras entre dos corredores que todavía no se conocían pero que reconocían en el otro algo del mismo origen: la altitud en la sangre, el mismo tipo de infancia hecha de subir cosas. Santi no le devolvió la mirada. Tenía los ojos en la carretera, en el metro siguiente, en nada que no fuera el siguiente metro.
 
 Kilómetro diez: Santi subió el ritmo un grado más.
 
@@ -305,7 +309,7 @@ El kilómetro diez. Cuando Santi había subido el ritmo un grado más y Carapaz 
 
 — Bien.
 
-Y colgaron.
+No hubo más que decir esa noche.
 
 ---
 

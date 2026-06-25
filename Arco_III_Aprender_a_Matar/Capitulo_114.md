@@ -74,15 +74,11 @@ Hernando tomó el café.
 
 La frase que desde octubre de dos mil dieciocho había sido la frase del horizonte — el punto adonde el doctor Gustavo miraba cuando describía el mejor escenario posible, la frase que había sido *controlada* y luego *parcial* y luego *avanzando* y que en el control de mayo de dos mil veinte era por fin la frase completa, la frase que no tenía adverbio modificador, solo el adjetivo que lo decía todo.
 
-Remisión.
+Remisión completa.
 
-Completa.
+Santi puso la taza en la mesa del balcón con un cuidado exagerado, como si el sonido de la cerámica pudiera deshacer la frase que acababa de escuchar. Se quedó mirando el borde de la taza, la marca del café seco en la porcelana.
 
-Santi puso la taza en la mesa del balcón.
-
-No dijo nada.
-
-Tampoco Hernando.
+Hernando tampoco dijo nada. Se frotó las manos una contra la otra, despacio, el gesto de un hombre que necesita hacer algo con las manos cuando las palabras ya no alcanzan.
 
 El parque abajo, la lluvia sobre el Valle de Aburrá, el sonido de la ciudad que existía independiente de lo que ocurriera en el cuarto piso del edificio de Laureles.
 
@@ -188,7 +184,9 @@ Santi: — La ausencia de la hoja.
 
 Pausa.
 
-Pogačar: — Bien. Lo tendré en cuenta.
+Pogačar apretó los labios un instante — el gesto que en los meses siguientes Julián aprendería a identificar en el video de cada episodio: la pausa corta que el esloveno se daba cuando hablaba en inglés y buscaba la palabra exacta en lugar de la palabra aproximada, como si decir cualquier cosa fuera peor que tardar un segundo más en decir la cosa correcta.
+
+— Bien. Lo tendré en cuenta.
 
 Julián, al fondo: — ¿Lo tendrá en cuenta para qué?
 
@@ -222,10 +220,10 @@ Hernando lo miró.
 
 Era la respuesta de Hernando que era también el retrato de Hernando: el hombre que en el balcón de Laureles dibujaba el perfil del Tour de France semana tres antes de que empezara, que conocía cada etapa, cada puerto, cada cronómetro, con la misma exactitud con que había conocido el perfil del Alto de Minas el día que enseñó a su hijo de doce años que una bicicleta de segunda mano sube igual que una nueva si quien la lleva sabe lo que hace.
 
-Santi tomó el café.
+Santi tomó el café y se quedó viendo cómo su padre pasaba la mano por la página todavía en blanco de la semana tres, alisándola sin necesidad, como si el papel pudiera arrugarse solo de pensar en lo que faltaba dibujar ahí.
 
-El Valle de Aburrá abajo. La ciudad. Los cerros. La lluvia que se acercaba desde el oriente.
+El Valle de Aburrá abajo. La ciudad. Los cerros. La lluvia que se acercaba desde el oriente, todavía lejos, una cortina gris que tardaría una hora en llegar al barrio.
 
-El Tour en doce días.
+¿Cuántas páginas más iba a llenar ese cuaderno antes de que alguno de los dos dejara de necesitarlo?
 
 ---

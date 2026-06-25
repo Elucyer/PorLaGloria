@@ -64,6 +64,8 @@ Santi pensó en su propio padre diciendo algo parecido en otras palabras.
 
 —Sí.
 
+Cortó sin despedirse, como hacía siempre, y Santi se quedó con el teléfono todavía pegado a la oreja un par de segundos, escuchando el silencio donde antes había una voz.
+
 ---
 
 Después de colgar, Santi se quedó sentado en la silla del escritorio durante un rato sin hacer nada.
@@ -80,11 +82,7 @@ Pensó en la distancia.
 
 Medellín y San José eran dos horas. La distancia real era otra: era la distancia que se había abierto entre dos personas que crecieron en el mismo lugar y eligieron —o fueron elegidas por— dos carreteras distintas. Rodrigo en San José, con el negocio del padre y el pueblo y el peso de las cosas que no se pueden dejar. Santi en Medellín, con el Porvenir en agosto y el perfil del Puerto de Boyacá en el computador y los cuatro meses que le quedaban para convertirse en alguien que pudiera ganarle a Arroyave.
 
-Las dos cosas eran reales.
-
-Las dos cosas importaban.
-
-Pero solo una era urgente en este momento, y esa no era la suya.
+Las dos cosas eran reales. Las dos importaban. Pero esa noche, sentado frente a la pantalla apagada del computador, Santi entendió que solo una de las dos podía esperar, y no era la del señor Londoño.
 
 ---
 
@@ -118,11 +116,11 @@ Marta era la madre de Rodrigo. El apellido familiar en Medellín que Santi nunca
 
 —Cuando venga a Medellín avisame. Así sea media hora. Tomamos un tinto.
 
-Hubo un silencio corto.
+Hubo un silencio corto, el tipo de silencio que en Rodrigo nunca significaba duda sino el tiempo justo que necesitaba para acomodar las palabras antes de soltarlas.
 
-—Bueno —dijo Rodrigo.
+—Bueno —dijo, al fin.
 
-Y ese *bueno* tenía el peso de las dos horas de la semana anterior, de las nueve de la noche del martes, de todo lo que no habían necesitado decirse porque se conocían desde antes de saber que iban a necesitar conocerse.
+No dijo nada más. Tampoco hacía falta.
 
 ---
 
@@ -140,7 +138,5 @@ No porque fuera un dato de entrenamiento.
 
 Sino porque era parte del año. Y el año era todo eso junto: el Puerto de Boyacá y el señor Londoño y Rodrigo en San José y Arroyave entrenando en el Páramo de Belmira y su padre trabajando el inventario hasta las diez. Todo eso al mismo tiempo, sin que ninguna cosa cancelara la otra.
 
-Así era el año.
-
-Así eran todos los años.
+Cerró la libreta y apagó la luz del escritorio. Afuera, dos pisos abajo, un carro frenó despacio y arrancó de nuevo, y ese fue el último sonido que Santi escuchó antes de quedarse dormido con la ropa de entrenamiento todavía puesta.
 

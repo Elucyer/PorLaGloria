@@ -122,9 +122,9 @@ Era el tipo de certeza que los entrenadores tienen sobre los corredores que han 
 
 — Este año — dijo Santi.
 
-Ospina no respondió.
+Ospina giró la llave inglesa que tenía en la mano, despacio, sin necesidad — el gesto de las manos que necesitan ocuparse de algo mientras la cabeza decide cuánto decir.
 
-Pero tampoco contradijo.
+— Este año — repitió, como si probara el peso de la frase en su propia boca.
 
 ---
 
@@ -218,12 +218,16 @@ Siguió.
 
 El camino hacia Laureles, los semáforos del occidente, el barrio al que habían llegado cuando el padre todavía era gregario de los equipos regionales y que en los años que siguieron se había convertido en el barrio de los Reyes — el apartamento del cuarto piso, el balcón sobre el parque, el café de las mañanas.
 
-En el cuaderno de esa noche, la última entrada antes del Tour de Sierra Nevada:
+No escribió esa noche. Dejó el cuaderno cerrado sobre la mesa del comedor, al lado de la maleta ya hecha para el vuelo de la madrugada, y se quedó un momento de pie frente a la ventana del cuarto piso — las luces de Laureles, el parque vacío a esa hora, el ruido distante de un bus que subía la loma.
 
-*Medellín, enero 2. Última salida del año. Las Palmas + Boquerón + retorno. 2h14. Las piernas al setenta y ocho — mejor que noviembre, todavía sin el nivel de carrera.*
+Carmen entró a apagar la luz de la cocina y lo encontró ahí.
 
-*Mañana Sierra Nevada.*
+— ¿Todo bien?
 
-*El año empieza.*
+— Las piernas al setenta y ocho. Mejor que noviembre.
+
+Ella no preguntó más. Sabía que la frase completa —*todavía sin el nivel de carrera*— se la había dicho ya, con el silencio, antes de decirla con palabras.
+
+El vuelo salía a las seis.
 
 ---

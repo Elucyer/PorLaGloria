@@ -64,6 +64,8 @@ A la salida del muro, Bernal y Santi estaban, otra vez, rueda con rueda.
 
 Ninguno de los dos miró al otro. En el Zoncolan no había margen para gestos — cada gramo de oxígeno que un corredor gastaba en girar la cabeza era un gramo que no estaba disponible para las piernas.
 
+*Lo que Bernal sí tuvo, en esos segundos, fue un pensamiento — uno solo, breve, que después, en la cena, no le iba a contar a nadie: la certeza fría de que el ataque no había servido, de que el cuerpo de al lado no se había quebrado ni un milímetro, y que esa certeza, en lugar de desanimarlo, le devolvía algo parecido a la calma. No era resignación. Era el reconocimiento simple de estar corriendo, por primera vez en años, contra alguien que no le iba a regalar ni un segundo ni a pedírselo prestado — y que de alguna manera, en medio del dolor, eso lo hacía sentir menos solo en la montaña, no más.*
+
 Los últimos tres kilómetros — la pendiente, finalmente, suavizándose ligeramente hacia el nueve y el ocho por ciento, aunque "suavizarse" en el Zoncolan seguía significando una pendiente que en cualquier otro puerto de Europa habría sido considerada brutal — pasaron sin más ataques.
 
 No porque ninguno de los dos quisiera atacar.
@@ -145,6 +147,12 @@ La mesa se quedó en silencio otra vez — el peso de la frase de Ferretti aterr
 — Eso — dijo Rusconi — lo vamos a saber en julio.
 
 La mesa se rió — la risa cansada, nerviosa, del equipo que sabe que la frase es verdad y que prefiere reírse antes que pensar demasiado en ella la noche de una etapa que ya había sido suficiente.
+
+— Lo único que sé de Pogačar — dijo Clarke, mientras se levantaba de la mesa — es que en cualquier carrera donde haya perdido algo, lo primero que hace al cruzar la línea es sonreír. No para las cámaras. Antes de mirar a las cámaras.
+
+— ¿Y eso qué significa? — preguntó Dumont.
+
+— Que disfruta esto incluso cuando le duele — dijo Clarke. — Con Bernal nunca sé qué está pensando. Con Pogačar, en cambio, siempre se le nota.
 
 ---
 

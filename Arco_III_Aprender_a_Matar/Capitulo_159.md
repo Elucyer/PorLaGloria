@@ -162,6 +162,8 @@ Atacó.
 
 No el incremento de Pogačar — el ataque real, el del corredor que en la carrera decide que el momento es ahora porque el cuerpo dice que puede y la estrategia dice que la ventaja en la montaña tiene que abrirse aquí y no esperar a los tres últimos kilómetros donde Pogačar también puede hacerlo.
 
+No era el mismo ataque que el de Santa Bárbara, cuatro días antes. El cuerpo que respondía hoy era un cuerpo distinto del que había ganado en Siena — los cuádriceps todavía cargaban la dureza específica de seis horas de grava, esa fatiga de fibra lenta que no se nota hasta que se le pide algo que no es rodar sino atacar, y que en el primer giro de pedal del ataque le costó una décima de segundo que en el Monteciaponi no le habría costado. Atacar con las piernas de la Strade Bianche todavía dentro del cuerpo no era prudente. Era, sencillamente, lo único que tenía.
+
 Diez metros.
 
 Van Aert respondió — el belga que en el kilómetro seis del Prati di Tivo todavía tenía la respuesta para el ataque, que cerró los diez metros en quince pedaladas.
@@ -240,13 +242,11 @@ No al mismo ritmo de Pogačar — al ritmo que el cuerpo daba en ese momento, qu
 
 Pogačar siguió incrementando.
 
-Cuatro metros entre los dos en el metro doscientos del tramo al once.
-
-Cinco.
+Santi lo medía por el tiempo, no por la distancia: el hueco hacía que la rueda de Pogačar tardara ya casi un segundo entero en aparecer en el borde de su visión, en el metro doscientos del tramo al once.
 
 El esloveno que en el Prati di Tivo en el metro doscientos de los últimos tres kilómetros abría sobre Santi con el tipo de incremento que en el Tour de Francia había usado para ganar la contrarreloj de La Planche des Belles Filles en el último día y que aquí, en un puerto de los Apeninos en marzo, usaba para abrirse en la montaña porque la estrategia de Pogačar para el ciclismo de 2021 era simple y demoledora: ganar en la montaña y ganar en la crono, no dar el margen que Santi necesitaba para remontar.
 
-Seis metros.
+El segundo se había vuelto segundo y medio.
 
 Santi en el metro trescientos del tramo al once.
 
@@ -254,7 +254,7 @@ El cuerpo en el territorio donde ya no se toman decisiones racionales sobre la p
 
 Santi ignoró las señales.
 
-Seis metros. Seis metros que en los siguientes cien se convirtieron en cinco. En cuatro y medio. En cuatro.
+El segundo y medio empezó a achicarse en los siguientes cien metros, despacio, como una marea que cambia de sentido sin avisar.
 
 No cerraba.
 
@@ -406,7 +406,7 @@ Santi lo miró.
 
 *Suficientemente pronto.*
 
-Pogačar sonrió — el gesto breve del corredor que en el rival reconoce algo que aprecia aunque no le convenga apreciarlo.
+Pogačar sonrió — el gesto breve del corredor que en el rival reconoce algo que aprecia aunque no le convenga apreciarlo. Era la misma sonrisa que se le escapaba ganando que perdiendo, como si en ese punto exacto de la cara no hubiera diferencia entre las dos cosas.
 
 No dijo nada más.
 
