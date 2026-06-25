@@ -82,6 +82,14 @@ Luca Arnheim, que había soportado buena parte del desgaste de las etapas alpina
 
 — Voy a llegar lo más lejos que el cuerpo me permita —dijo Luca, con la determinación silenciosa que lo caracterizaba—. No voy a fallarte en la etapa que más importa.
 
+Arroyave, sentado al otro extremo de la mesa, escuchaba la conversación sin haber sido todavía mencionado por su nombre, pero esperando su turno con la misma paciencia con la que había esperado, durante catorce años, una oportunidad real en el pelotón europeo.
+
+— Yo te lo dije por mensaje, hace meses —agregó Arroyave, dirigiéndose a Santi directamente—. Que contara conmigo. El Grappa es exactamente el tipo de día para el que hice las paces con esta idea.
+
+— Lo sé —dijo Santi—. Y lo voy a necesitar, después de Luca, si todavía queda algo de pelotón.
+
+— Va a quedar algo —dijo Arroyave, sin sonreír, pero con una certeza tranquila en la voz—. Para eso vine.
+
 Caruso, que también escuchaba parte de la conversación desde una mesa cercana del comedor del hotel, donde los equipos italianos y colombianos compartían a veces el mismo salón en los hoteles más pequeños de montaña, se acercó al final de la reunión con un comentario que reflejaba la perspectiva distinta de un corredor más veterano.
 
 — El Grappa es un puerto que conozco bien, desde que era joven —dijo Caruso—. No es solo la pendiente. Es el viento que sube desde el valle del Piave en las últimas curvas. Eso afecta más de lo que cualquier número de potencia puede predecir.
@@ -106,7 +114,7 @@ Hernando anotó cada cifra en el cuaderno, con el mismo cuidado con que anotaba 
 
 — Eso es lo único que importa ahora —dijo Hernando—. Mañana es el día de descanso real. Después, el Grappa.
 
-— Después, el Grappa —repitió Santi, antes de colgar, sin saber todavía si esas palabras iban a quedar grabadas en su memoria por una victoria o por una derrota.
+— Después, el Grappa —repitió Santi, antes de colgar, ya con la cabeza puesta en el día de descanso y en las pocas horas de sueño que le quedaban antes de viajar.
 
 Antes de apagar la luz, revisó un último mensaje de Mariana, que había seguido la etapa de Tre Cime con la misma atención de siempre.
 
@@ -122,8 +130,8 @@ Antes de apagar la luz, revisó un último mensaje de Mariana, que había seguid
 
 *Santi: Eso ayuda más de lo que te imaginás.*
 
-Guardó el teléfono y se quedó dormido pensando en pendientes del catorce por ciento, en la sensación de vacilación que había sentido esa tarde, y en la esperanza silenciosa de que el cuerpo respondiera, una vez más, cuando más lo necesitara.
+Guardó el teléfono y se quedó un rato boca arriba, sin apagar todavía la lámpara de la mesa de noche, repasando mentalmente las rampas del catorce por ciento como quien repasa una oración aprendida de memoria: la sensación de vacilación de esa tarde, el segundo perdido, la promesa de que el cuerpo respondiera cuando más lo necesitara.
 
-Pensó también en el comentario de Caruso sobre el viento del valle del Piave, un detalle que ningún archivo de Rusconi había mencionado todavía, y se preguntó cuántas otras pequeñas ventajas, invisibles para cualquier análisis de datos, seguían escondidas en la memoria de los corredores más veteranos del pelotón, esperando ser compartidas en el momento justo.
+Pensó también en el comentario de Caruso sobre el viento del valle del Piave, un detalle que ningún archivo de Rusconi había mencionado todavía. Se preguntó cuántas otras pequeñas ventajas, invisibles para cualquier análisis de datos, seguían escondidas en la memoria de los corredores más veteranos del pelotón, esperando ser compartidas en el momento justo. Recién entonces apagó la luz, con el Grappa ya instalado en la cabeza como una cifra más que había que resolver al día siguiente.
 
 ---

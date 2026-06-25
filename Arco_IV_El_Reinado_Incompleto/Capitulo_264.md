@@ -264,8 +264,8 @@ Hernando, esa noche, escribió en el cuaderno la última línea del año, cerran
 
 *Y ahora, una noticia nueva, todavía fresca: a mediados de enero, Santi y Mariana se mudan a Girona. No es un viaje de entrenamiento más. Es la decisión de estar cerca del equipo, de Rusconi, de todo lo que hace falta para volver de la mejor forma posible. Esta va a ser la última Navidad en esta casa por un buen tiempo. Me cuesta escribir esto sin que se me apriete el pecho, pero también sé que es lo correcto. Mediados de 2026: el regreso. No sabemos todavía a qué nivel. Pero sabemos que va a volver, y que esta vez lo va a hacer desde más cerca de donde tiene que estar. Eso, después de este año, es más que suficiente para cerrar el cuaderno de 2025 con gratitud, no con lamento.*
 
-Antes de cerrar el cuaderno esa noche, Hernando agregó una última línea, casi como una nota personal que no estaba seguro de que Santi llegara a leer nunca.
+Cerró el cuaderno, pero lo volvió a abrir un minuto después, porque había algo más que necesitaba decir antes de que terminara el año, algo que no le había confesado a nadie en voz alta, ni siquiera a Carmen.
 
-*Nota aparte: este mes entendí algo que me tomó sesenta años de vida aprender. Que el verdadero valor de una familia no se mide en los días fáciles, sino en quién se queda en los difíciles. Mariana se quedó. Rodrigo nunca se fue. Julián, Restrepo, los padres de Mariana: todos se quedaron, de distintas formas. Eso, más que cualquier otra cosa, me da paz sobre el futuro de mi hijo, sin importar qué tan rápido o lento vuelva a una bicicleta de competencia.*
+*Otra cosa, antes de dormir: hace un año, en esta misma fecha, no sabía si iba a tener algo que escribir nunca más en estas páginas. Pensé, esa primera noche en el hospital de Tarbes, que el cuaderno se iba a quedar cerrado para siempre, lleno solo de carreras viejas. Hoy lo cerré por última vez en esta casa. La próxima entrada va a estar escrita desde Girona, o desde un avión, o desde donde sea que la vida nos lleve ahora. No me asusta. Después de este año, ya sé que el cuaderno no necesita un país fijo para seguir llenándose.*
 
 ---

@@ -116,8 +116,10 @@ Antes de despedirse, Hernando agregó una última reflexión, mientras cerraba e
 
 — ¿Y funcionó?
 
-— Treinta años después, seguimos juntos —dijo Hernando—. Así que sí, funcionó.
+Hernando se rió, un sonido corto que se cortó antes de convertirse en respuesta, y Santi alcanzó a oír, de fondo, la voz de Carmen llamándolo desde la cocina para algo que no llegó a distinguir del todo.
 
-Santi se despidió de su padre con esa última frase resonando en su cabeza, sintiendo, por primera vez en mucho tiempo, que el desafío que tenía por delante no se parecía a ningún puerto de montaña ni a ninguna crono, sino a algo completamente nuevo, para lo que ningún entrenamiento de Rusconi podía prepararlo del todo, mientras afuera, sobre el lago de Como, las luces de la ciudad empezaban a reflejarse en el agua, marcando el cierre silencioso de la mejor temporada de toda su carrera.
+— Preguntale a ella —dijo finalmente Hernando—. Yo solo sé lo que recuerdo de ese día. Lo demás es asunto de los dos.
+
+Santi se despidió de su padre con la pregunta todavía sin cerrar del todo, sintiendo, por primera vez en mucho tiempo, que el desafío que tenía por delante no se parecía a ningún puerto de montaña ni a ninguna crono, sino a algo completamente nuevo, para lo que ningún entrenamiento de Rusconi podía prepararlo del todo, mientras afuera, sobre el lago de Como, las luces de la ciudad empezaban a reflejarse en el agua, marcando el cierre silencioso de la mejor temporada de toda su carrera.
 
 ---

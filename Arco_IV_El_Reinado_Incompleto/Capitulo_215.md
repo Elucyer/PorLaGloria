@@ -100,10 +100,10 @@ Esa noche, antes de dormir, Santi llamó a Hernando una última vez desde Sierra
 
 — Cansado, pero distinto al cansancio de otros años —dijo Santi—. Como si el cuerpo supiera que está construyendo algo, no solo desgastándose.
 
-— Eso suena bien —dijo Hernando—. Anotalo así, con esas palabras, para que yo lo escriba esta noche en el cuaderno.
+— Eso suena bien —dijo Hernando.
 
-— Cansado, pero construyendo —repitió Santi.
+— Cansado, pero construyendo —repitió Santi, casi para sí mismo, como probando si la frase aguantaba el peso de siete semanas de altura.
 
-— Cansado, pero construyendo —confirmó Hernando, ya con el bolígrafo en la mano—. Buen viaje a Francia. Avisame cuando lleguen.
+Colgaron poco después. Santi se quedó un momento sentado al borde de la cama, con las piernas todavía pesadas por el entrenamiento de la tarde y un cansancio distinto, más parecido al de una obra a medio terminar que al de un cuerpo vaciado del todo. Afuera, en algún punto de la sierra, un perro ladraba a lo lejos, y el silencio que volvía después de cada ladrido era tan completo que se podía escuchar el zumbido bajo de la nevera del pasillo. Apagó la luz pensando en Francia, en las maletas junto a la puerta, en lo poco que faltaba ya para que todo ese invierno empezara a rendir cuentas.
 
 ---

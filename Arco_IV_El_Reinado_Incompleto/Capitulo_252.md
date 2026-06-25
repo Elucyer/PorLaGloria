@@ -20,7 +20,9 @@ Mariana, Hernando y Carmen habían encontrado un lugar en la subida del Tourmale
 
 El Tourmalet, subido por la cara de Sainte-Marie-de-Campan, con sus diecinueve kilómetros al siete coma cuatro por ciento de media, fue donde Vingegaard decidió hacer su movimiento más serio de toda la semana, atacando a seis kilómetros de la cima en el mismo tipo de tramo constante donde ya había mostrado, en la Madeleine, una superioridad que ni Santi ni Pogačar habían logrado igualar del todo.
 
-Pogačar respondió primero, cerrando el hueco con un esfuerzo que reflejaba la urgencia de no perder más terreno en la clasificación general. Santi, con Luca ya desprendido tras cumplir su trabajo en los primeros doce kilómetros del puerto, cerró la diferencia un instante después, los tres juntos otra vez, en el mismo tipo de batalla que había definido buena parte de esa temporada.
+Pogačar respondió primero, cerrando el hueco con un esfuerzo que reflejaba la urgencia de no perder más terreno en la clasificación general. Santi, con Luca ya desprendido tras cumplir su trabajo en los primeros doce kilómetros del puerto, y con Arroyave soltándose apenas un kilómetro más arriba, justo donde había prometido la noche anterior, cerró la diferencia un instante después, los tres favoritos juntos otra vez, en el mismo tipo de batalla que había definido buena parte de esa temporada.
+
+Arroyave, ya sin fuerzas para seguir el ritmo pero todavía pedaleando a un ritmo sostenido detrás del grupo de favoritos, fue de los primeros corredores del pelotón en alcanzar la cima del Tourmalet, lo suficientemente cerca como para empezar el descenso apenas un minuto después que los tres líderes, sin saber todavía que esa distancia mínima iba a importar más de lo que cualquiera podía anticipar.
 
 Mariana, Hernando y Carmen los vieron pasar juntos, a centímetros unos de otros, en un esfuerzo visible en cada rostro, el público gritando los tres nombres en una mezcla de idiomas que se fundía en un solo sonido ensordecedor.
 
@@ -62,6 +64,22 @@ Carmen sintió que el corazón se le detenía un instante, antes de sacar el tel
 
 ---
 
+Arroyave, descendiendo solo, sin la compañía de ningún otro corredor de su grupo, fue el primero del pelotón en llegar al lugar exacto donde el público gritaba y señalaba hacia el terraplén, varios segundos antes de que cualquier coche médico pudiera detenerse en esa curva específica. Frenó de golpe, dejando la bicicleta caer contra el guardarraíl, y bajó corriendo hacia donde un grupo de espectadores ya se asomaba hacia la ladera.
+
+— ¡Es Reyes! —gritó alguien, en francés, señalando hacia abajo.
+
+Arroyave vio el cuerpo entre la vegetación baja, inmóvil, y sintió, en el segundo que tardó en reconocer el maillot amarillo manchado de tierra, algo que no había sentido desde una tarde de 2017 en una carretera de Antioquia, cuando cuatro segundos lo habían separado de ganar la carrera más importante de su vida joven: la certeza física, en el estómago, de que algo decisivo estaba ocurriendo y de que él no podía hacer nada para cambiarlo, solo estar ahí.
+
+— ¡Santi! —gritó, bajando por el terraplén sin pensar en el propio riesgo, con las zapatillas de ciclismo resbalando sobre la tierra húmeda—. ¡Santi, te escucho! ¡No te muevas, ya viene ayuda!
+
+No hubo respuesta inmediata, solo un quejido bajo que confirmó, al menos, que Santi seguía consciente. Arroyave se quedó a un metro de distancia, sin tocarlo, recordando alguna instrucción vaga de un curso de primeros auxilios de hacía años, hasta que el primer motociclista médico llegó, apenas unos segundos después, y le indicó que se hiciera a un lado.
+
+— ¿Lo conocés? —le preguntó el motociclista, en un francés apurado, mientras desmontaba el botiquín.
+
+— Hace catorce años —dijo Arroyave, sin que el motociclista entendiera del todo la respuesta, ni hubiera tiempo para explicarla.
+
+Se quedó parado un metro más allá, sin saber qué hacer con las manos, viendo al equipo médico trabajar sobre el cuerpo de Santi, pensando, de una forma que no lograba ordenar del todo, en la vuelta del Porvenir de 2017, en la frase que él mismo le había escrito por mensaje después de ganar el Tour del año anterior, en la promesa de ser su gregario "el día que armara un equipo de verdad". Nunca había imaginado que esa promesa lo llevaría a ser, también, el primer hombre del pelotón en bajar corriendo por un terraplén de los Pirineos, gritando un nombre que alguna vez había querido vencer y que ahora, sin que ninguna carrera lo explicara del todo, le importaba mucho más que cualquier resultado deportivo.
+
 En la carretera, los motociclistas de televisión llegaron al lugar de la caída casi al mismo tiempo que el coche médico del Tour, encontrando a Santi consciente pero inmóvil, con un dolor evidente en el hombro derecho y en el costado, incapaz de moverse sin ayuda.
 
 — No te muevas —dijo el médico de la carrera, llegando con el kit de primeros auxilios—. ¿Podés sentir las piernas?
@@ -77,6 +95,8 @@ Pogačar y Vingegaard, al pasar por el lugar de la caída segundos después, sin
 — No vi bien qué pasó —diría después Pogačar, en la rueda de prensa de esa noche—. Solo vi el cuerpo en la ladera, y entendí, en ese instante, que esto era mucho más grande que cualquier rivalidad deportiva.
 
 Ninguno de los dos se detuvo —no había nada que pudieran hacer ahí, y la carrera, inevitablemente, seguía— pero ambos llevaron, durante el resto del descenso, una sombra de preocupación que las cámaras de televisión captaron en sus rostros, sin necesitar ninguna palabra para explicarla.
+
+Arroyave, en cambio, no volvió a montarse en la bicicleta. Se quedó en el lugar de la caída hasta que el helicóptero despegó, ignorando por completo el resto de la etapa, su propio resultado, y cualquier instrucción de radio que Ferretti pudiera haberle dado en otras circunstancias. Cuando finalmente alguien del coche de equipo lo encontró, todavía parado junto al guardarraíl con la mirada fija en el cielo vacío donde el helicóptero ya no se veía, no necesitó preguntarle por qué no había seguido corriendo.
 
 ---
 

@@ -126,9 +126,9 @@ Esa noche, Hernando lo encontró en el balcón de siempre, con una expresión qu
 
 — Bien —dijo Santi, simplemente—. Todavía no es nada oficial. Pero ya no es nada, tampoco.
 
-— Eso ya es un buen comienzo —dijo Hernando—. Lo demás se va a acomodar solo, a su tiempo, como casi todo lo importante.
+Hernando no dijo nada por un momento largo. Se quedó mirando hacia el Cerro El Volador, la sombra ya casi negra contra el cielo de diciembre, y dejó que el silencio ocupara el espacio donde otra vez hubiera podido caber una frase.
 
-Los dos se quedaron un rato mirando las luces de Laureles, cerrando, en silencio, el año más completo de la carrera de Santi —el año en que ganó todo lo que se propuso ganar en una bicicleta, y en que, por primera vez, también se permitió empezar algo que ningún entrenamiento podía enseñarle a manejar.
+Los dos se quedaron un rato mirando las luces de Laureles, cerrando, sin necesidad de palabras de más, el año más completo de la carrera de Santi —el año en que ganó todo lo que se propuso ganar en una bicicleta, y en que, por primera vez, también se permitió empezar algo que ningún entrenamiento podía enseñarle a manejar.
 
 — ¿Le vas a contar a tu mamá? —preguntó Hernando, después de un rato de silencio.
 

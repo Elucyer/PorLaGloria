@@ -96,6 +96,6 @@ Santi sonrió, sentado en el borde de la cama del hotel, pensando en el pueblo, 
 
 — Se lo digo —dijo Hernando—. Ahora descansá. Mañana sigue el viaje hacia Holanda, para Amstel.
 
-Cerró el cuaderno con el mismo gesto de siempre, satisfecho, mientras del otro lado del teléfono, en Eibar, Santi ya pensaba en los muros de Limburgo, en el Cauberg, y en una falla mecánica que todavía no sabía que lo esperaba a la vuelta de una semana y media, en un muro belga llamado Mur de Huy.
+Del otro lado de la línea se quedó un momento en silencio, el bolígrafo quieto contra la página, como si todavía estuviera decidiendo si había algo más que anotar esa noche. No lo había. Colgaron casi al mismo tiempo, sin despedida larga, y Santi se quedó un rato sentado en el borde de la cama, escuchando la lluvia vasca golpear el cristal de la ventana con un ritmo irregular que no terminaba de apagarse, pensando ya en los muros de Limburgo, en el Cauberg, y en una falla mecánica que todavía no sabía que lo esperaba a la vuelta de una semana y media, en un muro belga llamado Mur de Huy.
 
 ---

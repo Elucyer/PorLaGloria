@@ -232,7 +232,7 @@ Rusconi, al recibir la noticia de la primera sesión en bicicleta estática en l
 
 — Todavía no —dijo Rusconi—. Pero por primera vez desde julio, no me parece una pregunta imposible de responder algún día.
 
-Esa noche, Hernando escribió en el cuaderno, cerrando el primer trimestre del año más extraño de la carrera de su hijo:
+Esa noche, cuando ya todos se habían ido a dormir, Hernando se quedó solo en la cocina con el cuaderno abierto sobre la mesa, sin apuro por escribir nada todavía, simplemente repasando con la mirada las páginas de enero y febrero antes de animarse a cerrar el primer trimestre del año más extraño de la carrera de su hijo:
 
 *Marzo 2025. Corsé retirado. Fisioterapia activa iniciada. Primera vez en bicicleta estática, sin dolor. Reunión en el patio con Rodrigo, Julián, Restrepo — la familia que se construyó alrededor de este año difícil. Mariana, siempre presente, sosteniendo más de lo que cualquiera ve desde afuera. El trimestre más lento de toda mi vida, y sin embargo, lleno de pequeñas victorias que vale la pena anotar, una por una.*
 

@@ -20,9 +20,9 @@ Pogačar atacó a tres kilómetros de la cima, una decisión temprana que sorpre
 
 — Todavía no —dijo Rusconi—. Tu frecuencia está estable. Seguí así.
 
-Luca Arnheim, que había marcado el ritmo del grupo principal hasta el pie de la subida final, observó el intercambio de ataques desde unos metros más atrás, ya sin fuerzas para seguir el ritmo de los dos favoritos, pero satisfecho con haber cumplido su parte del trabajo.
+Luca Arnheim, que había marcado el ritmo del grupo principal hasta el pie de la subida final, observó el intercambio de ataques desde unos metros más atrás, ya sin fuerzas para seguir el ritmo de los dos favoritos, pero satisfecho con haber cumplido su parte del trabajo. A su lado, Arroyave había soportado el mismo tramo sin desprenderse, una décima de segundo después que Luca, demostrando en su primera subida seria de Grand Tour exactamente el tipo de resistencia de fondo por el que Ferretti lo había contratado.
 
-— Hasta aquí, sin gastar de más —le confirmó a Ferretti, por radio, al llegar a la meta varios minutos después—. El resto fue entre esos dos.
+— Hasta aquí, sin gastar de más —le confirmó Luca a Ferretti, por radio, al llegar a la meta varios minutos después—. El resto fue entre esos dos.
 
 — Buen trabajo —dijo Ferretti—. Recuperate bien esta noche. El Giro recién empieza.
 
@@ -141,8 +141,8 @@ Antes de colgar, Hernando preguntó algo que llevaba toda la llamada queriendo p
 
 — Avisame cuando lo estudien —dijo Hernando—. Quiero anotarlo en el cuaderno con tiempo, no a último momento.
 
-— Te aviso —dijo Santi, sin saber todavía, esa noche en Perugia, que ese puerto que apenas mencionaba de paso terminaría siendo el nombre que más iba a pesar en el resto de esa temporada.
+— Te aviso en cuanto lo estudiemos —dijo Santi, ya pensando en otra cosa, en la ducha que necesitaba y en la cena que lo esperaba abajo.
 
-Antes de dormir, Santi revisó una vez más el perfil del Monte Grappa que Rusconi le había compartido esa tarde, intentando memorizar los porcentajes de pendiente de cada tramo, como hacía con cada puerto decisivo desde que era un corredor joven en las categorías menores de Antioquia. No sabía todavía que ese puerto específico, que estudiaba con la misma disciplina de siempre, terminaría definiendo mucho más de su temporada que cualquier otra subida del calendario de ese año.
+Antes de dormir, Santi revisó una vez más el perfil del Monte Grappa que Rusconi le había compartido esa tarde, intentando memorizar los porcentajes de pendiente de cada tramo, como hacía con cada puerto decisivo desde que era un corredor joven en las categorías menores de Antioquia. Era un puerto exigente, sí, pero todavía lejano: faltaban semanas de carretera antes de llegar ahí, y entre medio había etapas llanas, una crono individual y al menos dos días de transición que el cuerpo agradecería después del esfuerzo de Perugia.
 
 ---

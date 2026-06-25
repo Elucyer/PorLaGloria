@@ -25,7 +25,7 @@ En la cabina de France Télévisions, Laurent y Philippe, de vuelta para narrar 
 — Et Vingegaard qui attend, en embuscade, derrière. Cette course a maintenant trois têtes, pas deux.
 *(Y Vingegaard que espera, al acecho, atrás. Esta carrera ahora tiene tres cabezas, no dos.)*
 
-Luca Arnheim, que había marcado el ritmo del grupo principal durante los primeros doce kilómetros del puerto, se desprendió justo antes del ataque de Pogačar, su trabajo cumplido, sin poder hacer nada más que observar desde unos metros atrás cómo se desarrollaba el resto de la subida.
+Luca Arnheim, que había marcado el ritmo del grupo principal durante los primeros doce kilómetros del puerto, se desprendió justo antes del ataque de Pogačar, su trabajo cumplido, sin poder hacer nada más que observar desde unos metros atrás cómo se desarrollaba el resto de la subida. Arroyave, relevándolo en el último tramo antes del ataque, aguantó apenas trescientos metros más que Luca, lo suficiente para sentir, por primera vez en ese Tour, el peso completo de lo que significaba sostener el ritmo cuando los tres favoritos de verdad empezaban a correr en serio.
 
 — Ojalá hubiera podido seguir ahí un kilómetro más —le dijo después a Ferretti, en la meta—. Quizás hubiera servido para algo en ese momento exacto.
 
@@ -109,7 +109,7 @@ Hernando se quedó callado un momento, sopesando esa información con un peso qu
 
 — El Tourmalet, otra vez —dijo Hernando, finalmente—. Cuidate ahí, más que en cualquier otro punto de esta carrera.
 
-— Lo voy a tener presente —dijo Santi, sin saber, esa noche, cuánto sentido iba a cobrar esa advertencia en menos de una semana.
+— Lo voy a tener presente —dijo Santi—. Ese puerto siempre exige respeto, lo sé bien desde el año pasado, sobre todo en la bajada, donde el viento puede cambiar todo en pocos minutos.
 
 — ¿Ya está todo listo para cuando lleguen? —preguntó Hernando, cambiando de tema hacia algo menos pesado.
 
@@ -133,6 +133,6 @@ Antes de colgar, Santi revisó un mensaje de Mariana, enviado un par de horas an
 
 *Santi: Yo también. Más de lo que te imaginás.*
 
-Guardó el teléfono y se quedó dormido pensando en metros, no en días, exactamente como Hernando le había enseñado treinta años atrás en una ladera de Antioquia, sin saber todavía que esos mismos metros, en cuatro días más, lo iban a llevar al mismo puerto donde la persona que le había enseñado esa lección estaría esperándolo, por primera vez en su carrera, en persona, cerca de la cima.
+Guardó el teléfono y apagó la luz, pero el sueño tardó en llegar. Se quedó repitiendo, casi en voz baja, la frase de metros y no de días que Hernando le había enseñado treinta años atrás en una ladera de Antioquia, con la bicicleta vieja que todavía guardaban en el garaje de San José de la Montaña. Contó los cuatro días que faltaban para tener a su familia cerca de la cima del Tourmalet, viéndolo pasar en persona por primera vez en toda su carrera, y solo cuando terminó de ordenar esa cuenta en la cabeza se dejó finalmente vencer por el cansancio de la etapa.
 
 ---

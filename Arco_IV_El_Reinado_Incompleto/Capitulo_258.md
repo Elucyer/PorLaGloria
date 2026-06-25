@@ -46,13 +46,9 @@ Mariana, mientras tanto, preparó su propia logística: cargó la cámara, revis
 
 ---
 
-La noche antes de la salida, Santi no pudo dormir bien, dando vueltas en la cama hasta que Mariana, despierta también, encendió la luz de la mesa de noche.
+La noche antes de la salida, Santi no pudo dormir bien, dando vueltas en la cama hasta que Mariana, que llevaba un rato fingiendo el mismo sueño que no tenía, encendió la luz de la mesa de noche.
 
-— ¿Seguís despierto? —preguntó.
-
-— Sí —dijo Santi—. No puedo dejar de pensar en mañana.
-
-— ¿Qué es lo que más te preocupa, específicamente?
+— No hace falta que sigás disimulando —dijo, apoyándose en un codo, sorprendiendo a Santi, que llevaba media hora tratando de no moverse demasiado para no despertarla—. Yo tampoco puedo dormir, pensando en mañana. ¿Qué es lo que más te preocupa, específicamente?
 
 — Que en el momento de subirme a la bicicleta, en serio, en carretera abierta, el cuerpo se congele —dijo Santi—. Que el miedo sea más grande de lo que puedo manejar, y que eso retrase todo el proceso de recuperación todavía más.
 

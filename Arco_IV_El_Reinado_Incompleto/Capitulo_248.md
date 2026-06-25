@@ -12,9 +12,11 @@ La segunda etapa, con final en alto en Bolonia tras un repecho corto y empinado 
 
 Pogačar ganó la subida al santuario, atacando a quinientos metros de la meta con una explosividad que reflejaba, sin lugar a dudas, la frescura relativa de un cuerpo que se había recuperado mejor del desgaste del Giro que el de Santi.
 
-— Cuatro segundos —dijo Rusconi, revisando el resultado—. No es mucho, pero es la primera confirmación de lo que hablamos en junio. El margen es menor este año.
+Santi sintió el ataque antes de verlo: un vacío repentino en la rueda delantera, como si el aire mismo se hubiera espesado entre los dos, y después el ardor conocido subiendo por los muslos cuando el cuerpo le pidió una respuesta que las piernas no tenían lista. Se levantó del sillín, empujó con todo lo que el último kilómetro le permitía, pero la distancia, en lugar de cerrarse, se mantuvo exactamente igual, como una cuerda que no cede ni se rompe. Cruzó la meta con la garganta raspada de respirar mal y una certeza incómoda instalada en el pecho, más clara que cualquier número en una pantalla: el cuerpo había respondido tarde, y eso no era una sensación pasajera de un mal día, sino la primera confirmación física de lo que Rusconi llevaba semanas advirtiendo en las reuniones.
 
-— Lo sé —dijo Santi—. Lo sentí en las piernas, en el ataque final. No fue como el año pasado.
+— Cuatro segundos —dijo Rusconi, revisando el resultado, ya en el autobús—. No es mucho, pero es la primera confirmación de lo que hablamos en junio. El margen es menor este año.
+
+— Lo sé —dijo Santi—. No hizo falta que me lo dijeras por radio. Lo sentí en el cuerpo antes de que el ataque terminara de los cien metros.
 
 En la cabina de la RAI, transmitiendo desde Bolonia, Bettini y Cassani analizaban el ataque con el entusiasmo redoblado de ver al ciclismo italiano protagonizar también esa parte del recorrido.
 
@@ -37,7 +39,7 @@ Las etapas siguientes, a través de los Alpes franceses por el lado italiano y f
 
 ---
 
-Luca Arnheim, observando de cerca la dinámica de esas primeras etapas, notó un cambio en el comportamiento de Santi que comentó con Ferretti durante una cena del equipo.
+Luca Arnheim, observando de cerca la dinámica de esas primeras etapas, notó un cambio en el comportamiento de Santi que comentó con Ferretti durante una cena del equipo. Arroyave, sentado junto a ellos, escuchaba la conversación con el mismo interés silencioso con que escuchaba casi todo desde que había firmado, hablando solo cuando sentía que tenía algo real para agregar.
 
 — Está más callado de lo normal —dijo Luca—. No es la misma confianza tranquila del año pasado.
 
@@ -59,11 +61,25 @@ Koen, que también escuchaba la conversación mientras revisaba el inventario de
 
 — Ya lo tengo anotado —confirmó Koen, cerrando su propia libreta con la misma disciplina silenciosa de siempre.
 
+Arroyave, terminando de comer en silencio mientras la conversación seguía a su alrededor, levantó la vista cuando Luca se retiró un momento de la mesa.
+
+— Es raro esto, ¿no? —le dijo a Ferretti, en voz baja, casi como si pensara en voz alta más que preguntando—. Hace siete años, yo hubiera dado cualquier cosa por estar del otro lado de esta mesa, peleando contra él. Ahora estoy acá, pensando en cómo protegerlo de un día malo.
+
+— ¿Y cuál de los dos lados te gusta más? —preguntó Ferretti, genuinamente curioso por la respuesta.
+
+— Todavía no lo sé del todo —admitió Arroyave—. Pero hay algo en esto que se parece más a ganar de lo que esperaba. Quizás porque, después de tantos años corriendo solo, ya no se trata de mí.
+
+Ferretti asintió, sin agregar nada más, dejando que la frase se quedara ahí, sin necesidad de comentario.
+
 ---
 
 La etapa séptima, con final en Gap después de un recorrido exigente por los primeros contrafuertes de los Alpes, fue donde Vingegaard mostró por primera vez la frescura que había prometido en sus declaraciones de marzo: un ataque a ocho kilómetros de la meta que sorprendió tanto a Santi como a Pogačar, ambos todavía gestionando el desgaste acumulado de sus respectivos Grand Tours de mayo.
 
-— Treinta segundos —anunció Rusconi por radio, con preocupación genuina—. Vingegaard se está yendo, y ninguno de los dos puede responder con la misma fuerza de siempre.
+Arroyave, todavía en el grupo principal a esa altura de la etapa, fue de los primeros en ver el movimiento desde atrás: la espalda de Vingegaard alejándose con una soltura que no se parecía a nada de lo que había visto en Pogačar o en Santi en toda esa semana, los hombros sueltos, sin el balanceo cansado que arrastraban los otros dos desde Bolonia.
+
+— Ese no parece un corredor en la tercera semana de nada —le comentó después a Luca, en el autobús, todavía con la respiración alterada por el esfuerzo de intentar seguir el ritmo unos segundos más de lo que el cuerpo le permitía—. Parecía que estuviera corriendo una etapa de enero.
+
+— Porque está corriendo prácticamente eso —dijo Luca—. Mientras nosotros gastábamos las piernas en Italia, él estaba durmiendo en su casa.
 
 Santi y Pogačar, trabajando juntos de forma improvisada por primera vez en ese Tour, lograron cerrar parte de la diferencia en los últimos kilómetros, pero Vingegaard cruzó la meta con doce segundos de ventaja, una señal clara de que el danés, descansado y sin el desgaste de un doble objetivo, representaba una amenaza real para los dos.
 
@@ -126,17 +142,9 @@ Mariana, que seguía cada etapa desde Bogotá con la misma atención de siempre,
 
 Santi guardó el teléfono, pensando que, fuera lo que fuera que esas dos semanas le tuvieran reservado, al menos no las iba a enfrentar sintiendo que nadie entendía la magnitud real de lo que estaba en juego.
 
-Antes de dormir, recordó la frase de Pogačar en la zona de meta —"estamos en el mismo barco, este año"— y pensó en lo extraño que era, después de dos temporadas completas de rivalidad feroz, encontrarse de pronto necesitando aliarse, aunque fuera de forma improvisada, con el mismo corredor al que había peleado centímetro a centímetro en cada montaña de los últimos dos años.
+Antes de dormir, le escribió una última vez.
 
-Le escribió a Mariana antes de finalmente dormirse, contándole, de paso, esa misma reflexión.
-
-*Santi: Pogačar me dijo hoy algo gracioso. Que contra Vingegaard estamos en el mismo barco, este año. Después de pelear tanto los dos últimos años, se siente raro escucharlo.*
-
-*Mariana: Quizás eso es lo más lindo de este deporte. Que hasta los rivales más feroces encuentran un punto en común cuando aparece una amenaza más grande para los dos.*
-
-*Santi: Nunca lo había pensado así. Tenés razón.*
-
-*Mariana: ¿Cuántos días faltan para que lleguemos?*
+*Santi: ¿Cuántos días faltan para que lleguemos?*
 
 *Santi: Ocho días. Justo antes de los Pirineos.*
 

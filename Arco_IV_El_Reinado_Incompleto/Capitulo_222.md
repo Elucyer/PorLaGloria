@@ -90,7 +90,7 @@ Llamó a Hernando antes de dormir, como cada noche, con la voz todavía cargada 
 
 — Así se sintió —dijo Santi—. Como si por primera vez estuviera compitiendo de igual a igual, sin estar al límite todo el tiempo.
 
-— Anotá eso —dijo Hernando, ya con el bolígrafo en la mano—. "Loze. Igual a igual, sin estar al límite." Eso es lo que vinimos a buscar este año.
+Del otro lado de la línea se quedó un momento callado, como guardando la frase en algún lugar antes de soltarla. "Loze. Igual a igual, sin estar al límite" —repitió, despacio, casi probando cómo sonaba—. Eso es lo que vinimos a buscar este año.
 
 — ¿Cómo van los Pirineos en el calendario? —preguntó Hernando, después de terminar de escribir.
 
@@ -104,14 +104,6 @@ Llamó a Hernando antes de dormir, como cada noche, con la voz todavía cargada 
 
 Colgaron poco después, y Santi se quedó dormido esa noche pensando en los Pirineos que lo esperaban, con la satisfacción de haber superado el primer examen verdadero de las montañas, pero sin la ingenuidad de creer que lo más difícil ya había pasado.
 
-En la cabina francesa, antes de cerrar la transmisión del día, Philippe hizo una última reflexión que quedaría grabada en la memoria de buena parte de la audiencia que seguía esa edición del Tour.
-
-— Tu sais, Laurent, dans vingt ans, on va raconter cette étape comme le jour où on a compris que ce Tour serait différent de tous les autres.
-*(¿Sabés, Laurent? En veinte años, vamos a contar esta etapa como el día en que entendimos que este Tour iba a ser distinto a todos los demás.)*
-
-— Je l'espère, Philippe. Parce que si la Loze n'était que l'entrée, j'ai peur d'imaginer ce que les Pyrénées nous réservent.
-*(Eso espero, Philippe. Porque si la Loze fue solo la entrada, me da miedo imaginar lo que nos reservan los Pirineos.)*
-
-Ninguno de los dos comentaristas, esa noche, podía imaginar todavía cuánta razón tenían, ni la forma exacta en que esos Pirineos, todavía a varios días de distancia, terminarían marcando, para siempre, la historia de ese Tour.
+En la cabina francesa, antes de cerrar la transmisión del día, Philippe dijo algo sobre que en veinte años contarían esa etapa como el día en que entendieron que ese Tour sería distinto a todos los demás. Laurent no respondió de inmediato. Se quedó mirando, en el monitor, la última imagen del día —la fila de corredores bajando despacio hacia el hotel, las cumbres todavía encendidas detrás de ellos— y solo entonces dijo, casi en voz baja, que esperaba que tuviera razón, porque si la Loze había sido apenas la entrada, no quería ni imaginar lo que los Pirineos guardaban. Ninguno de los dos comentaristas, esa noche, podía imaginar todavía cuánta razón tenían, ni la forma exacta en que esos Pirineos, todavía a varios días de distancia y envueltos en la misma niebla nocturna que ya empezaba a cubrir las cumbres de Courchevel, terminarían marcando, para siempre, la historia de ese Tour.
 
 ---

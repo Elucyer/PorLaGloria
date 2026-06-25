@@ -137,15 +137,11 @@ La reunión terminó pasada la una. Santi condujo hacia Laureles, donde Hernando
 
 — Sin guion —dijo Santi—. Como me dijiste. Solo la verdad, sin pensarlo como una crono.
 
-Hernando sonrió, satisfecho de ver que el consejo había quedado guardado, no solo escuchado de pasada.
+Hernando sonrió, satisfecho de ver que el consejo había quedado guardado, no solo escuchado de pasada, y no agregó nada más, dejando que el silencio que siguió ocupara el lugar de cualquier frase que hubiera podido decir.
 
-— Eso es exactamente lo que tenés que hacer —dijo—. Y sea lo que sea que pase, vas a estar bien. Lo importante es que por fin lo vas a decir.
+Carmen sirvió la cena, y los tres se sentaron a la mesa de siempre, con la ventana abierta y el sonido de Laureles entrando en la noche de diciembre, el mismo ruido de motos y pólvora lejana que llevaba acompañando cada cierre de año desde que Santi tenía memoria —un año que había empezado con la decisión más arriesgada de la carrera de Santi y que terminaba, de la manera más completa posible, con el mejor resultado deportivo de su vida, y con una pregunta personal todavía esperando respuesta, guardada con cuidado para los primeros días del año que estaba por empezar.
 
-Carmen sirvió la cena, y los tres se sentaron a la mesa de siempre, con la ventana abierta y el sonido de Laureles entrando en la noche de diciembre —un año que había empezado con la decisión más arriesgada de la carrera de Santi y que terminaba, de la manera más completa posible, con el mejor resultado deportivo de su vida, y con una pregunta personal todavía esperando respuesta, guardada con cuidado para los primeros días del año que estaba por empezar.
-
-Carmen, sirviendo el postre al final de la cena, le tocó el hombro a su hijo con un gesto breve, casi imperceptible, antes de volver a la cocina.
-
-— Lo que sea que decidas en enero —dijo, sin necesidad de mayor explicación—, ya estoy orgullosa de vos por animarte, finalmente, a decirlo.
+Carmen, sirviendo el postre al final de la cena, le tocó el hombro a su hijo con un gesto breve, casi imperceptible, y se quedó ahí un segundo de más antes de volver a la cocina, sin decir nada.
 
 Santi le agradeció el gesto con una sonrisa, y los tres terminaron la cena en un silencio cómodo, mientras afuera, en las calles de Laureles, los primeros fuegos artificiales de diciembre empezaban a anunciar el cierre de un año que, en más de un sentido, había cambiado por completo el rumbo de su vida.
 

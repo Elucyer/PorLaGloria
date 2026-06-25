@@ -113,9 +113,11 @@ Santi sonrió, guardando el teléfono, sintiendo, por primera vez en semanas, qu
 
 Ferretti, cerrando la reunión técnica de esa noche, repasó el plan para los Pirineos con todo el equipo presente.
 
-— Tres etapas de montaña antes de la crono final y París —dijo Ferretti—. La del Tourmalet es la más dura de las tres, con casi cuatro mil metros de desnivel acumulado en el día. Vamos a necesitar a Luca al máximo, y a todos los demás gregarios trabajando como nunca.
+— Tres etapas de montaña antes de la crono final y París —dijo Ferretti—. La del Tourmalet es la más dura de las tres, con casi cuatro mil metros de desnivel acumulado en el día. Vamos a necesitar a Luca al máximo, a Arroyave relevándolo en el momento justo, y a todos los demás gregarios trabajando como nunca.
 
 — Vamos a estar listos —dijo Luca, con la determinación de siempre—. Para esto entrenamos los dos Grand Tours juntos.
+
+— Yo también voy a estar listo —agregó Arroyave, sin que nadie le hubiera preguntado directamente—. El Tourmalet es justo el tipo de puerto donde quiero que se note para qué me trajeron.
 
 — Eso espero —dijo Ferretti—. Porque después de Gruyères, esto se convirtió en una carrera que de verdad podemos ganar.
 

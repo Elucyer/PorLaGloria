@@ -262,7 +262,7 @@ Usar este documento como fuente única para características físicas, estilo de
 - **Real**: nacido 21/09/1998, Eslovenia
 - **Equipo**: UAE Team Emirates (2019–)
 - **Tipo**: Completo, explosivo, instintivo. Ataca donde el cálculo de los demás dice que es pronto. Punto débil casi inexistente — la única grieta real es la fatiga acumulada de dobles objetivos (Giro+Tour).
-- **Carácter**: Competitivo sin rencor. Capaz de gestos de respeto genuino hacia un rival caído (cap. 228, le dedica la victoria del Tour 2024 a Santi tras el accidente). Habla con franqueza directa, sin estrategia de prensa.
+- **Carácter**: Competitivo sin rencor. Capaz de gestos de respeto genuino hacia un rival caído (cap. 254, le dedica la victoria del Tour 2024 a Santi tras el accidente del Tourmalet — el cap. 228 es la victoria de Santi en el Tour 2023, no confundir). Habla con franqueza directa, sin estrategia de prensa.
 - **Relación con Santi**: El rival de referencia desde 2022. La rivalidad construye respeto mutuo real, no solo deportivo — los dos se buscan después de cada etapa decisiva para hablar a solas, lejos de micrófonos.
 - **Rol Arco V**: Pierde el doble Giro+Tour 2027 ante Santi en podio (sin ganarle, pero sin perder tampoco frente a él). En 2028 cierra su propio trébol de Grand Tours ganando su primera Vuelta a España, el mismo año que Santi recupera el Tour.
 

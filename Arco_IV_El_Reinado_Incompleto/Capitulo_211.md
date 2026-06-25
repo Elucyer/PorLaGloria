@@ -32,6 +32,8 @@ Rusconi, que había estado en silencio escuchando con los brazos cruzados, inter
 
 Santi pensó la pregunta con seriedad, no como una formalidad que había que despachar rápido para seguir con la reunión.
 
+Lo que no dijo en ese momento, porque no encontraba todavía la forma de decirlo sin que sonara desproporcionado frente a un cable de desviador, era que el segundo en que sintió la cadena fallar en el Mur de Huy había sentido, durante una fracción de segundo antes de entender lo que pasaba, el mismo vacío en el estómago que sentía cada vez que se despertaba del sueño de la crono de 2021 —la sensación exacta de que algo se le escapaba de las manos sin que él pudiera hacer nada para evitarlo, sin que ninguna preparación, ningún número de Rusconi, alcanzara para protegerlo. No era un miedo nuevo. Era el mismo, con otra cara.
+
 — Lo que me preocupa no es la Flèche en sí —dijo, finalmente, mirando primero a Ferretti y después a Koen—. Es que esto pueda pasar otra vez, en una carrera que de verdad no se pueda perder por una razón ajena a mis piernas.
 
 — El Tour —dijo Ferretti, sin que fuera necesario que Santi lo nombrara directamente.

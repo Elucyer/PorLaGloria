@@ -88,17 +88,29 @@ Hernando escuchó, en silencio, mientras Santi le contaba la conversación compl
 
 ---
 
-— Esa noche que tuviste, esa duda sobre si vas a volver a ser el mismo —dijo Hernando, finalmente—. Yo la tuve también, durante la quimioterapia. Pensé que nunca iba a volver a subir una bicicleta en serio. Y no volví exactamente igual. Pero encontré algo distinto, que también valió la pena.
+Hernando se quedó callado más tiempo del habitual, un silencio distinto al de otras llamadas, antes de hablar con una voz que Santi no le reconocía del todo.
 
-— ¿Cómo lo sabés, que valió la pena?
+— Te voy a decir algo que no te dije en enero, porque en enero todavía no estaba seguro de si era verdad —dijo Hernando—. Esta noche, viendo el Tour empezar sin vos, una parte de mí también sintió alivio. Y me da vergüenza decirlo así, en voz alta.
 
-— Porque estoy acá, hablando con vos a la una de la mañana, viendo el Tour que mi hijo no está corriendo este año, pero sabiendo que el año que viene, o el que sigue, vas a estar ahí otra vez, de una forma que todavía no podemos imaginar del todo —dijo Hernando—. Eso vale la pena, aunque esta noche no lo sientas así.
+— ¿Alivio? —preguntó Santi, descolocado—. ¿De qué?
 
-— ¿Y si nunca vuelvo al nivel de antes?
+— De no tener que verte ahí, jugándote el cuerpo en una bajada mojada otra vez, mientras yo miro desde una pantalla sin poder hacer nada —dijo Hernando—. Te lo digo porque si esta noche te sirve de algo saber que no sos el único que carga algo raro y contradictorio por dentro, ahí lo tenés. Yo también.
 
-Hernando pensó la pregunta con la misma seriedad que había aplicado a cada decisión importante de la carrera de su hijo durante años.
+Santi se quedó sin palabras un momento, escuchando algo que no esperaba de su padre.
 
-— Entonces vas a haber sido el campeón del Tour de Francia 2023, el corredor que casi ganó el Giro 2024 con la mejor crono de su vida en la última etapa, y el hombre que se levantó de una fractura vertebral con la misma dignidad con que ganó cada una de esas carreras —dijo Hernando—. Eso ya es una carrera completa, Santi. Cualquier cosa que venga después es un regalo extra, no una obligación que tengas que cumplir para que lo anterior haya valido la pena.
+— Nunca me habías dicho eso —dijo, finalmente.
+
+— Porque nunca te lo había podido decir sin sentir que te estaba fallando, como padre, como tu primer entrenador, como la persona que te enseñó a subir un puerto sin miedo —dijo Hernando—. Pero esta noche pensé: si él me cuenta lo que de verdad siente, yo también le debo lo mismo, sin pulirlo.
+
+— ¿Y entonces qué hago con eso? —preguntó Santi—. ¿Con tu alivio y mi miedo a no volver a ser el mismo?
+
+— No sé si hay que hacer algo con eso, todavía —dijo Hernando—. Quizás solo hay que dejar que las dos cosas existan juntas un tiempo: que yo tenga miedo de perderte en una bajada, y que vos tengas miedo de no volver a ser quien eras. Ninguna de las dos cosas anula a la otra.
+
+— ¿Y si nunca vuelvo al nivel de antes? —preguntó Santi, después de un silencio largo.
+
+Hernando no respondió de inmediato. Cuando habló, no fue con un discurso preparado, sino con la voz de alguien que estaba pensando en voz alta, descubriendo la respuesta al mismo tiempo que la decía.
+
+— Entonces vamos a tener que inventar, los dos juntos, qué significa ser tu padre y ser vos, sin que el Tour de Francia sea la vara que mida si valió la pena —dijo Hernando—. No tengo esa respuesta todavía, Santi. Por primera vez en mucho tiempo, no la tengo armada de antemano. Pero la vamos a buscar juntos, eso sí te lo puedo prometer.
 
 ---
 
@@ -218,7 +230,7 @@ Mariana sonrió, reconociendo en esa frase un eco de todo lo que le había dicho
 
 Esa madrugada, después de la primera llamada con Hernando, incapaz de dormir, Hernando había escrito en el cuaderno una línea que reflejaba el peso completo de la conversación:
 
-*29 de junio de 2025. La noche más oscura de Santi hasta ahora. El Tour empieza mañana sin él. Le dije lo que pude decirle. No sé si fue suficiente. Espero que el tiempo termine de hacer lo que mis palabras no pudieron.*
+*29 de junio de 2025. La noche más oscura de Santi hasta ahora. El Tour empieza mañana sin él. Le dije algo que nunca le había dicho, sobre el alivio raro que siento de no verlo correr este año. No sé si hice bien en decirlo. Pero esta vez no le di una respuesta armada. Buscamos la respuesta juntos, por primera vez, sin que yo fingiera tenerla de antemano.*
 
 Una semana después, agregó una línea más, cerrando el episodio con la perspectiva que solo el paso de los días podía ofrecer:
 

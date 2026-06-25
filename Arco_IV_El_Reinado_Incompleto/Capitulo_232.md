@@ -20,15 +20,19 @@ Daniela había insistido durante semanas en organizar una cena con un grupo más
 
 ---
 
-— ¿Y eso te da esperanza, o te parece otra excusa más para seguir postergando? —preguntó Camilo, con la franqueza que solo un amigo de tantos años podía permitirse.
+— ¿Y eso te da esperanza, o te parece otra excusa más para seguir postergando? —preguntó Camilo, con la franqueza que solo un amigo de tantos años podía permitirse, sin rodeos ni medias tintas, como hacía con cualquier tema que considerara importante de verdad.
 
 Mariana lo pensó un momento, dándole vueltas a la copa de vino sin beber.
 
 — Las dos cosas, en partes iguales —admitió—. Una parte de mí quiere creer que esta vez es distinto, que realmente va a tomarse el tiempo de pensarlo. Otra parte ya escuchó esa misma promesa, con distintas palabras, desde abril.
 
-— ¿Y qué vas a hacer si llega octubre y sigue sin decir nada concreto? —preguntó Daniela.
+— Yo, si te soy honesto, no sé cómo hacés —dijo Camilo, sirviéndose otro poco de vino—. No el esperar. Eso lo entiendo, más o menos. Lo que no entiendo es cómo seguís funcionando normal, con tu trabajo, con tus encargos, mientras del otro lado del mundo hay un tipo que en cualquier etapa se puede caer de la bicicleta a ochenta kilómetros por hora. Yo creo que ya me hubiera vuelto loco de los nervios.
 
-— No lo sé todavía —dijo Mariana, con sinceridad—. Supongo que ahí sí voy a tener que decidir algo yo misma, en lugar de seguir esperando a que él decida por los dos.
+— Uno se acostumbra a la idea, supongo —dijo Mariana—. O aprende a no pensarlo todo el tiempo, que es distinto a acostumbrarse.
+
+— ¿Y qué vas a hacer si llega octubre y sigue sin decir nada concreto? —preguntó Daniela, que había escuchado la conversación entera con un interés que no era exactamente preocupación, sino algo más parecido a la curiosidad de quien nunca había estado cerca de una vida tan distinta a la suya—. Porque, te soy sincera, una parte de mí también quiere saber cómo es eso, estar con alguien que media Europa reconoce en la calle. Debe ser una vida rarísima.
+
+— No lo sé todavía —dijo Mariana, con sinceridad, sin entrar en el comentario de Daniela—. Supongo que ahí sí voy a tener que decidir algo yo misma, en lugar de seguir esperando a que él decida por los dos.
 
 ---
 
@@ -116,14 +120,18 @@ Al día siguiente, mientras revisaba los encargos pendientes para las próximas 
 
 Su madre se quedó callada un momento, del otro lado de la línea, antes de responder con la calma de quien ya había vivido suficientes años como para no apurar las respuestas importantes.
 
-— Yo esperé seis años a tu papá, antes de que él se decidiera a pedirme matrimonio —dijo finalmente—. No te lo cuento para que hagas lo mismo. Te lo cuento porque, mirando para atrás, no me arrepiento de haber esperado, pero sí me arrepiento de no haberle puesto, en algún momento, un límite claro a esa espera. Eso es lo único que te diría: esperá si querés, pero poné un límite, aunque sea solo para vos misma.
+— No te voy a decir que esperes ni que no esperes, mija, porque eso ya lo sabés hacer sola —dijo finalmente—. Lo que sí te quiero decir es otra cosa, una que no tiene que ver con límites ni con plazos. Tengo miedo de que, sin darte cuenta, tu vida entera se vuelva la espera de la vida de otro.
 
-— ¿Y si ese límite llega y no pasa nada?
+— ¿Cómo así? —preguntó Mariana, desconcertada por el giro de la conversación.
 
-— Entonces seguís con tu vida, mija, con la cabeza en alto —dijo su madre—. Una vida completa no depende de que un solo hombre se decida a tiempo. Pero mientras todavía tengas esperanza real, no hay nada de malo en darle el espacio que pide.
+— Yo dejé la fotografía cuando me casé con tu papá —dijo su madre, después de un silencio que dejaba entender que la frase le costaba más de lo que sonaba—. Nunca te lo conté, porque no quería que sintieras que era un sacrificio que yo reclamaba. Pero lo dejé. Y durante años, organicé cada cosa de mi vida alrededor de la suya: sus turnos, sus traslados, lo que él necesitaba. No me arrepiento de haberlo amado. Me arrepiento de no haberme preguntado, a tiempo, si mi vida también merecía un lugar propio, separado de la suya.
 
-Mariana le agradeció el consejo, colgó el teléfono, y se quedó pensando, durante el resto de la tarde, en el plazo silencioso que ya empezaba a formarse en su cabeza, sin fecha exacta todavía, pero cada vez más cerca de tener una.
+— Mamá, yo tengo mi trabajo —dijo Mariana—. No es lo mismo.
 
-Mariana no respondió de inmediato, pero la frase de su madre se quedó con ella el resto del día, sumándose a las preguntas similares de Camilo y Daniela la noche anterior, como un coro creciente de voces que, sin ser exactamente una presión, le recordaban que el tiempo de espera, eventualmente, tendría que llegar a algún tipo de resolución, con o sin fecha exacta todavía escrita en ningún calendario.
+— Lo sé, y por eso me da esperanza con vos, no miedo —dijo su madre—. Pero te lo digo de todos modos, porque vos heredaste de mí más de lo que pensás, esa costumbre de poner al otro primero sin que nadie te lo pida. Lo único que te pido es que sigas siendo fotógrafa antes que ser la novia de nadie. Lo demás, esperalo si querés. Pero no dejes que la espera te vaya comiendo el resto.
+
+Mariana le agradeció el consejo, colgó el teléfono, y se quedó pensando, durante el resto de la tarde, no en un plazo ni en una fecha límite, sino en esa imagen nueva de su madre que nunca había conocido del todo: una mujer con una cámara que dejó de usar, mucho antes de que ella naciera, por amor a alguien que jamás se lo pidió directamente.
+
+Mariana no respondió de inmediato, pero la confesión de su madre se quedó con ella el resto del día, distinta a las preguntas de Camilo sobre los nervios de la espera y a la curiosidad de Daniela sobre la vida pública que vendría: esta era otra clase de advertencia, más profunda, sobre el riesgo de desaparecer dentro de la vida de otra persona sin notarlo siquiera, y se prometió, mientras guardaba la cámara en su estuche esa noche, que pasara lo que pasara con Santi, esa parte de ella —la fotógrafa que existía antes de la plaza de pueblo y la cadena de bicicleta— no era negociable.
 
 ---

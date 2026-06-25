@@ -30,6 +30,8 @@ Rusconi, escuchando la conversación por el mismo canal de radio desde el coche 
 
 — Entonces confío en el modelo —dijo Santi—. Y en lo que siento en las piernas, que coincide.
 
+Lo dijo con la voz tranquila que el radio exigía, pero por dentro, en el último kilómetro antes del Bemelerberg, la certeza no era tan completa como sonaba. Calculó, sin poder evitarlo, lo que significaba fallar: si atacaba ahí y no aguantaba, llegaría al Cauberg sin reserva y sin grupo, solo, gastado, viendo pasar a Van der Poel y Van Aert en la rampa final mientras él se quedaba clavado a mitad de la subida, vacío. No era una posibilidad remota. Era, calculó en ese mismo kilómetro, casi tan probable como el escenario contrario. Sintió, por primera vez en semanas, algo parecido al miedo concreto de equivocarse en público, no en un entrenamiento de diciembre sino frente a cámaras, frente a Rusconi, frente a un modelo que podía estar tan equivocado como acertado.
+
 La diferencia con el grupo de favoritos —Van der Poel, Van Aert, Pogačar ausente ese fin de semana porque su calendario apuntaba directamente a la Flèche— se abrió en cuestión de trescientos metros, con Santi levantándose del sillín en el momento exacto en que la pendiente del Bemelerberg alcanzaba su punto más duro, sorprendiendo a un grupo que no había anticipado ningún movimiento serio tan lejos de la meta.
 
 Para cuando llegaron al Cauberg, la subida final, empinada y estrecha entre casas de ladrillo con la gente apretada a ambos lados de la calle gritando en holandés y flamenco, Santi llevaba doce segundos de ventaja sobre el grupo perseguidor.

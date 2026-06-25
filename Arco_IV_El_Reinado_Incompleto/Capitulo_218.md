@@ -57,27 +57,7 @@ Luca Arnheim, en su rol de gregario principal, lideró buena parte del reconocim
 
 Al cruzar el segundo puente sobre la ría, ya de vuelta hacia el hotel, Santi se encontró rodando un momento junto a Thibaut Pinot, que reconocía el mismo tramo con su propio equipo, los dos grupos compartiendo unos metros de carretera antes de que cada uno tomara su propio ritmo.
 
-— Alors, Santi, encore une saison où tu ne fais que le Tour? Tu vas nous épuiser, à force de n'avoir qu'un seul objectif.
-*(Entonces, Santi, ¿otra temporada en la que solo corrés el Tour? Nos vas a agotar, a fuerza de tener un solo objetivo.)*
-
-— C'est plus simple comme ça, Thibaut. Une seule chose à laquelle penser, du matin au soir.
-*(Es más simple así, Thibaut. Una sola cosa en la que pensar, de la mañana a la noche.)*
-
-— Simple pour toi, peut-être. Pour nous qui devons te suivre dans les Pyrénées, c'est une autre histoire.
-*(Simple para vos, quizás. Para los que tenemos que seguirte en los Pirineos, es otra historia.)*
-
-Santi se rio, con un afecto genuino hacia el corredor francés, cuya última temporada profesional ya empezaba a sentirse, entre el pelotón, como una cuenta regresiva silenciosa que nadie quería nombrar en voz alta todavía.
-
-— On se reverra dans les Vosges, j'imagine. C'est ta région, non?
-*(Nos vamos a ver en los Vosgos, imagino. Es tu región, ¿no?)*
-
-— Ma région, oui. Peut-être que j'aurai une surprise pour vous tous, ce jour-là.
-*(Mi región, sí. Quizás tenga una sorpresa para todos ustedes, ese día.)*
-
-— J'espère bien.
-*(Eso espero.)*
-
-Santi no supo todavía, esa tarde, cuánto sentido iba a cobrar esa frase casual tres semanas después, en una etapa de los Vosgos que ninguno de los dos imaginaba con la claridad que tendría llegado el momento.
+Pinot le dijo algo en francés, medio en broma, sobre que otra temporada de un solo objetivo iba a terminar agotando a todo el pelotón que tuviera que seguirlo en los Pirineos. Santi respondió, también en francés, que era más simple así —una sola cosa en la cabeza, de la mañana a la noche— y Pinot insistió, riendo, en que simple para él tal vez, pero no para quien tuviera que perseguirlo cuesta arriba. Hablaron un par de frases más, livianas, sobre los Vosgos, la región natal de Pinot, donde según él podía haber alguna sorpresa esperando el día que la carrera pasara por ahí. Santi se rio, con un afecto genuino hacia el corredor francés, cuya última temporada profesional ya empezaba a sentirse, entre el pelotón, como una cuenta regresiva silenciosa que nadie quería nombrar en voz alta todavía. Se separaron en el siguiente cruce, cada equipo hacia su propio hotel, con el ruido del agua de la ría todavía sonando bajo el puente, el olor a sal mezclado con el del asfalto recién mojado por una llovizna que ya había pasado, y las gaviotas dando vueltas sobre los tejados de la Casco Viejo, gritando con esa voz áspera que a Santi siempre le recordaba, sin saber bien por qué, a las tardes de niebla en San José. Santi no supo, esa tarde, cuánto sentido iba a cobrar esa frase casual tres semanas después, en una etapa de los Vosgos que ninguno de los dos imaginaba con la claridad que tendría llegado el momento.
 
 Después del reconocimiento, el equipo completo se reunió para la cena habitual previa a la primera etapa, en una sala privada del hotel reservada especialmente para la ocasión. Ferretti, de pie frente a los ocho corredores que formarían la alineación de ese Tour, dio un breve discurso que repitió, casi palabra por palabra, lo que había dicho en enero en la reunión de planificación.
 

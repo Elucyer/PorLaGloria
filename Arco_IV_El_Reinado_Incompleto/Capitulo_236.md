@@ -60,6 +60,22 @@ Santi sonrió, agradeciendo la intervención de su padre.
 
 — Entonces lo decidimos así —dijo, finalmente—. Los dos Grand Tours este año. Que sea el año más difícil. Vamos a estar preparados.
 
+— Antes de cerrar el tema del calendario, hay una novedad del equipo que tenés que confirmar vos mismo —dijo Rusconi, cambiando de carpeta en la pantalla—. Ferretti me pidió que te lo planteara directamente, porque la idea fue tuya antes que de nadie.
+
+— ¿Cuál idea?
+
+— David Arroyave —dijo Rusconi—. El equipo le ofreció un contrato de gregario de montaña para esta temporada, después de la conversación que tuvieron en julio. Él aceptó la semana pasada. Lo único que falta es que vos lo confirmes, porque Ferretti no quería avanzar sin que supieras que la propuesta había llegado tan lejos.
+
+Santi se quedó callado un momento, con la imagen todavía clara del mensaje de aquella noche en Laureles: *contá conmigo como gregario, ya hice las paces con esa idea hace tiempo.*
+
+— Confirmado —dijo, finalmente—. Que firme.
+
+— ¿Algo que quieras que le transmita, antes de que sea oficial? —preguntó Rusconi.
+
+— Decile que el año que viene, esta vez, le toca a él decir cuándo.
+
+Hernando, desde el sillón, no necesitó que se lo explicaran. Recordaba el nombre desde los catorce años de Santi, desde una vuelta departamental donde cuatro segundos habían sido la distancia más larga del mundo. Anotó algo en el margen del cuaderno, sin decirlo en voz alta todavía.
+
 — Una última cosa —agregó Rusconi, antes de despedirse—. Quiero ser honesto con algo que no dije todavía. Correr dos Grand Tours también significa más días en carretera, más probabilidad estadística de algún incidente: una caída, un virus, cualquier imprevisto que en un año de un solo objetivo hubiéramos podido evitar con más margen de descanso. No te lo digo para asustarte. Te lo digo porque prefiero que lo sepas de entrada, no que te sorprenda a mitad de año.
 
 — Lo entiendo —dijo Santi, sin que la advertencia lo afectara especialmente, acostumbrado ya a las explicaciones detalladas de Rusconi sobre cada riesgo calculado de la temporada—. Es parte del trato, supongo. Más ambición, más exposición.
@@ -94,7 +110,7 @@ Más tarde esa noche, ya en su cuarto, Santi le contó a Mariana, por videollama
 
 — Me encantaría eso —dijo Santi, con una sonrisa que Mariana pudo ver claramente a través de la pantalla—. Más que cualquier otra cosa del calendario de este año.
 
-Santi se quedó pensando esa frase un momento, mirando hacia la ventana de la sala, donde la lluvia de enero caía suave sobre las calles de Laureles, sin saber todavía que ese año, el más ambicioso de su carrera en el papel, le tenía reservado algo que ningún plan de Rusconi podía anticipar.
+Santi se quedó pensando esa frase un momento, mirando hacia la ventana de la sala, donde la lluvia de enero caía suave sobre las calles de Laureles. El plan de Rusconi cubría las dos Grand Tours, el descanso entre bloques, hasta el margen exacto de fatiga tolerable; pero ningún cuaderno, ninguna curva de potencia, alcanzaba para anticipar todo lo que un año entero podía guardar.
 
 ---
 
@@ -102,8 +118,8 @@ Esa noche, antes de dormir, Hernando abrió el cuaderno y escribió, con la mism
 
 *Enero 2024. Decisión: los dos Grand Tours, Giro y Tour, como antes de 2023. El rival más grande: Pogačar, que viene por el mismo doblete. El año más difícil hasta ahora, dice Rusconi. Veremos.*
 
-Cerró el cuaderno y se quedó un momento más despierto, pensando en lo que Santi le había dicho sobre querer hacer espacio para Mariana al mismo tiempo que para dos Grand Tours. En sus propios años de corredor, esa idea —repartir la vida entre el ciclismo y otra cosa con la misma intensidad— nunca había sido una opción real para él. Pero el deporte había cambiado, pensó, y quizás también había cambiado lo que un corredor podía permitirse querer al mismo tiempo que ganar carreras.
+Cerró el cuaderno, pero se quedó con él todavía sobre las piernas, dándole vueltas a lo que Santi le había dicho sobre querer hacer espacio para Mariana al mismo tiempo que para dos Grand Tours. En sus propios años de corredor, esa idea —repartir la vida entre el ciclismo y otra cosa con la misma intensidad— nunca había sido una opción real para él. El deporte había cambiado, se dijo, y quizás también había cambiado lo que un corredor podía permitirse querer al mismo tiempo que ganar carreras.
 
-Pensó también, antes de finalmente quedarse dormido, en la promesa de Mariana de viajar a ver alguna etapa del Giro, y se preguntó si esa pequeña noticia, casi de paso en medio de tantos planes deportivos, no terminaría siendo, con el tiempo, la línea más importante de todo lo que había escrito esa noche en el cuaderno.
+Volvió a abrir el cuaderno una última vez, ya de pie para ir a acostarse, y agregó al margen, con letra más pequeña que el resto de la página, una línea que no tenía nada que ver con calendarios ni con potencia: la promesa de Mariana de viajar a ver alguna etapa del Giro. Una noticia casi de paso, pensó, mientras guardaba el cuaderno en el cajón de siempre, pero de esas que con los años terminan pesando más que cualquier resultado.
 
 ---

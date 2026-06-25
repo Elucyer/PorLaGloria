@@ -38,6 +38,14 @@ Luca Arnheim, sentado junto a Santi durante la cena, repasó en voz baja el plan
 
 — Voy a darlo todo igual —dijo Luca, con la determinación de siempre—. Esta etapa la entrenamos juntos desde enero. No voy a fallar en el día que más importa.
 
+Arroyave, sentado al otro lado de la mesa, esperó a que Luca terminara antes de agregar su propia parte del plan.
+
+— Yo te relevo después de Luca, en el tramo final del Tourmalet —confirmó Arroyave—. Si el cuerpo aguanta, te llevo hasta donde pueda. Si no aguanta, por lo menos te llevo más cerca de la cima de lo que llegué en el Grappa.
+
+— Con eso me alcanza —dijo Santi—. Más de lo que esperaba, hace siete años, viéndote ganar el Porvenir.
+
+— Yo tampoco esperaba esto, hace siete años —dijo Arroyave, con una media sonrisa que no terminaba de formarse del todo—. Pero acá estamos.
+
 Pogačar, que cenaba en una mesa cercana del mismo hotel con su propio equipo, se acercó un momento antes de retirarse a su habitación, con la cordialidad que ya era costumbre entre los dos.
 
 — J'ai vu ta famille arriver aujourd'hui —dijo el esloveno—. C'est important, ça, après toutes ces années.
@@ -49,7 +57,7 @@ Pogačar, que cenaba en una mesa cercana del mismo hotel con su propio equipo, s
 — Alors bonne course demain —dijo Pogačar—. Que le meilleur gagne, et que tout le monde rentre en sécurité.
 *(Entonces buena carrera mañana. Que gane el mejor, y que todos lleguen seguros a casa.)*
 
-Esa última frase, dicha casi como una cortesía de despedida, quedaría, con el tiempo, como una de las más extrañas que Santi recordaría de toda esa semana.
+Santi sonrió ante la cortesía y le devolvió el gesto con un apretón de manos antes de que cada uno volviera a su mesa.
 
 ---
 
@@ -107,7 +115,7 @@ Antes de dormir, revisó el teléfono una última vez. Hernando le había mandad
 
 *Hernando: Maravilloso tenerte de amarillo, en persona, después de tantos años viéndolo por televisión. Pase lo que pase mañana, ya ganamos algo esta semana, solo con estar acá juntos.*
 
-Santi leyó el mensaje dos veces, sintiendo una calma extraña antes de apagar la luz, sin saber que esas palabras de su padre —"pase lo que pase mañana"— iban a quedar resonando en su cabeza durante mucho más tiempo del que ninguno de los dos podía imaginar esa noche en Tarbes.
+Santi leyó el mensaje dos veces, sintiendo una calma rara, distinta a la de cualquier otra víspera de etapa, antes de apagar la luz y guardar el teléfono bajo la almohada, como hacía siempre que quería que lo primero que viera al despertar fuera la pantalla y no la ventana.
 
 Carmen, en la habitación contigua, no podía dormir. Hernando la encontró despierta, sentada junto a la ventana, mirando hacia las montañas oscuras que se recortaban contra el cielo nocturno de los Pirineos.
 
@@ -117,21 +125,23 @@ Carmen, en la habitación contigua, no podía dormir. Hernando la encontró desp
 
 — En cierto sentido, lo es —dijo Hernando—. La primera que vemos juntos, en persona, los tres.
 
-Carmen sonrió, apoyando la cabeza en el hombro de su esposo, mientras afuera las montañas seguían ahí, indiferentes y enormes, esperando el día siguiente sin saber nada de lo que estaba por suceder en sus laderas.
+Carmen sonrió, apoyando la cabeza en el hombro de su esposo, mientras afuera las montañas seguían ahí, indiferentes y enormes, esperando el día siguiente.
 
 — ¿Vos crees que va a poder vernos, ahí en la cima, entre toda la gente? —preguntó Carmen, después de un rato de silencio.
 
 — Va a buscarnos, seguro —dijo Hernando—. Aunque sea un segundo, en medio del esfuerzo. Lo conozco. Siempre busca a la gente que quiere, en cualquier multitud.
 
-— Espero que ese segundo no le cueste nada —dijo Carmen, con una preocupación que no terminaba de tener forma clara todavía—. No sé por qué, pero esta noche tengo una sensación rara, que no había tenido en ninguna otra carrera.
+— Estoy nerviosa, Hernando —admitió Carmen—. Más de lo que pensé que iba a estar. Treinta años viéndolo correr por televisión y ahora que lo tengo a un cerro de distancia no sé ni qué hacer con las manos.
 
-— Es solo el nerviosismo de la primera vez, viéndolo en persona —dijo Hernando, intentando calmarla—. Va a estar bien. Siempre está bien.
+— Es normal —dijo Hernando, tomándole la mano—. A mí también me tiemblan un poco, si te soy sincero. Es distinto cuando los ves de cerca. El cuerpo no se acostumbra tan fácil.
 
-Carmen asintió, sin del todo convencida, antes de finalmente cerrar los ojos, mientras Hernando se quedaba un rato más despierto, mirando hacia la oscuridad de los Pirineos, sin poder explicar tampoco por qué esa noche específica se sentía distinta a cualquier otra víspera de carrera de los últimos treinta años.
+— Mañana madrugamos, entonces, para alcanzar buen lugar —dijo Carmen, bostezando ya, el cansancio del vuelo ganándole por fin a los nervios—. Si tu hijo nos ve ahí arriba con el cartel, que sepa que nos costó subir casi tanto como a él.
 
-Sacó el cuaderno de la chaqueta, en silencio, para no despertar a Carmen, y escribió una última línea antes de finalmente apagar también su propia luz.
+Hernando se rio bajito y la abrazó un momento más, antes de que ambos, vencidos por el viaje y por el día largo, se quedaran dormidos casi sin darse cuenta.
 
-*19 de julio de 2024. Tarbes. Mañana, el Tourmalet, en persona, después de treinta años de verlo solo por televisión. Cinco segundos de ventaja. Carmen tiene una sensación rara esta noche, que no supo explicar. Espero que sea solo nervios.*
+Sacó el cuaderno de la chaqueta antes de que el sueño lo alcanzara del todo, y escribió una última línea, apenas legible por el cansancio.
+
+*19 de julio de 2024. Tarbes. Mañana, el Tourmalet, en persona, después de treinta años de verlo solo por televisión. Cinco segundos de ventaja. Carmen, nerviosa como en la primera carrera de Santi. Yo también, aunque no lo diga tanto.*
 
 Cerró el cuaderno, lo guardó de vuelta en el bolsillo, y se quedó mirando el techo de la habitación durante un rato más, antes de que el cansancio del viaje finalmente lo alcanzara.
 

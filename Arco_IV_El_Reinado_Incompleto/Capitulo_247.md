@@ -39,7 +39,7 @@ Esa noche, en la cena del equipo, Ferretti repasó la estrategia general para la
 
 ---
 
-Luca Arnheim, que llegaba al Tour después de haber compartido también el desgaste del Giro como gregario, escuchó la instrucción de Ferretti con una seriedad que reflejaba su propio cansancio acumulado.
+Luca Arnheim, que llegaba al Tour después de haber compartido también el desgaste del Giro como gregario, escuchó la instrucción de Ferretti con una seriedad que reflejaba su propio cansancio acumulado. David Arroyave, sentado a su lado en la misma mesa, completaba ya su segundo Grand Tour consecutivo con el equipo, instalado en su rol de gregario de montaña con una naturalidad que, meses atrás, ni él mismo hubiera anticipado.
 
 — ¿Cómo estás vos, físicamente? —le preguntó Santi, esa noche, antes de dormir.
 

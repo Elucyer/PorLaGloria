@@ -76,31 +76,35 @@ Carmen sonrió, sirviendo más sopa, con la misma calidez que aplicaba a cualqui
 
 Una noche, después de la cena, Hernando encontró un momento para hablar con Mariana solo, mientras Santi y Carmen lavaban los platos en la cocina.
 
-— Quiero decirte algo, si me permitís —dijo Hernando, sentándose junto a ella en la sala.
+— Quiero decirte algo, si me permitís, que no es exactamente lo que esperás escuchar —dijo Hernando, sentándose junto a ella en la sala, con una seriedad distinta a la calidez habitual de la mesa familiar.
 
 — Claro.
 
-— Vi a mi hijo cambiar mucho este último año —dijo Hernando—. No solo por el Tour, que fue extraordinario. Por cómo empezó a pensar en cosas que antes no le importaban. Y creo que parte de ese cambio tiene que ver con vos.
+— No te voy a hablar de cuánto cambió Santi este año, aunque cambió mucho —dijo Hernando—. Te voy a hablar de algo más incómodo, porque creo que nadie más te lo va a decir de frente. Maurizio Ferretti me llamó en diciembre, antes de Navidad, después de que un fotógrafo italiano intentara seguir a Santi hasta acá, hasta San José, buscando precisamente algo como esto: una novia, una historia que vender.
 
-Mariana se quedó callada un momento, conmovida por la franqueza del comentario.
+Mariana se quedó callada, sintiendo que el peso de la conversación cambiaba de dirección.
 
-— Espero estar a la altura de eso —dijo, finalmente.
+— No lo sabía —dijo, finalmente—. Santi nunca me lo contó.
 
-— No hace falta estar a la altura de nada —dijo Hernando—. Solo hace falta que sigas siendo quien fuiste desde el principio: la persona que lo vio sin saber quién era. Eso es lo que él necesita que no cambie nunca, sin importar cuánto crezca todo lo demás.
+— No te lo contó porque Duarte lo resolvió antes de que llegara a publicarse nada, y Santi decidió que no hacía falta preocuparte por algo que no pasó —dijo Hernando—. Pero yo sí quiero que lo sepas, porque no es la primera vez ni va a ser la última. Maurizio me dijo algo esa llamada que no se me olvida: que en este deporte, la gente que rodea al corredor termina pagando un precio que nadie les preguntó si querían pagar. Lo vivió él mismo, hace años, con gente cercana a corredores que dirigió.
 
-— Puedo preguntarte algo, ya que estamos hablando con franqueza —dijo Mariana—. ¿Cómo fue para usted, con Carmen? Santi me contó que tardó dos años en decidirse.
+— ¿Y usted qué piensa de eso? —preguntó Mariana, con una franqueza que igualaba la de Hernando.
 
-Hernando se rio, con un gesto que reveló, por un instante, al joven gregario tímido que había sido décadas atrás.
+— Pienso que vos todavía podés decidir si querés esa vida, con los ojos bien abiertos, antes de que sea demasiado tarde para decidir nada —dijo Hernando—. No te lo digo para espantarte. Te lo digo porque te respeto demasiado como para dejarte entrar a esto sin que alguien te muestre el costado que no se ve en las fotos bonitas del Tour.
 
-— Tardé porque tenía miedo de no merecerla —dijo—. Era un corredor de pueblo, sin futuro claro, y ella merecía algo mejor que esa incertidumbre. Me tomó dos años entender que la incertidumbre se enfrenta junto a alguien, no se evita esperando a tener todo resuelto antes de empezar.
+— Se lo agradezco —dijo Mariana, después de un silencio largo—. Aunque no sé todavía qué hacer con esa información.
 
-— Suena parecido a lo que yo sentí este último año —admitió Mariana.
+— No hace falta que hagas nada con ella hoy —dijo Hernando—. Solo guardala. Y si alguna vez sentís que el precio es más alto de lo que estás dispuesta a pagar, quiero que sepas que en esta casa nunca vas a tener que justificar esa decisión ante nadie.
 
-— Por eso te lo cuento —dijo Hernando—. Para que sepas que lo que sintieron los dos, esa espera incómoda, no es nada nuevo en esta familia. Solo espero que a ustedes les haya tomado menos tiempo que a nosotros.
+— Puedo preguntarle algo, ya que estamos hablando con esta franqueza —dijo Mariana—. ¿Carmen alguna vez sintió ese mismo miedo, con usted, cuando era corredor?
 
-— Un año, casi exacto —dijo Mariana, sonriendo—. Bastante menos que dos.
+Hernando se rio, con un gesto que reveló, por un instante, al joven gregario tímido que había sido décadas atrás, aunque la risa se apagó pronto, dándole paso a algo más reflexivo.
 
-— Entonces ya van por buen camino —dijo Hernando, riendo.
+— Carmen nunca tuvo que lidiar con fotógrafos escondidos ni con historias robadas —dijo—. En mi época, ser gregario de pueblo no le interesaba a nadie fuera de Antioquia. Lo de ella fue distinto: el miedo de casarse con alguien sin futuro claro en las piernas. Lo que vos enfrentás es al revés, casi más difícil. Un futuro asegurado, pero un costo de exposición que ella nunca tuvo que considerar.
+
+— Es raro, pensarlo así —dijo Mariana—. Que el éxito de él termine siendo, de alguna forma, mi propio riesgo.
+
+— Es exactamente eso —confirmó Hernando—. Por eso te lo cuento ahora, en lugar de dejar que lo descubras sola, el día que ya sea demasiado tarde para decidir con calma.
 
 ---
 
@@ -123,6 +127,8 @@ Antes de volver a Bogotá, Mariana y Santi caminaron una última vez por la call
 Se despidieron en el aeropuerto, sin la incertidumbre que había marcado cada despedida anterior, con la certeza tranquila de que, fuera lo que fuera que trajera el año más exigente de la carrera de Santi, esta vez no lo iban a enfrentar fingiendo que no había nada entre los dos.
 
 En el vuelo de vuelta a Bogotá, Mariana revisó las fotos que había tomado durante la semana —los niños del gimnasio de San José, Hernando en la piedra del abuelo, una imagen robada de Santi y Carmen riendo en la cocina que había tomado sin que ninguno de los dos lo notara— y pensó que, por primera vez desde noviembre de 2022, no tenía que guardar esas fotos en una carpeta sin nombre, escondida, como algo que no se atrevía a nombrar del todo. Esta vez podía simplemente guardarlas como lo que eran: el comienzo de algo real.
+
+Pensó también, sin poder evitarlo, en la conversación con Hernando, en el fotógrafo italiano que había llegado hasta San José sin que ella lo supiera, en la frase de Maurizio Ferretti sobre el precio que pagaba la gente alrededor de un corredor. No era miedo, exactamente, lo que sentía revisando esas fotos con esa información nueva en la cabeza. Era algo más parecido a una claridad incómoda: que entrar en la vida de Santi de esa forma, abierta y oficial, significaba entrar también en la mira de cámaras que ella nunca había elegido enfrentar. Guardó esa idea junto con las fotos, sin resolverla todavía, decidida a hablarlo con Santi cuando encontrara el momento correcto, no esa misma noche, pero tampoco mucho después.
 
 Le escribió a Daniela apenas el avión alcanzó altitud de crucero, con el teléfono todavía en modo avión pero la nota guardada para enviar en cuanto aterrizara.
 

@@ -32,7 +32,11 @@ En la ceremonia final, sin la tradicional llegada a los Campos Elíseos por el c
 
 — Quiero dedicar esta victoria a Santiago Reyes —dijo Pogačar, en el discurso del podio, en un gesto que ningún protocolo exigía y que sorprendió a toda la prensa presente—. Corrimos uno contra el otro durante años, de la forma más dura posible. Pero el respeto que construimos en esos años es más grande que cualquier rivalidad. Espero verlo de vuelta en la carretera, cuando esté listo, no antes.
 
-El gesto generó una ovación del público presente en Niza que, según varios cronistas, fue más larga y más sentida que la que había recibido el propio resultado deportivo del Tour.
+Se quedó un momento más en el micrófono, como si no hubiera terminado de decir lo que quería decir.
+
+— En Eslovenia tenemos una palabra, *spoštovanje*, que no se traduce del todo bien al francés ni al inglés —agregó, buscando las palabras con un cuidado poco habitual en él—. Es más que respeto. Es algo que se gana corriendo al lado de alguien durante años, no contra él. Eso es lo que siento hoy, más que cualquier otra cosa.
+
+El gesto generó una ovación del público presente en Niza que, según varios cronistas, fue más larga y más sentida que la que había recibido el propio resultado deportivo del Tour. Algunos espectadores, micrófono de algún canal local mediante, admitieron entre lágrimas que habían llorado más por esa frase que por cualquier final de etapa de las tres semanas anteriores.
 
 En la cabina de France Télévisions, Laurent y Philippe cerraban su última transmisión de ese Tour con un tono muy distinto al de cualquier final de etapa anterior.
 
@@ -47,11 +51,25 @@ En la cabina de France Télévisions, Laurent y Philippe cerraban su última tra
 
 ---
 
-Santi, todavía en el hospital de Tarbes en proceso de estabilización antes de un traslado planeado a una clínica especializada en Ginebra, vio el discurso de Pogačar desde la cama del hospital, con Hernando, Carmen y Mariana presentes.
+Santi, todavía en el hospital de Tarbes en proceso de estabilización antes de un traslado planeado a una clínica especializada en Ginebra, vio el discurso de Pogačar desde la cama del hospital, con Hernando, Carmen y Mariana presentes, los cuatro apretados alrededor de la pantalla pequeña de un teléfono porque nadie había pensado en pedir que llevaran un televisor a la habitación.
 
 — Eso fue inesperado —dijo Santi, con la voz todavía débil por la medicación, pero con los ojos húmedos por una emoción que no intentó esconder.
 
-— Es un buen gesto, de un buen competidor —dijo Hernando—. Algo que dice mucho de quién es, más allá de cualquier número en una clasificación general.
+Nadie en la habitación dijo nada durante varios segundos. Carmen fue la primera en quebrarse, con un llanto silencioso que intentó disimular llevándose la mano a la boca, sin éxito.
+
+— Treinta años viéndote correr, y nunca vi a un rival hacer algo así —dijo Carmen, con la voz entrecortada—. Ese muchacho tiene el corazón en el lugar correcto.
+
+— Es un buen gesto, de un buen competidor —dijo Hernando, con los ojos igual de húmedos, aunque intentando mantener la compostura frente a su hijo—. Algo que dice mucho de quién es, más allá de cualquier número en una clasificación general.
+
+Mariana, sentada en el borde de la cama, le apretó la mano sana a Santi sin decir nada, como si las palabras sobraran en ese momento específico.
+
+— ¿Vos sabías que iba a hacer esto? —le preguntó Santi, todavía sorprendido.
+
+— Ni idea —dijo Mariana—. Pero no me extraña, viniendo de él. Los vi correr juntos suficientes veces como para saber que esa rivalidad siempre tuvo algo de cariño raro, que ninguno de los dos sabía bien cómo nombrar.
+
+Santi se rio bajito, un gesto que le costó por las costillas, pero que hizo de todas formas.
+
+— Cariño raro —repitió—. Esa es una buena forma de decirlo.
 
 Santi le escribió un mensaje breve a Pogačar esa misma noche, el primer contacto directo entre los dos desde el accidente.
 
@@ -59,19 +77,27 @@ Santi le escribió un mensaje breve a Pogačar esa misma noche, el primer contac
 
 *Pogačar: Tomate el tiempo que necesites. El pelotón no es lo mismo sin vos ahí, peleando cada metro.*
 
+*Santi: Cuando vuelva, no esperes que te lo agradezca dejándote ganar nada.*
+
+*Pogačar: Eso espero. Sería un insulto que lo hicieras.*
+
+Hernando, leyendo el intercambio por encima del hombro de su hijo, sonrió de una forma que no había sonreído desde antes del accidente.
+
+— Ese es el muchacho que conozco —dijo, simplemente, antes de guardar el teléfono en la mesa de noche.
+
 ---
 
-Esa misma semana, el traslado a Ginebra se concretó sin complicaciones, con Rusconi coordinando cada detalle del proceso médico y Ferretti gestionando, en paralelo, la reorganización completa del calendario del equipo de cara a lo que quedaba de la temporada.
+Esa misma semana, el traslado a Ginebra se concretó sin complicaciones, con Rusconi coordinando el proceso médico y Ferretti gestionando, en paralelo, la reorganización del calendario del equipo de cara a lo que quedaba de la temporada: una llamada breve con Duarte bastó para confirmar que los patrocinadores principales, por ahora, se mostraban comprensivos.
 
-— Vamos a tener que replantear todo —le dijo Ferretti a Duarte, en una llamada desde Ginebra—. No solo el calendario deportivo. Los patrocinios, las expectativas, todo. Esto cambia completamente el panorama de los próximos dos años.
+Arroyave, que había terminado el Tour en un puesto anónimo de la clasificación general, lejos de cualquier titular, le escribió a Santi un mensaje breve apenas se confirmó el traslado a Ginebra, sin esperar respuesta inmediata.
 
-— Lo sé —dijo Duarte—. Ya empecé a hacer llamadas. Los patrocinadores principales están comprensivos, por ahora. Eso puede cambiar si la recuperación se extiende demasiado.
+*Arroyave: No sé si te acordás de mucho de esa tarde en el Tourmalet, con la medicación y todo. Yo sí me voy a acordar siempre. Recuperate, que todavía nos queda una carrera pendiente, aunque sea solo para que algún día me ganes por más de cuatro segundos.*
 
-— Entonces hay que comunicar con cuidado, desde el principio, que esto va a ser un proceso largo —dijo Ferretti—. Nadie se beneficia de falsas expectativas.
+Santi, leyendo el mensaje días después, cuando el dolor por fin le permitió sostener el teléfono sin que el brazo le temblara, sonrió por primera vez desde el accidente sin que nadie tuviera que provocarlo.
 
-Koen, que también participó de la llamada desde Ginebra, agregó una nota propia, más personal que técnica.
+Koen, que se había quedado en Francia un día más para encargarse personalmente del traslado de la bicicleta, llamó esa misma noche, con la voz más afectada de lo habitual.
 
-— Revisé la bicicleta después del accidente, apenas la recuperamos —dijo Koen, con la voz más afectada de lo habitual—. No fue ningún fallo mecánico. Fue solo el asfalto húmedo y la velocidad del grupo. Necesitaba decir esto en voz alta, para mí mismo, más que para cualquiera de ustedes.
+— Revisé la bicicleta después del accidente, apenas la recuperamos —dijo Koen—. No fue ningún fallo mecánico. Fue solo el asfalto húmedo y la velocidad del grupo. Necesitaba decir esto en voz alta, para mí mismo, más que para cualquiera de ustedes.
 
 — Nadie pensó que fue tu responsabilidad, Koen —dijo Ferretti, con calidez.
 

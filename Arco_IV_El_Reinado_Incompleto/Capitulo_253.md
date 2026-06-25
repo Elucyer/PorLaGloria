@@ -22,7 +22,19 @@ Hernando, Carmen y Mariana llegaron al hospital poco más de cuarenta minutos de
 
 La espera, en una sala adyacente reservada para la familia gracias a la gestión urgente de Duarte desde Colombia, se extendió durante casi dos horas, con Carmen rezando en voz baja, Hernando revisando el teléfono cada pocos minutos sin realmente leer nada, y Mariana sentada entre los dos, sosteniendo la mano de Carmen sin decir mucho, consciente de que cualquier palabra de consuelo prematura podía sonar vacía antes de tener información real.
 
-Ferretti y Rusconi llegaron al hospital poco después, habiendo dejado al resto del equipo a cargo de Luca Arnheim y los otros corredores para la conferencia de prensa obligatoria de fin de etapa.
+Ferretti y Rusconi llegaron al hospital poco después, habiendo dejado al resto del equipo a cargo de Luca Arnheim y los otros corredores para la conferencia de prensa obligatoria de fin de etapa. Arroyave, que se había negado a abandonar el lugar de la caída hasta ver despegar el helicóptero, llegó al hospital por su propia cuenta más de una hora después, todavía con el maillot del equipo puesto y restos de tierra del terraplén en las piernas, sin que nadie del staff hubiera logrado convencerlo de cambiarse antes.
+
+— No tenías que venir hasta acá —le dijo Hernando, encontrándolo de pie en el pasillo, sin saber bien quién era ese corredor colombiano que conocía de nombre desde hacía años, pero que nunca había visto de cerca.
+
+— Tenía que venir —dijo Arroyave, simplemente—. Lo vi caer. Necesitaba saber que estaba consciente, con mis propios ojos, no por un comunicado.
+
+Hernando lo miró un momento más, reconociendo algo en la forma en que lo había dicho, antes de extenderle la mano.
+
+— Sos Arroyave, ¿no? —dijo Hernando—. Santi me habló de vos, hace meses. Del Porvenir, de catorce años atrás.
+
+— El mismo —confirmó Arroyave, con una mezcla extraña de orgullo y vergüenza por estar siendo reconocido en esas circunstancias—. Hoy aprendí que cuatro segundos en una carrera de juveniles no es nada, comparado con lo que se siente bajar corriendo un terraplén sin saber si vas a encontrar a alguien con vida.
+
+Hernando no dijo nada más, solo le apretó el hombro un instante, antes de que ambos se quedaran sentados en silencio, cada uno con su propia versión del mismo miedo.
 
 — ¿Hay noticias? —preguntó Ferretti, sentándose junto a Hernando.
 

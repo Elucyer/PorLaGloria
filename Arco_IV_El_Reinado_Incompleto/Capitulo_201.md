@@ -115,3 +115,15 @@ Esa noche, antes de dormir, Hernando abrió el cuaderno por primera vez en el a�
 Cerró el cuaderno, apagó la luz de la mesa de noche, y se quedó un rato despierto, escuchando la lluvia que seguía cayendo afuera, pensando en su propio invierno de hacía treinta años, cuando todavía corría, y en cómo nunca había tenido la oportunidad de apostar todo a una sola carrera de la manera en que su hijo estaba a punto de hacerlo.
 
 ---
+
+En su cuarto, al otro lado del pasillo, Santi tardó más de lo habitual en dormirse. Cuando por fin lo hizo, el sueño llegó con la forma exacta que llevaba apareciendo, de manera intermitente, desde el otoño de 2021: la rampa de salida de la crono, el número treinta y tres marcado en su dorsal, el reloj corriendo en rojo sobre su cabeza mientras bajaba la mano del comisario. Pedaleaba, en el sueño, con una sensación de fuerza completa en las piernas —ninguna fatiga, ninguna duda física— y aun así, cada vez que miraba el cronómetro de la bicicleta, el número en pantalla no avanzaba al ritmo que su cuerpo le decía que debería avanzar. Llegaba a la meta convencido de haber hecho la crono perfecta. Después, en la pantalla gigante junto al podio, aparecía el tiempo de Pogačar, y la diferencia: catorce segundos. Siempre los mismos catorce segundos, sin variar nunca, como si el sueño tuviera memoria propia de la cifra exacta y se negara a inventar otra.
+
+Se despertó de golpe, un poco antes de las tres de la mañana, con la sábana enredada en las piernas y el corazón todavía acelerado como si de verdad hubiera estado pedaleando. Se quedó un momento mirando el techo oscuro del cuarto, escuchando la lluvia que seguía cayendo afuera, más despacio ya, y respirando hasta que el pulso volvió a un ritmo normal.
+
+No encendió la luz. No llamó a nadie, ni a Hernando, que dormía al otro lado del pasillo, ni a Rusconi, que a esa hora ya estaría despierto en Ginebra de todos modos. Se quedó quieto, boca arriba, repasando el sueño con la misma atención clínica con que repasaba un dato de potencia mal interpretado, intentando entender por qué, después de casi dos años, esos catorce segundos seguían visitándolo casi exactamente igual cada vez —ni un segundo más, ni un segundo menos— como si una parte de su cabeza se negara a dejar que el número se borrara del todo, se negara a dejarlo descansar hasta que existiera, en algún lugar real y no solo en una proyección de túnel de viento, una crono donde el resultado fuera distinto.
+
+Pensó, ya casi dormido otra vez, que tal vez ese era exactamente el motivo real de la decisión que había tomado esa tarde frente a Rusconi y frente a su padre. No la quería contar así, en esos términos, porque sonaba menos a estrategia deportiva y más a una cuenta pendiente con un sueño que se repetía. Pero ahí, a solas, sin nadie mirando, sabía que era una parte tan real de la decisión como cualquier gráfico de potencia que Rusconi pudiera mostrarle. Quería ganar el Tour entero. Pero, sobre todo, quería que esos catorce segundos dejaran de visitarlo de noche.
+
+Se durmió de nuevo poco antes del amanecer, sin volver a soñar nada que recordara después.
+
+---

@@ -24,17 +24,7 @@ El público vasco, apretado a ambos lados de la carretera del Jaizkibel desde va
 
 En la cabina francesa, Laurent y Philippe seguían el mismo ataque con una emoción que se filtraba incluso a través del cristal blindado de la transmisión satelital.
 
-— Regarde ça, Philippe! Pogačar attaque déjà, au deuxième jour! C'est de la folie pure.
-*(¡Mira eso, Philippe! ¡Pogačar ataca ya, en el segundo día! Es pura locura.)*
-
-— Pas de la folie, Laurent. C'est un message. Il veut savoir tout de suite si Reyes a vraiment changé, ou si c'est juste ce qu'on raconte depuis janvier.
-*(No es locura, Laurent. Es un mensaje. Quiere saber de inmediato si Reyes realmente cambió, o si es solo lo que se cuenta desde enero.)*
-
-— Et la réponse semble claire, non? Reyes ne perd pas un centimètre.
-*(¿Y la respuesta parece clara, no? Reyes no pierde un centímetro.)*
-
-— Trop tôt pour dire ça. Mais oui, pour l'instant, ça donne des frissons.
-*(Demasiado pronto para decir eso. Pero sí, por ahora, da escalofríos.)*
+Laurent gritó algo sobre la locura de atacar ya, en el segundo día, la voz subiendo de tono con la misma euforia que el resto del público vasco apretado contra las vallas del Jaizkibel, golpeando con la mano abierta el cristal de la cabina sin darse cuenta. Philippe lo corrigió, más calmado, sin levantar la voz: no era locura, era un mensaje, Pogačar quería saber de inmediato si Reyes había cambiado de verdad o si todo lo que se contaba desde enero era solo ruido de pretemporada, ruido fabricado por un invierno entero de rumores sin confirmar. Y la respuesta, agregó, parecía bastante clara —Reyes no perdía ni un centímetro de rueda, ni en el ataque ni en la curva posterior. Demasiado pronto para sacar conclusiones, insistió Laurent, bajando un poco el tono. Pero sí, admitió después de una pausa, por ahora, eso daba escalofríos.
 
 ---
 
@@ -126,7 +116,7 @@ Antes de colgar, Santi le preguntó por algo que había estado pensando durante 
 
 — Hoy, en el Jaizkibel, pensé en eso otra vez —dijo Santi—. Mientras seguía a Pogačar, no pensaba en ganar el Tour. Pensaba solo en seguir esa rueda, metro a metro, sin mirar más allá.
 
-— Eso es exactamente lo que hay que hacer —dijo Hernando—. Las tres semanas se ganan metro a metro, no de un solo vistazo a la meta final en París.
+Hernando no dijo nada más. Del otro lado de la línea, Santi escuchó el ruido de la silla del balcón, el mismo crujido de siempre, y se quedó esperando una frase que no llegó.
 
 — Lo sé. Por eso te llamé para decírtelo, antes de olvidarlo.
 

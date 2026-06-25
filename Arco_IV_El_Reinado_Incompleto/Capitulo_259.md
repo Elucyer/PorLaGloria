@@ -98,7 +98,7 @@ Hernando, esa misma noche, en una conversación privada con Santi en el balcón,
 
 La mudanza física se concretó a mediados de mayo, con dos cajas grandes llegando desde Bogotá por encomienda y el resto de las pertenencias de Mariana acomodándose, poco a poco, en el cuarto que compartía con Santi en la casa de Laureles. Camilo, que había ofrecido ayudar con el empaque en Bogotá, llamó esa misma semana para confirmar que todo había llegado bien.
 
-— ¿Cómo te sentís, ya instalada de verdad? —preguntó Camilo.
+— ¿Qué se siente, ya instalada de verdad? —preguntó Camilo.
 
 — Rara, todavía —admitió Mariana—. Es la primera vez en mi vida adulta que vivo en una ciudad que no elegí completamente por mí misma. La elegí por amor, lo cual suena romántico, pero también es un poco aterrador.
 

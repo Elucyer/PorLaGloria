@@ -56,6 +56,22 @@ Koen, presente en la misma reunión, aprovechó el momento para confirmar el est
 
 — Es mi trabajo —dijo Koen, con la seriedad habitual—. Y lo voy a seguir haciendo con la misma atención, etapa tras etapa, sin excepción.
 
+Después de la reunión, mientras Santi se retiraba hacia los vestidores, Ferretti se quedó un momento más con Koen, revisando el inventario de repuestos sobre la mesa.
+
+— ¿Las dos bicicletas adicionales fueron idea tuya, o de Rusconi? —preguntó Ferretti, en un tono que no era exactamente de reproche, pero tampoco del todo neutral.
+
+— Mía —dijo Koen—. Rusconi me dijo que era exceso de precaución, que con el presupuesto de repuestos de este año alcanzaba con una adicional. Decidí llevar la segunda de todos modos, con mi propio presupuesto del taller, si hacía falta.
+
+Ferretti lo miró un momento, entendiendo lo que esa frase no decía del todo.
+
+— ¿Pensás que el margen reducido de este año aumenta el riesgo de algo más que fatiga? —preguntó, directamente.
+
+— Pienso que un equipo con menos margen toma decisiones más al límite, en pistas mojadas, en bajadas técnicas —dijo Koen, sin levantar la voz, pero sin suavizar tampoco la idea—. Y que la bicicleta tiene que estar perfecta para absorber esas decisiones, aunque el cuerpo de Santi no llegue en las mismas condiciones que el año pasado. No es que no confíe en el plan de Rusconi. Es que mi trabajo es cubrir lo que el plan no puede controlar.
+
+— Tenés razón en llevarla —dijo Ferretti, después de un silencio—. Y por las dudas, no le digas a Rusconi que te la aprobé sin consultarlo. Ya tiene suficiente de qué preocuparse este año con los números del CdA.
+
+— No iba a decir nada —dijo Koen, casi sonriendo—. Para eso están los presupuestos propios del taller.
+
 ---
 
 Una noche, durante una llamada con Mariana desde Sierra Nevada, Santi compartió la inquietud que llevaba semanas sin nombrar del todo en voz alta, ni siquiera con Hernando.
@@ -110,7 +126,7 @@ Antes de colgar, Hernando agregó algo más, en un tono que mezclaba broma y adv
 
 — Una cosa —dijo—. Este año, en el Tourmalet, prestá más atención todavía que el año pasado. No por superstición. Simplemente porque ya sabemos que ese puerto te exige algo distinto a cualquier otro.
 
-— Lo voy a tener presente —dijo Santi, sin saber, esa noche, cuánto peso real iba a tener esa advertencia en pocas semanas.
+— Lo voy a tener presente —dijo Santi, sonriendo, acostumbrado ya a las advertencias de su padre antes de cada puerto importante de la temporada.
 
 — Una cosa más, antes de colgar —dijo Santi—. Mariana me contó que ya coordinó con Duarte para que vos y mamá lleguen antes de los Pirineos. ¿Todavía les sirve esa fecha?
 
@@ -127,5 +143,23 @@ Antes de colgar, Hernando agregó algo más, en un tono que mezclaba broma y adv
 — Cerca de la cima, entonces —repitió Hernando—. Voy a anotarlo así, por ahora.
 
 — Buen viaje a Florencia —dijo Hernando—. Avisame cuando lleguen.
+
+Después de colgar, Hernando se quedó un rato más sentado en la sala, con el cuaderno cerrado sobre las piernas, sin abrirlo todavía. Carmen, que entraba en ese momento con dos tazas de aguapanela, notó algo en su expresión que no encajaba con la conversación tranquila que acababa de tener.
+
+— ¿Qué te dijo? —preguntó, sentándose junto a él.
+
+— Lo de siempre —dijo Hernando—. Que el cuerpo está bien, que el cuaderno suma otro año más.
+
+— Eso me lo contaste por la cara que tenías hace cinco minutos —dijo Carmen, sin dejarse convencer—. Esta otra cara es distinta.
+
+Hernando suspiró, dándole vueltas a la taza entre las manos antes de admitir lo que llevaba semanas sin decir en voz alta, ni siquiera a ella.
+
+— Dos Grand Tours con menos margen significa más kilómetros expuesto, más días en carretera, más probabilidad de que algo salga mal que no tenga nada que ver con las piernas —dijo, finalmente—. Rusconi se lo dijo a Santi en enero, con esas palabras casi exactas, y desde entonces no logro sacarme esa frase de la cabeza, sobre todo ahora que vamos a estar ahí, viéndolo en persona, en un Tour que ya empieza con menos certezas que el del año pasado.
+
+— Nunca me lo dijiste así —dijo Carmen, con una calma que no escondía del todo la preocupación que también ella llevaba cargando en silencio.
+
+— No quería que lo cargaras vos también, sin necesidad —dijo Hernando—. Pero ya que estás acá, te lo digo: tengo más miedo este año que en cualquier otro desde Lombardia. No por las piernas. Por todo lo demás que no se puede planificar en ningún cuaderno.
+
+Carmen le tomó la mano un momento, sin decir nada más, dejando que el silencio hiciera el trabajo que ninguna frase de consuelo hubiera logrado del todo.
 
 ---

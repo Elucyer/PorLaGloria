@@ -108,20 +108,20 @@ Santi se quedó callado un momento, sopesando si responder esa pregunta frente a
 
 — Algún día —dijo Santi—. Todavía no es ese día.
 
-Esa misma noche, ya en su cuarto de siempre en la casa de Laureles, Santi llamó a Camilo, que seguía instalado en Marinilla con el taller de bicicletas que de a poco crecía con cada temporada.
+Esa misma noche, ya en su cuarto de siempre en la casa de Laureles, Santi llamó a Mauricio, que seguía instalado en Marinilla con el taller de bicicletas que de a poco crecía con cada temporada.
 
-— Vi todo desde la tienda, en un televisor viejo que conseguí prestado para la ocasión —dijo Camilo—. Cerramos el taller esa tarde, todos los que trabajamos ahí, para ver la última etapa juntos.
+— Vi todo desde la tienda, en un televisor viejo que conseguí prestado para la ocasión —dijo Mauricio—. Cerramos el taller esa tarde, todos los que trabajamos ahí, para ver la última etapa juntos.
 
 — ¿Y Mariana? —preguntó Santi, con una curiosidad que no intentó disimular del todo—. ¿La viste por ahí esos días?
 
-— La vi de vez en cuando, pasando por Marinilla a hacer encargos de fotos —dijo Camilo—. Pero te lo digo en confianza, hermano: esa mujer no dejó de hablar del Tour en todo julio. Cualquiera diría que llevaba siguiendo ciclismo toda la vida.
+— La vi de vez en cuando, pasando por Marinilla a hacer encargos de fotos —dijo Mauricio—. Pero te lo digo en confianza, hermano: esa mujer no dejó de hablar del Tour en todo julio. Cualquiera diría que llevaba siguiendo ciclismo toda la vida.
 
 — Me lo dijo ella misma, de hecho —dijo Santi, sonriendo solo, en la oscuridad de su cuarto—. Que lo siguió de cerca, más de lo que yo imaginaba.
 
-— Entonces ya sabés lo que tenés que hacer, ¿no? —dijo Camilo, con la franqueza directa que lo caracterizaba—. No te quedés esperando que las cosas se resuelvan solas, a la distancia.
+— Entonces ya sabés lo que tenés que hacer, ¿no? —dijo Mauricio, con la franqueza directa que lo caracterizaba—. No te quedés esperando que las cosas se resuelvan solas, a la distancia.
 
 — Lo estoy pensando —admitió Santi—. Todavía no sé bien cómo, pero lo estoy pensando en serio.
 
-Colgaron poco después, y Santi se quedó un rato más despierto, mirando el techo de su cuarto de siempre, pensando en la frase de Camilo, en la de Mariana sobre la distancia, y en los diez días de descanso que todavía tenía por delante antes de volver a subirse a un avión rumbo a Europa.
+Colgaron poco después, y Santi se quedó un rato más despierto, mirando el techo de su cuarto de siempre, pensando en la frase de Mauricio, en la de Mariana sobre la distancia, y en los diez días de descanso que todavía tenía por delante antes de volver a subirse a un avión rumbo a Europa.
 
 ---

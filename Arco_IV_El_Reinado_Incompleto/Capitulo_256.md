@@ -26,7 +26,7 @@ Ella ajustó las correas con la delicadeza de quien ya había hecho ese mismo ge
 
 El desayuno, servido por Carmen en la mesa de siempre, con arepa, huevos y el café que en esa casa nunca faltaba, transcurrió con una normalidad aparente que escondía, debajo, la tensión silenciosa de una familia entera organizada alrededor de una recuperación sin fecha clara.
 
-— Hoy es el control, ¿no? —preguntó Carmen, sirviendo más café sin que nadie se lo pidiera.
+— Hoy es el control, ¿no? —preguntó Carmen, ya con la cafetera en la mano, llenando la taza de Santi antes de que él alcanzara a estirar el brazo.
 
 — A las diez —confirmó Santi—. Con el especialista de columna.
 
@@ -106,7 +106,7 @@ Se quedaron un rato en silencio, ella con la mano sobre su espalda, evitando la 
 
 — ¿Qué?
 
-— Pienso en la primera vez que te vi, en Marinilla —dijo Mariana—. Estabas agachado, arreglando la cadena de un niño que ni conocías, sin que nadie te lo pidiera, sin que nadie te estuviera mirando. Ese gesto, esa paciencia con algo pequeño y sin gloria, era exactamente la misma paciencia que vas a necesitar ahora. Solo que esta vez la cadena que tenés que arreglar es la tuya.
+— Pienso en la primera vez que te vi, en Marinilla —dijo Mariana—. Estabas agachado, arreglando la cadena de un niño que ni conocías. Nadie te lo había pedido. Nadie, salvo yo, te estaba mirando siquiera. Ese gesto, esa paciencia con algo pequeño y sin gloria, era exactamente la misma paciencia que vas a necesitar ahora. Solo que esta vez la cadena que tenés que arreglar es la tuya.
 
 Santi levantó la vista, por primera vez desde que habían entrado al cuarto, y la miró con algo parecido a una sonrisa cansada.
 
@@ -244,11 +244,9 @@ Hablaron durante horas, de cosas que no tenían nada que ver con el accidente ni
 
 ---
 
-Llamó a Hernando, ya pasada la una de la madrugada de ese mismo día, algo que no hacía nunca a esa hora, sabiendo que su padre, de todas formas, probablemente seguía despierto.
+Llamó a Hernando ya pasada la una de la madrugada de ese mismo día, algo que no hacía nunca a esa hora. Hernando contestó al segundo timbrazo, sin ningún rastro de sueño en la voz.
 
-— ¿Todavía despierto? —preguntó Santi, cuando Hernando contestó.
-
-— Sí —dijo Hernando—. ¿Cómo estás?
+— Imaginé que ibas a llamar esta noche —dijo Hernando, antes de que Santi alcanzara a explicar nada—. ¿Cómo estás?
 
 — Mal —admitió Santi, sin la necesidad de proyectar fortaleza que aplicaba frente a casi todos los demás—. Tuve una crisis esta noche. La peor desde el accidente.
 

@@ -10,9 +10,9 @@
 
 El primero de enero, después de la celebración de Año Nuevo en casa de Laureles —una cena más tranquila que la de Navidad, solo la familia inmediata, con Mariana ayudando a Carmen a preparar el lechón que se había convertido en tradición desde que Santi tenía memoria—, Santi se despertó con una sensación que no había sentido en ningún primero de enero anterior de su vida adulta: la ausencia total de un calendario de competencia esperándolo.
 
-— ¿Cómo te sentís, empezando el año sin saber exactamente qué carreras vas a correr? —le preguntó Mariana, mientras desayunaban juntos en la cocina, con la casa todavía en silencio después de la fiesta de la noche anterior.
+— Te quedaste mirando el calendario de la nevera como si esperaras que apareciera algo escrito ahí —le dijo Mariana, mientras desayunaban juntos en la cocina, con la casa todavía en silencio después de la fiesta de la noche anterior.
 
-— Raro, todavía —admitió Santi—. Pero un raro distinto al de hace un año. El año pasado esta misma pregunta me generaba ansiedad. Este año, simplemente, genera curiosidad sobre lo que viene.
+— Es la primera vez en mi vida adulta que enero no me dice nada —admitió Santi—. Y es raro, todavía, no tener ahí una fecha de Giro o de Tour esperando. Pero es un raro distinto al de hace un año. Esta misma sensación, en enero pasado, me generaba ansiedad. Ahora, simplemente, genera curiosidad por lo que viene.
 
 — Esa es una diferencia enorme —dijo Mariana, sonriendo—. Y se nota, en cómo hablás de esto.
 

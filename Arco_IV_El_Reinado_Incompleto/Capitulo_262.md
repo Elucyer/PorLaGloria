@@ -34,7 +34,7 @@ Mariana, observando la pantalla con las curvas de potencia sin entender del todo
 
 Esa noche, en el hotel de Girona, Mariana, que llevaba toda la tarde procesando en silencio los números que había visto en el laboratorio, le hizo una pregunta a Santi que reflejaba su propia forma de entender la situación.
 
-— ¿Cómo te sentís, viendo esos números tan bajos, comparados con los de antes? —preguntó Mariana.
+— ¿Qué te pasa por la cabeza, viendo esos números tan bajos, comparados con los de antes? —preguntó Mariana.
 
 — Triste, al principio —admitió Santi—. Pero también, raramente, motivado. Es la primera vez en catorce meses que tengo algo concreto que mejorar, en lugar de simplemente esperar que la columna sane sin poder hacer nada activo al respecto.
 
@@ -116,7 +116,7 @@ Esa misma semana, en Girona, Santi tuvo una cena con Ferretti, la primera conver
 
 ---
 
-— ¿Cómo te sentiste, en esa cena con Ferretti? —le preguntó Mariana, esa misma noche, por videollamada desde Medellín.
+— ¿Y qué tal te dejó esa cena con Ferretti? —le preguntó Mariana, esa misma noche, por videollamada desde Medellín.
 
 — Aliviado —dijo Santi—. Aunque ya sabía, en el fondo, que el equipo no me iba a abandonar, escucharlo de su propia voz, en una cena tranquila, sin ninguna presión de cámaras ni de prensa, fue distinto.
 
@@ -204,7 +204,7 @@ Rodrigo, al enterarse de la noticia por una llamada de Hernando esa misma semana
 
 Santi se rió, leyendo el mensaje, agradecido, una vez más, de tener amigos capaces de poner las cosas en perspectiva con humor, incluso en los momentos más serios del proceso.
 
-Hernando, esa noche, escribió en el cuaderno, retomando, después de más de un año, el tipo de anotación que solía llenar sus páginas antes del Tourmalet:
+Más tarde, ya en el balcón con la ciudad apagándose abajo, Hernando buscó el cuaderno entre los libros del estante y, retomando después de más de un año el tipo de anotación que solía llenar sus páginas antes del Tourmalet, escribió:
 
 *Septiembre 2025. Primer esfuerzo sostenido de veinte minutos desde el accidente. Rusconi confirma progreso real. Mariana inauguró su exposición fotográfica, hermosa, completamente suya. Luca de visita en Girona, el equipo entero esperando. Posible regreso a competencia hacia mediados de 2026, según las proyecciones actuales. Después de catorce meses sin nada que medir, finalmente hay un número que anotar otra vez.*
 

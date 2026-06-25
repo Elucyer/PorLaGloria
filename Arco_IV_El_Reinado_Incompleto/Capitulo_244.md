@@ -55,6 +55,8 @@ En la ceremonia de podio en Roma, con la Fontana di Trevi iluminada de fondo en 
 
 — Se sigue sintiendo como una derrota —dijo Santi, con sinceridad—. Pero una de las que se pueden aprender de verdad.
 
+Arroyave, que cerraba su primer Grand Tour con la camiseta del equipo sin ninguna gloria personal que reclamar, observaba la ceremonia desde un costado del escenario, junto al resto de los gregarios, con una sonrisa contenida que reflejaba algo parecido a la paz de haber cumplido, finalmente, el rol que se había prometido a sí mismo aceptar.
+
 Caruso, que finalmente había logrado el podio que llevaba toda la temporada buscando, completando el tercer escalón a casi tres minutos de Pogačar, se acercó a Santi antes de que ambos bajaran del escenario.
 
 — Lo conseguí, al final —dijo Caruso, con una emoción genuina que reflejaba años de espera—. Gracias por el respeto que me mostraste toda la carrera, incluso cuando pelearon entre ustedes por la general.

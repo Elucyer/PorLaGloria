@@ -30,63 +30,53 @@ Antes del encuentro, Mariana le contó a Daniela los planes para esa tarde, con 
 
 *Mariana: Eso espero.*
 
-Se encontraron, dos días después, en un café de Marinilla cerca de la plaza donde todo había empezado casi un año atrás, en una mesa al aire libre desde donde podían ver la misma esquina donde Santi había arreglado la cadena de la bicicleta del niño.
+Se encontraron, dos días después, no en el café de la plaza sino en la finca de un tío de Mariana en las afueras de Marinilla, un terreno con vacas pastando detrás de una cerca de madera vieja y un mirador natural desde donde se veía el valle entero, verde y plegado, hasta donde alcanzaba la vista. Mariana lo había propuesto en un mensaje, casi con timidez: *un lugar donde nadie te reconozca, para variar.* Santi aceptó de inmediato, cansado, sin decirlo, de cafés con camareros que reconocían su cara.
 
 ---
 
-— Es raro volver acá con vos —dijo Mariana, mirando hacia la esquina—. Cada vez que vengo, pienso en esa tarde. Y ahora estás sentado frente a mí, siendo el campeón del Tour de Francia, en el mismo pueblo donde te conocí sin saber quién eras.
+Subieron a pie desde la entrada de la finca, por un camino de tierra todavía húmedo de la lluvia de la noche anterior, hasta un cobertizo de madera abierto en uno de los costados, con dos sillas viejas y una vista que silenció a los dos un momento antes de que ninguno dijera nada.
 
-— Para mí también es raro —admitió Santi—. Este pueblo se convirtió en algo importante en mi vida, sin que yo lo planeara.
+— Mi tío viene acá cuando necesita pensar —dijo Mariana, sentándose en una de las sillas—. Yo vengo cuando necesito no estar en ningún lado donde alguien me pregunte algo.
 
-— ¿Sabés que la dueña de este café reconoció tu cara apenas entraste? —dijo Mariana, en voz baja—. Vi cómo te miraba desde la barra.
+— ¿Necesitás eso seguido? —preguntó Santi, sentándose junto a ella.
 
-— Lo noté —dijo Santi—. Ya estoy acostumbrado a eso, aunque nunca termino de sentirme completamente cómodo.
+— Más de lo que admito —dijo Mariana—. Pero hoy no vine por eso. Vine porque quería verte en un lugar que no fuera una mesa con gente mirando.
 
-— ¿Y a mí me reconoce también, de la foto?
+Hablaron, al principio, de la temporada completa, de los detalles que Mariana había seguido a través de los mensajes y las transmisiones, de la fundación —la conversación tenía la misma fluidez construida durante meses que ya tenían desde abril— pero en algún momento, sin que ninguno marcara el cambio de tema con claridad, Mariana hizo una pregunta distinta a las que solía hacer.
 
-— Probablemente —dijo Santi, sonriendo—. Sos casi tan famosa como yo en este pueblo, después de lo que pasó con esa foto.
+— ¿Hay algo de este año que nunca le contaste a nadie? —preguntó—. No me refiero a una historia bonita para la prensa. Me refiero a algo que de verdad te dé miedo, o vergüenza, o lo que sea, y que no le hayas dicho ni a Hernando.
 
-— Eso sí que no me lo esperaba cuando estudiaba fotografía documental en la universidad —dijo Mariana, riendo—. Ser conocida por una foto que tomé sin saber a quién le estaba tomando.
+Santi se quedó callado un rato largo, mirando el valle, sopesando si responder con una evasiva amable, como hacía casi siempre, o decir la verdad.
 
-Hablaron durante casi dos horas, de la temporada completa, de los detalles que Mariana había seguido a través de los mensajes y las transmisiones, de la fundación, de los planes de Mariana para el resto del año. La conversación tenía una fluidez distinta a la del café de abril, una familiaridad construida durante meses de mensajes espaciados que, sin que ninguno lo hubiera planeado del todo, habían terminado tejiendo algo parecido a una amistad real, profunda, a pesar de la distancia.
+— Tengo un sueño recurrente —dijo, finalmente, sin mirarla, con la voz más baja de lo habitual—. Desde 2021. La crono que perdí por catorce segundos. Se repite casi exacto cada vez: la salida, el cronómetro, la cifra al final. Nunca cambia. Mi papá no lo sabe del todo, aunque sospecha algo. A Rusconi ni se me ocurriría contárselo. Es ridículo, decirlo en voz alta. Soy el campeón del Tour de Francia y todavía sueño con perder por catorce segundos una carrera que ya ni siquiera importa.
 
-— Contame algo que no saliera en ninguna entrevista —pidió Mariana, apoyando la taza de café sobre la mesa—. Algo chiquito, sin importancia para la prensa, pero que vos recuerdes con cariño.
+— No es ridículo —dijo Mariana, sin apartar la vista de él—. ¿Te pasó este año, durante el Tour?
 
-Santi lo pensó un momento, repasando mentalmente los tres meses de carrera.
+— Una vez, antes de la crono de Combloux —dijo Santi—. Me desperté a las tres de la mañana, exactamente como me pasaba en enero. Después gané esa crono por más de un minuto. Pero el sueño no le importa eso. Vuelve igual.
 
-— El día de la crono en Combloux, cuando estaba perdiendo por casi un minuto, un nene en la cuneta, debía tener unos ocho años, me gritó en español, con acento francés, "¡Vamos, Colombia!" —dijo Santi—. No sé de dónde había sacado el español, ni por qué gritaba justo eso, en ese momento exacto. Pero me acuerdo de esa frase más que de cualquier número de Rusconi de ese día.
+— ¿Y qué creés que significa, en serio? —preguntó Mariana—. No la versión de entrevista. La versión que pensás de noche, solo.
 
-— Eso es hermoso —dijo Mariana, genuinamente conmovida—. ¿Le dijiste algo, devolviste el saludo?
+— Que en el fondo no estoy seguro de que ganar borre nada —dijo Santi, después de un silencio—. Que puedo acumular victorias toda mi vida y esos catorce segundos van a seguir ahí, en algún lugar, esperando a que baje la guardia. Nunca le dije esto a nadie con estas palabras exactas.
 
-— No tuve tiempo, iba a toda velocidad —dijo Santi—. Pero esa noche, en el hotel, pensé en él más de lo que pensé en Vingegaard. Cosas así son las que de verdad importan, al final, más que cualquier resultado.
+Mariana no dijo nada de inmediato. Estiró la mano, despacio, y la dejó sobre la de él, sobre el brazo de la silla, sin presión, sin pedir nada a cambio del gesto.
 
-El camarero del café, un hombre mayor que llevaba toda la vida en Marinilla, se acercó a la mesa con dos cafés adicionales que ninguno de los dos había pedido.
-
-— Cortesía de la casa, para el campeón —dijo, sin más explicación, antes de retirarse con una sonrisa discreta hacia la barra.
-
-— Esto va a pasar todo el tiempo, ¿no? —preguntó Mariana, divertida.
-
-— Probablemente —admitió Santi—. Es parte del paquete completo, lamentablemente.
-
-— No suena tan terrible, la verdad —dijo Mariana, riendo, antes de que ambos volvieran a la conversación que tenían pendiente desde hacía meses.
+— Gracias por decírmelo a mí primero —dijo, simplemente.
 
 ---
 
-Al despedirse, caminando hacia los carros estacionados cerca de la plaza, hubo, otra vez, un momento de cercanía que ninguno de los dos evitó del todo esta vez —las manos rozándose, una pausa más larga de lo habitual antes de la despedida— pero que Santi, una vez más, decidió no convertir en algo más explícito.
+Se quedaron un rato así, en silencio, con el valle extendiéndose abajo y el sonido lejano de una vaca mugiendo en algún potrero cercano, hasta que Santi, despacio, giró la mano debajo de la de ella y entrelazó los dedos, un gesto pequeño pero distinto a cualquier cosa que hubiera permitido antes, en abril, en la cafetería de Laureles, cuando había dado un paso atrás justo antes de que las manos se tocaran.
 
-— Todavía me queda agosto, San Sebastián, Lombardia, el cierre del año —dijo, casi como una disculpa anticipada—. No es que no quiera. Es que todavía siento que no tengo el espacio completo que esto merecería.
+— Esto es nuevo —dijo Mariana, sin soltarlo, con una media sonrisa.
 
-Mariana asintió, sin mostrar la frustración que, sin embargo, sentía crecer un poco más cada vez que esa misma conversación se repetía, de formas distintas, desde abril.
+— Lo es —admitió Santi—. No sé bien qué hacer con eso todavía.
 
-— Lo entiendo —dijo—. Pero en algún momento, Santi, vas a tener que decidir si alguna vez va a haber un año donde sí tengas ese espacio, o si siempre va a haber una próxima carrera más importante que esto.
+— No hace falta que lo sepas hoy —dijo Mariana—. Pero la última vez, en Laureles, dijiste que no tenías espacio. Hoy no dijiste eso.
 
-La frase se quedó flotando entre los dos, más directa que cualquier cosa que Mariana hubiera dicho hasta entonces, y Santi, sin una respuesta inmediata que ofrecer, simplemente asintió, consciente de que la pregunta era justa, incluso si todavía no sabía cómo responderla.
+— Hoy no lo pensé —dijo Santi, con algo parecido a la sorpresa de notarlo recién en ese momento—. Hasta que lo dijiste, no me di cuenta.
 
-— No te lo digo para presionarte —agregó Mariana, suavizando un poco el tono—. Te lo digo porque me importa, y porque prefiero ser honesta con vos a seguir fingiendo que esto no me afecta.
+— ¿Y eso qué significa? —preguntó ella, sin presionar, genuinamente curiosa por la respuesta.
 
-— Lo agradezco —dijo Santi—. La honestidad, quiero decir. Aunque no tenga todavía una buena respuesta para darte.
-
-— No hace falta que la tengas hoy —dijo Mariana—. Solo pensalo, en algún momento, cuando no tengas una carrera encima.
+— Que tal vez el espacio no era el problema real —dijo Santi—. Tal vez el problema era que nunca te había dejado ver nada que no fuera la versión que ya conoce todo el mundo. Y hoy, no sé por qué, me salió distinto.
 
 ---
 
@@ -94,37 +84,41 @@ Esa noche, de vuelta en Laureles, Hernando lo notó más callado que de costumbr
 
 — ¿Cómo estuvo Marinilla? —preguntó.
 
-— Bien —dijo Santi—. Pero Mariana me dijo algo que se quedó dando vueltas en mi cabeza.
+— Bien —dijo Santi, despacio, sin la evasiva habitual—. Le conté lo de los catorce segundos. Lo del sueño.
 
-— ¿Qué te dijo?
+Hernando dejó el tenedor sobre el plato, sin terminar de masticar, mirando a su hijo con una atención distinta a la de cualquier otra cena de esa semana.
 
-— Que en algún momento voy a tener que decidir si alguna vez va a haber un año donde tenga espacio para esto, o si siempre va a haber una carrera más importante.
+— ¿Se lo contaste a ella antes que a mí?
+
+— Sí —dijo Santi—. No sé bien por qué. Capaz porque con vos siempre lo convertí en números, en estrategia, en algo que se resuelve con más horas de túnel de viento. Con ella simplemente lo dije como es: un sueño que no me deja en paz, y que me da vergüenza que todavía me afecte.
 
 Hernando se quedó pensando la frase, masticando despacio el último bocado de la cena.
 
-— Tiene razón —dijo, finalmente—. No te lo dije antes porque no quería meterme en algo que es tuyo de decidir. Pero ya pasó casi un año desde la primera foto, Santi. Las personas no esperan para siempre, ni deberían tener que hacerlo.
+— No me molesta que se lo hayas contado a ella primero —dijo, finalmente—. Me alegra, en realidad. Yo sospechaba algo de ese sueño hace meses, por cómo a veces te encuentro despierto a horas raras cuando estamos de viaje juntos. Nunca pregunté directamente porque no sabía si era mi lugar.
 
-— Lo sé —dijo Santi—. Pero todavía no sé cómo encontrar ese espacio, sin sentir que estoy restando algo a la carrera.
+— ¿Y qué pensás, ahora que lo sabés con seguridad?
 
-— Quizás la pregunta no es cómo encontrar el espacio sin restar nada —dijo Hernando—. Quizás la pregunta es si estás dispuesto a restar algo, por primera vez en tu vida, por algo que no sea una bicicleta.
+— Pienso que contar algo así no es debilidad —dijo Hernando—. Es lo contrario. Yo cargué cosas parecidas toda mi vida sin decírselas a nadie, ni siquiera a tu madre durante años, y no me hizo más fuerte. Me hizo más solo. Si encontraste a alguien con quien no necesitás cargar eso solo, no lo dejes ir por un calendario.
 
-Santi no respondió de inmediato, dándole vueltas a la pregunta de su padre durante el resto de la noche, sin llegar a ninguna conclusión clara antes de irse a dormir, con la sensación, cada vez más difícil de ignorar, de que ese año, a pesar de todos sus éxitos deportivos, todavía tenía una cuenta pendiente que no sabía bien cómo resolver.
+— Eso es justo lo que pasó hoy —dijo Santi—. Le tomé la mano. Por primera vez, sin frenar.
+
+Santi no respondió de inmediato, dándole vueltas a las palabras de su padre durante el resto de la cena, sintiendo, por primera vez en mucho tiempo, que algo que llevaba cargando solo desde 2021 ya no le pesaba exactamente igual.
 
 Carmen, que había escuchado buena parte de la conversación desde la cocina sin intervenir, se acercó a la mesa antes de levantar los platos.
 
-— Yo no me voy a meter en esto como se metió tu papá —dijo Carmen, con una sonrisa pequeña—. Pero te voy a decir una sola cosa, y después me callo: a tu edad, yo también tuve a alguien esperando una respuesta que tardé demasiado en dar. Y cuando finalmente la di, fue la mejor decisión de mi vida. No siempre el tiempo perdido se puede recuperar después.
+— Así que finalmente le contaste a alguien lo del sueño —dijo Carmen, con una sonrisa pequeña, secándose las manos en el trapo de siempre—. Yo lo sabía desde hace años, hijo. Una madre escucha cuando su hijo habla dormido, aunque nunca se lo haya dicho.
 
-— ¿Te referís a papá? —preguntó Santi, sorprendido por la confesión repentina.
+— ¿Lo sabías? —preguntó Santi, genuinamente sorprendido.
 
-— Me refiero a tu papá, sí —dijo Carmen, sonriendo con cierta nostalgia—. Le tomó casi dos años decidirse. Yo ya estaba lista para irme de San José cuando finalmente habló. No te cuento esto para presionarte, hijo. Te lo cuento porque sé lo que se siente esperar, de los dos lados de esa espera.
+— Desde la primera vez que volviste de Europa después de esa crono, en 2021 —dijo Carmen—. Nunca dije nada porque no sabía si vos querías que lo supiera. Pero me alegra que hoy se lo hayas dicho a ella, en voz alta, en lugar de dejarlo dormido en algún lugar adentro tuyo. Esas cosas, cuando se quedan sin nombrar, terminan pesando más de lo que deberían.
 
 Antes de dormir, revisó el teléfono una última vez. Mariana le había mandado un mensaje breve, ya de noche.
 
-*Mariana Castañeda: Gracias por el café de hoy. Y por escuchar, aunque no tengas respuesta todavía.*
+*Mariana Castañeda: Gracias por confiar en mí con eso. En serio.*
 
-*Santi: Gracias a vos, por decirlo de frente. Lo voy a pensar en serio.*
+*Santi: Nunca lo había dicho en voz alta. Se sintió raro. Pero bien raro, no mal raro.*
 
-*Mariana Castañeda: Eso es todo lo que pido, por ahora.*
+*Mariana Castañeda: Eso es lo único que importa, entonces.*
 
 *Santi: ¿Vas a estar en Marinilla todavía mañana, antes de que vuelva a viajar?*
 
@@ -136,10 +130,8 @@ Antes de dormir, revisó el teléfono una última vez. Mariana le había mandado
 
 *Santi: Tengo ganas. Eso, al menos, ya lo tengo claro.*
 
-Apagó la luz, finalmente, con esa pequeña certeza sosteniéndolo mejor que cualquier otra cosa que hubiera pensado esa noche: no sabía todavía cómo iba a resolver la pregunta más grande, la del espacio y el tiempo y las próximas carreras, pero sabía, con una claridad que no necesitaba ningún cuaderno de Rusconi para confirmarla, que quería ver a Mariana otra vez al día siguiente, antes de que ella volviera a Bogotá, aunque fuera solo media hora, aunque fuera lo único que el calendario le permitiera ese año.
+Apagó la luz, finalmente, con esa pequeña certeza sosteniéndolo mejor que cualquier otra cosa que hubiera pensado esa noche: no sabía todavía qué iba a pasar con San Sebastián, con Lombardía, con el resto del calendario que faltaba antes de diciembre, pero sabía, con una claridad que no necesitaba ningún cuaderno de Rusconi para confirmarla, que algo había cambiado esa tarde en el cobertizo de la finca, algo que ya no podía deshacerse con una excusa sobre el entrenamiento del día siguiente.
 
-Apagó la luz, y se quedó dormido con la frase de su padre todavía resonando: *"¿Estás dispuesto a restar algo, por primera vez en tu vida, por algo que no sea una bicicleta?"* No tenía respuesta esa noche. Pero, por primera vez desde diciembre, sintió que la pregunta merecía una de verdad, no solo silencio.
-
-Pensó también, antes de quedarse dormido del todo, en la frase de Carmen sobre los dos años de espera de Hernando, y en lo extraño que era descubrir, a esa edad, que la indecisión también era parte de la herencia familiar, tanto como las piernas para subir montañas o la paciencia para escribir un cuaderno cada noche durante meses enteros.
+Se quedó dormido pensando en la mano de Mariana sobre la suya, en el peso distinto de haber dicho en voz alta, por primera vez, lo de los catorce segundos, y en la frase de Carmen sobre los años en que escuchó hablar dormido a su hijo sin decir nada. Pensó que tal vez ese era el verdadero patrón familiar —no la indecisión, como había creído en abril, sino la costumbre de cargar las cosas más pesadas en silencio, hasta que alguien, por fin, encontraba la forma de hacerlas livianas.
 
 ---

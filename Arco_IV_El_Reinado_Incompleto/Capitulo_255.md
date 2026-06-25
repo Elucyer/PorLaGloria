@@ -46,7 +46,7 @@ El regreso a Colombia, a mediados de agosto, tuvo un carácter completamente dis
 
 — Entendido —dijo Duarte—. Voy a manejar la comunicación con discreción. Solo lo necesario para que la gente sepa que estás avanzando, sin entrar en detalles innecesarios.
 
-En Laureles, la casa del níspero se adaptó en cuestión de días para recibir a alguien que, por primera vez en su vida adulta, necesitaba ayuda para tareas básicas: Carmen organizó la habitación del primer piso para evitar las escaleras, Hernando instaló una silla específica en el baño, y Mariana, que se había mudado temporalmente a Medellín por el resto del año, asumió buena parte de la logística diaria sin que nadie se lo pidiera explícitamente.
+En Laureles, la casa del níspero se adaptó en cuestión de días para recibir a alguien que, por primera vez en su vida adulta, necesitaba ayuda para tareas básicas: Carmen organizó la habitación del primer piso para evitar las escaleras, Hernando instaló una silla específica en el baño, y Mariana, que se había mudado temporalmente a Medellín por el resto del año, llegó la primera mañana con una lista escrita a mano de horarios de medicamentos y citas médicas, y simplemente se quedó con esa lista en el bolsillo de atrás, sin preguntarle a nadie si hacía falta.
 
 ---
 
@@ -98,9 +98,9 @@ Más tarde esa noche, ya solos en el cuarto, Mariana encontró a Santi despierto
 
 — En que el año que viene puede ser, literalmente, un año entero sin competir —dijo Santi—. Nunca tuve que imaginar mi vida así. Siempre hubo una carrera siguiente, un objetivo siguiente.
 
-— ¿Y cómo te sentís con eso?
+— ¿Eso te asusta más o menos que el corsé? —preguntó Mariana, con una media sonrisa que buscaba aligerar la pregunta sin quitarle peso.
 
-— Asustado, todavía —admitió Santi—. Pero menos que en julio. Supongo que ese es el progreso real de estos meses, más que cualquier cosa que muestre una radiografía.
+— Menos que en julio —admitió Santi, después de pensarlo—. Supongo que ese es el progreso real de estos meses, más que cualquier cosa que muestre una radiografía.
 
 — Ese progreso cuenta tanto como el otro —dijo Mariana, apagando la luz—. Quizás más.
 

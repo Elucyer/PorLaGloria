@@ -72,6 +72,8 @@ Vingegaard, en la zona de meta, dándole la mano a Santi con un respeto que no e
 
 ---
 
+En el autobús del equipo, ya camino al hotel, con el margen de cuatro segundos todavía instalándose como una cifra real y no como un número abstracto en una pantalla, Santi sintió que el corazón no le bajaba del ritmo de la subida, mucho después de que las piernas ya hubieran dejado de pedir nada. Se lo atribuyó al calor acumulado de la etapa, a la adrenalina que tardaba en irse, a las tres semanas de desgaste que finalmente pasaban factura de alguna forma. Por un momento, atándose de nuevo los cordones de las zapatillas en el asiento del fondo, las manos no le respondieron con la precisión de siempre, y tuvo que intentarlo dos veces. No le dijo nada a nadie. Pensó que era cansancio, y siguió mirando por la ventana los primeros tejados de Gérardmer.
+
 Esa noche, en el hotel de Gérardmer, con los Vosgos visibles desde la ventana de la habitación, Santi llamó a Hernando, sin necesitar adornar el resultado con ninguna palabra adicional.
 
 — Cuatro segundos —dijo Santi, apenas Hernando contestó.

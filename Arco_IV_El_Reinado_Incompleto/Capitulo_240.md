@@ -56,6 +56,8 @@ Rusconi, revisando los datos de la crono con Santi en el hotel, fue más cautelo
 
 Las primeras etapas del Giro, por las llanuras del norte de Italia y los primeros repechos del Piamonte, transcurrieron sin sobresaltos significativos para los favoritos, con los equipos de sprint disputando las victorias de etapa mientras Santi, Pogačar, y un grupo reducido de corredores secundarios —Thymen Arensman, Geraint Thomas, un Damiano Caruso que llegaba a su última gran oportunidad de Giro— se mantenían atentos sin necesitar gastar energía de más.
 
+Dentro del propio equipo, el grupo de gregarios de montaña —Colombo, Clarke, Luca Arnheim, y ahora también David Arroyave, en su primer Grand Tour con la camiseta de MercadoLibre-FCV— se repartía el trabajo de control en las llanuras sin que nadie todavía necesitara forzar el ritmo. Arroyave, que había firmado apenas unos meses antes con la bendición pública de Santi, pedaleaba en el grupo principal con la misma discreción con la que llevaba años corriendo en equipos continentales europeos, lejos de cualquier protagonismo, pero atento a cada instrucción de Ferretti como si llevara toda la vida en ese tipo de carreras.
+
 — Esto es el Giro más tranquilo que recuerdo en los primeros días —comentó Geraint Thomas, en una entrevista durante la tercera etapa—. Pero todos sabemos que es la calma antes de algo grande. Estos dos —señalando a Santi y Pogačar en la distancia— no van a tardar en empezar a destrozarse mutuamente.
 
 Caruso, en la misma rueda de prensa, agregó una perspectiva distinta, la de un corredor que llegaba a los treinta y seis años sabiendo que esa era, probablemente, su última oportunidad real de pelear por algo grande en un Giro.
@@ -77,6 +79,20 @@ Santi se rio, con un respeto genuino por la honestidad descarnada del veterano i
 
 — Buona fortuna, allora —dijo Santi—. Te la meriteresti, dopo tutti questi anni.
 *(Buena suerte, entonces. Te la merecerías, después de todos estos años.)*
+
+---
+
+Más atrás en el pelotón, en el tramo tranquilo donde los gregarios reponían botellas para todo el equipo, David Arroyave se acercó a la rueda de Santi por primera vez en esa etapa, con la misma cara seria que llevaba puesta desde la salida de Turín.
+
+— Todavía me cuesta acostumbrarme a esto —dijo Arroyave, sin preámbulo, mirando hacia adelante en lugar de hacia Santi, como si la confesión le saliera más fácil así—. Llevarte botellas, en vez de perseguirte.
+
+— ¿Te arrepentís? —preguntó Santi, sin dejar de pedalear, con un tono que no buscaba provocar, solo confirmar.
+
+— Para nada —dijo Arroyave—. Solo es raro. Catorce años pensando en vos como el que tenía que alcanzar, y ahora resulta que el trabajo es justo lo contrario: que no te falte nada en la subida.
+
+— A mí también me resulta raro, si te soy sincero —admitió Santi—. Pero de las cosas raras de este año, esta es la que menos me cuesta.
+
+Arroyave asintió, sin agregar nada más, y dejó caer la rueda un poco hacia atrás, de vuelta a su lugar entre Colombo y Clarke, sin que ninguno de los dos hubiera necesitado decir la palabra "Porvenir" para que ambos supieran exactamente de qué estaban hablando.
 
 ---
 

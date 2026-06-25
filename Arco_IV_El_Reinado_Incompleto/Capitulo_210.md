@@ -96,8 +96,8 @@ Santi se quedó pensando en esa frase un momento, mirando el techo de la habitac
 
 — Quizás tengas razón —dijo, finalmente—. Pero igual hubiera preferido ganar.
 
-— Lo sé —dijo Hernando—. Eso también está bien. Que te duela perder es parte de lo que te hace ganar tanto el resto del tiempo.
+Hernando no respondió enseguida. Del otro lado de la línea, Santi alcanzó a oír el ruido leve del cuaderno cerrándose, el roce de la tapa contra la mesa, y después nada más, ni un "buenas noches" completo, solo un silencio que se quedó ahí un par de segundos antes de que colgaran.
 
-Colgaron poco después, y Santi se quedó un rato más despierto, repasando mentalmente, una y otra vez, los últimos doscientos metros del Plan Incliné, como si repetirlos en la cabeza pudiera cambiar algo del resultado. No cambiaba nada, por supuesto. Pero el ejercicio, de alguna forma extraña, lo ayudaba a soltar la tensión acumulada antes de poder dormir, una rutina que había desarrollado desde sus primeras derrotas en el ciclismo juvenil en San José de la Montaña y que nunca había necesitado cambiar.
+Santi se quedó un rato más despierto, repasando mentalmente, una y otra vez, los últimos doscientos metros del Plan Incliné, como si repetirlos en la cabeza pudiera cambiar algo del resultado. No cambiaba nada, por supuesto. Pero el ejercicio, de alguna forma extraña, lo ayudaba a soltar la tensión acumulada antes de poder dormir, una rutina que había desarrollado desde sus primeras derrotas en el ciclismo juvenil en San José de la Montaña y que nunca había necesitado cambiar.
 
 ---

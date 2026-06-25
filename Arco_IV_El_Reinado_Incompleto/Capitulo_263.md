@@ -230,15 +230,9 @@ Carmen, cuando finalmente Santi y Mariana volvieron a Colombia semanas después,
 
 ---
 
-Esa noche, llamó a Hernando para contarle todo lo ocurrido, desde el dolor inicial hasta el diagnóstico final, con Mariana sentada a su lado, escuchando la conversación con la misma atención de siempre.
+Esa noche, en el balcón de Laureles, Hernando volvió a abrir el cuaderno que había guardado desde octubre.
 
-— Me asusté más de lo que puedo explicar —admitió Santi—. Por un momento pensé que estaba otra vez en julio del año pasado, en el mismo punto de partida.
-
-— Pero no lo estás —dijo Hernando—. La vértebra está bien. Eso es lo que importa. El resto, los músculos, el ritmo de entrenamiento, eso se ajusta con tiempo, como todo lo demás este año.
-
-— Tenés razón —dijo Santi, sintiendo, a pesar del susto, una calma que reflejaba todo lo aprendido durante los catorce meses anteriores—. Supongo que esto también es parte del camino. Un recordatorio de que la paciencia todavía importa, incluso cuando finalmente empezamos a ver progreso real.
-
-Hernando anotó en el cuaderno, esa noche, una línea breve que resumía el episodio:
+No necesitaba que Santi le repitiera nada — ya lo sabía todo, palabra por palabra, desde la llamada de aquella mañana en Girona. Lo que hizo, mientras Santi y Mariana terminaban de instalar las maletas en el cuarto de siempre, fue releer la línea que había escrito entonces y añadir, debajo, lo que solo se podía escribir con la distancia de las semanas:
 
 *Octubre 2025. Susto en Girona — contractura muscular, no la vértebra. Mariana, otra vez sosteniendo todo en el momento más difícil. Rodrigo y Julián, preocupados de verdad, sin necesidad de que nada se convierta en contenido. Ajuste del ritmo de entrenamiento, más conservador. Un paso atrás que, en realidad, es parte necesaria de los dos pasos adelante que vinieron antes.*
 

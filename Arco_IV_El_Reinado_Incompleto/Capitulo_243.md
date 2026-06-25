@@ -26,6 +26,8 @@ A seis kilómetros de la cima, donde la pendiente se disparaba hacia el catorce 
 
 — Es tuyo a partir de aquí —le dijo a Santi, en el último metro que compartieron, antes de soltarse de la rueda.
 
+Arroyave, que había relevado a Luca un kilómetro antes según lo planeado en la reunión, aguantó cuatro kilómetros más antes de sentir que las piernas dejaban de responder, exactamente en el punto donde la carretera se cerraba entre los pinos. Soltó la rueda de Santi sin una palabra, sabiendo que cualquier frase en ese instante solo le hubiera robado el aire que necesitaba para no quedarse completamente atrás.
+
 Pogačar atacó apenas cien metros después, en el punto exacto donde la pendiente alcanzaba su tramo más duro, con una explosividad que Santi, sintiendo en las piernas la fatiga acumulada que Rusconi había anticipado esa mañana, no logró seguir de inmediato.
 
 ---
