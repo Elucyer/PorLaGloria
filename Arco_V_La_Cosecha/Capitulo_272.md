@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco V — La Cosecha
-### Capítulo 272 — La primera victoria (1 de mayo de 2026)
+### Capítulo 272 — La primera gran victoria (1 de mayo de 2026)
 
 ---
 
@@ -50,15 +50,17 @@ A tres kilómetros de la cima, en un tramo donde un grupo reducido de seis corre
 
 Santi atacó a dos kilómetros de la cima, en el tramo más empinado de todo el puerto, abriendo una diferencia de varios metros que ninguno de los cinco corredores restantes del grupo de cabeza logró cerrar del todo, sintiendo, en cada pedalada de esos últimos mil metros, una sensación que no recordaba haber sentido con esa pureza en ninguna otra etapa de toda su carrera: no la obligación de demostrar algo, sino el placer simple y antiguo de atacar en una montaña, sin ningún cálculo adicional más allá de la pendiente y las propias piernas.
 
-Cruzó la meta del Alto de Naye con seis segundos de ventaja sobre el segundo clasificado, levantando los brazos con una emoción que ningún otro resultado del año, ni siquiera el puesto nueve de la Itzulia, había logrado generar: su primera victoria desde el Tourmalet, después de casi veintidós meses de espera.
+Fue, también, la primera vez desde el accidente que atacó sin medir antes el riesgo, sin esa fracción de segundo de duda que había aparecido en cada subida de la Itzulia. La pendiente era pura subida, sin curvas que pudieran traicionarlo, sin ninguna bajada esperando del otro lado para recordarle lo que el cuerpo ya no hacía con la misma confianza de antes. Atacó como atacaba en 2023, y por dos kilómetros exactos, el filtro de miedo que llevaba meses instalado en cada decisión simplemente no estuvo ahí.
 
-— ¡Lo logré! —gritó Santi, en la zona de meta, abrazando a Luca con una fuerza que reflejaba todo lo acumulado desde julio de 2024—. Después de todo este tiempo, lo logré.
+Cruzó la meta del Alto de Naye con seis segundos de ventaja sobre el segundo clasificado, levantando los brazos con una emoción que ningún otro resultado del año, ni siquiera el puesto nueve de la Itzulia, había logrado generar: su primera victoria contra un pelotón completo de favoritos reales desde el Tourmalet, después de casi veintidós meses de espera para algo de esta magnitud.
+
+— ¡Lo logré! —gritó Santi, en la zona de meta, abrazando a Luca con una fuerza que reflejaba todo lo acumulado desde julio de 2024—. Coppi e Bartali fue la primera señal. Esto es la confirmación.
 
 ---
 
 Rusconi, llegando a la zona de meta con los ojos visiblemente húmedos, algo que pocas veces se permitía mostrar en público, abrazó a Santi sin decir nada durante varios segundos.
 
-— Veintidós meses —dijo finalmente Rusconi—. Veintidós meses desde tu última victoria, y once meses desde que empezamos este proceso juntos, en Ginebra. Esto es lo que vinimos a buscar, desde el primer día.
+— Veintidós meses desde el Tourmalet, once meses desde que empezamos este proceso juntos en Ginebra, y un mes desde que ganaste en Italia —dijo finalmente Rusconi—. Pero esto es distinto. Esto fue contra los mejores del mundo, no contra un campo de categoría menor. Esto es lo que vinimos a buscar, desde el primer día.
 
 — No puedo creer que pasó de verdad —dijo Santi, todavía con la respiración entrecortada—. Pensé que iba a tomar mucho más tiempo llegar a esto.
 
@@ -146,12 +148,8 @@ Marco Colombo, el italiano que había compartido equipo con Santi durante los a�
 
 Santi se quedó un momento pensando en esos dos nombres, en cuánto habían cambiado los compañeros que lo rodeaban desde sus primeros años en Europa —Clarke y Colombo ya retirados, Luca ahora el veterano del equipo, y una nueva generación de gregarios jóvenes ocupando el lugar que ellos mismos habían ocupado alguna vez—, sintiendo, en ese repaso silencioso, la misma sensación de continuidad que el ciclismo parecía repetir, generación tras generación, sin que nadie pudiera realmente detenerla.
 
-Hernando, esa noche, escribió en el cuaderno la entrada más feliz que había anotado en casi dos años:
+Esa noche, Hernando no escribió de inmediato. Llamó primero a Carmen, que ya se había dormido, y se quedó un momento simplemente repitiendo en voz baja, para nadie, la palabra "ganó", como si necesitara decirla varias veces antes de poder anotarla. Cuando finalmente abrió el cuaderno, la letra le salió más rápida de lo habitual, casi ilegible en los primeros renglones.
 
-*1 de mayo de 2026. Tour de Romandie, Alto de Naye. PRIMERA VICTORIA DESDE EL TOURMALET. Veintidós meses exactos de espera. Ataque a dos kilómetros de la cima, seis segundos de ventaja en la meta. Pogačar lo abrazó en la zona de meta como a un hermano. La Vuelta a España, en agosto, es ahora el objetivo confirmado del año. Después de tanto tiempo escribiendo sobre dolor y paciencia, hoy finalmente puedo escribir sobre algo que se parece, de verdad, a la alegría pura de antes.*
-
-Antes de cerrar el cuaderno, agregó una última línea, casi como una promesa silenciosa hecha a sí mismo más que a cualquier lector futuro de esas páginas.
-
-*Que esta victoria sea solo la primera de muchas, pero que, sin importar cuántas vengan después, nunca olvide exactamente lo que se sintió hoy, después de tanto tiempo sin sentirlo.*
+*1 de mayo de 2026. Tour de Romandie, Alto de Naye. PRIMERA GRAN VICTORIA DESDE EL TOURMALET, contra un pelotón completo de favoritos. Coppi e Bartali en marzo fue la primera señal; esto es la confirmación. Veintidós meses exactos de espera para algo de esta magnitud. Ataque a dos kilómetros de la cima, sin la duda de la Itzulia — me dijo que en esos dos kilómetros no calculó nada, que simplemente atacó. Seis segundos de ventaja en la meta. Pogačar lo abrazó como a un hermano. La Vuelta, en agosto, objetivo confirmado. No voy a escribir mucho más esta noche. Hay noches que se viven, no se resumen.*
 
 ---

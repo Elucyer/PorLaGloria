@@ -26,6 +26,14 @@ Koen, revisando las cuatro bicicletas del equipo antes de la salida con el mismo
 
 La primera etapa, con un final exigente en el alto de Gorla, transcurrió con Santi sintiendo, por primera vez desde el regreso, algo parecido a la sensación de competir de verdad, no solo de completar una distancia: marcó el ritmo del grupo de favoritos secundarios durante buena parte de la subida final, terminando en el puesto doce, a poco más de un minuto de los corredores que peleaban por la clasificación general real de la carrera.
 
+Lo que no le contó a nadie esa noche, ni siquiera a Mariana, fue lo que pasó treinta segundos antes de esa subida, en la bajada técnica que la precedía: un grupo de seis corredores jóvenes se lanzó por una curva cerrada con una confianza que él mismo hubiera tenido, sin pensarlo dos veces, en 2023. Santi frenó. No mucho, apenas un toque de más, el tiempo suficiente para perder cuatro o cinco puestos en la fila antes de entrar a la curva. Nadie en la transmisión lo notó. Él sí.
+
+— Perdí posición en la bajada de antes de la meta —le dijo a Rusconi esa noche, casi como una confesión que no había planeado hacer—. No por las piernas. Frené donde antes no frenaba.
+
+— Eso ya lo sabíamos que iba a pasar —dijo Rusconi, sin sorprenderse—. La pregunta no es si vas a frenar. Es si con el tiempo vas a confiar en la curva otra vez, o si esto se va a quedar instalado para siempre.
+
+— No lo sé —admitió Santi—. Y eso me molesta más que cualquier resultado de la semana.
+
 — Doce —le dijo a Mariana esa noche, con una satisfacción que no había sentido en ninguna carrera anterior del año—. El mejor resultado desde el accidente, en un perfil que de verdad exigía algo.
 
 — Eso es enorme —dijo Mariana—. ¿Cómo se sintió el cuerpo, comparado con Andalucía?
@@ -54,6 +62,12 @@ La segunda y tercera etapas, ambas con perfiles de media montaña, confirmaron u
 
 La cuarta etapa, con el final en alto más exigente de toda la carrera —catorce kilómetros con rampas que superaban el quince por ciento en los últimos dos—, fue donde Santi sintió, por primera vez en ese regreso, algo parecido a competir de verdad contra los mejores corredores del momento, no solo contra su propio cuerpo: siguió, durante buena parte de la subida, el ritmo de un grupo reducido de favoritos que incluía a varios de los nombres jóvenes que ya empezaban a dominar el pelotón, cediendo finalmente a tres kilómetros de la cima, pero terminando la etapa en el puesto nueve, su mejor resultado individual desde el Tourmalet.
 
+A mitad de esa misma subida, en un tramo donde el pelotón reducido se abrió ligeramente para tomar una curva cerrada a izquierda, Santi vio el hueco que su cuerpo de antes hubiera cerrado sin pensarlo: medio metro junto al borde de la carretera, suficiente para ganar tres o cuatro puestos sin frenar. No lo tomó. Calculó, frenó un poco de más, esperó la curva siguiente, más abierta, más segura. Cuando finalmente cedió, tres kilómetros más arriba, se preguntó si esos segundos perdidos en esa curva hubieran cambiado algo.
+
+— Probablemente no —le dijo Rusconi esa noche, cuando Santi le contó la duda—. Probablemente esos segundos no cambiaban nada en el resultado final de hoy.
+
+— Lo sé —dijo Santi—. Pero el corredor que era antes ni se hubiera hecho la pregunta. La hubiera tomado, sin pensarlo, y después hubiera visto qué pasaba.
+
 — Nueve —repitió Hernando, esa noche, por teléfono, con la voz quebrada por una emoción que llevaba meses sin sentir con esa intensidad—. En la etapa más dura de toda la semana.
 
 — Cedí a tres kilómetros de la cima —aclaró Santi—. No fue una victoria. Pero seguí el ritmo de corredores que hace dos meses ni hubiera podido imaginar seguir.
@@ -69,6 +83,14 @@ La cuarta etapa, con el final en alto más exigente de toda la carrera —catorc
 ---
 
 La quinta y última etapa, de carácter más llano, sirvió como cierre de una semana que Santi terminó en el puesto trece de la clasificación general, su mejor resultado desde el regreso por un margen amplio, suficiente para devolverle al pelotón completo una versión de él que se parecía, cada vez más, al corredor que había sido antes del accidente.
+
+El ganador de la general, un francés de diecinueve años llamado Paul Seixas que llevaba toda la temporada anunciándose como el nombre nuevo más temido del pelotón —ya con una victoria de etapa y el segundo puesto general en el Algarve, y un segundo lugar detrás de Pogačar en la Strade Bianche, semanas antes—, subió al escalón más alto con una naturalidad que a Santi le recordó, con una punzada extraña, la suya propia a esa edad.
+
+— Seis años menor que vos, y ya corre la crono como si hubiera nacido en un túnel de viento —le comentó Rusconi esa noche, repasando los datos de la carrera—. Ese es el problema de seguir compitiendo después de los veinticinco. Siempre hay alguien más joven llegando con algo que a vos te costó años construir.
+
+— Lo vi en la crono del miércoles —dijo Santi—. Posición perfecta, sin que nadie se la tuviera que enseñar. A mí me tomó tres temporadas de túnel de viento llegar a algo parecido.
+
+— Bienvenido al lado del reloj que no elegiste —dijo Rusconi, con media sonrisa—. Hace años que te toca mirar hacia atrás tanto como hacia adelante.
 
 En la zona de meta, Isaac del Toro, el joven mexicano que había terminado la carrera en el podio, se acercó a Santi con el respeto de quien reconocía, en ese resultado, algo más que un simple puesto trece.
 
@@ -108,13 +130,9 @@ Rusconi sonrió, cerrando la laptop con la decisión finalmente tomada.
 
 ---
 
-Hernando, esa noche, escribió en el cuaderno una entrada que marcaba, de forma explícita, el rumbo del resto del año:
+Esa noche, en lugar de escribir directamente en el cuaderno, Hernando se quedó un rato largo mirando la página en blanco, el bolígrafo quieto en la mano, pensando en lo que Santi le había contado por teléfono sobre la curva de la cuarta etapa. Le costó encontrar la frase correcta para algo que no era un dato de carrera, sino una duda que su hijo nunca le había confesado antes de esa forma.
 
-*10 de abril de 2026. Itzulia País Vasco. 13.º general, 9.º en la etapa más dura de la semana — el mejor resultado desde el accidente, por lejos. Decisión tomada: nada de Tour de Francia este año. La Vuelta a España, en agosto, será el objetivo real de la temporada. La única corona que le falta en su carrera, en el año más simbólico posible para intentarla. Isaac del Toro, el joven mexicano, le mostró respeto genuino en la meta — la próxima generación ya empieza a reconocerlo como una referencia, no solo como un rival caído.*
-
-Antes de cerrar el cuaderno, agregó una última línea, con la misma esperanza cautelosa que llevaba documentando desde enero.
-
-*Cuatro meses más de construcción. Si la curva sigue así, agosto puede ser el mes que cierre, finalmente, esta primera mitad del regreso. Veremos.*
+*10 de abril de 2026. Itzulia País Vasco. 13.º general, 9.º en la etapa más dura de la semana — el mejor resultado desde el accidente, por lejos. Decisión tomada: nada de Tour de Francia este año. La Vuelta, en agosto, será el objetivo real. Pero hay algo que anotar que no es ningún número: Santi me contó que frenó donde antes no frenaba, dos veces esta semana, y que la duda lo molesta más que cualquier resultado. No sé si eso se cura con el tiempo o si se queda. Voy a seguir escribiendo, etapa por etapa, hasta que lo sepamos los dos.*
 
 Mariana, que había viajado al País Vasco para las dos últimas etapas, encontró a Santi esa noche revisando el mensaje que le había mandado del Toro horas antes, agradeciéndole otra vez el gesto en la zona de meta.
 

@@ -10,7 +10,13 @@
 
 La reunión se hizo en la sede del equipo en Girona, en la misma sala de la mesa ovalada donde Ferretti había mostrado, año tras año, los planes de cada temporada. Esta vez, sin embargo, no había mapas de recorridos en la pantalla. Había un contrato, todavía sin firmar, proyectado en la pared para que las cuatro personas presentes —Santi, Ferretti, Patiño por videollamada desde Medellín, y un representante legal del equipo— pudieran revisarlo línea por línea antes de cerrarlo.
 
-— Empecemos por lo que cambia respecto al contrato anterior —dijo Patiño, compartiendo su pantalla—. Salario base: de dos millones quinientos mil a tres millones doscientos mil euros anuales, por tres años. Eso ya está acordado desde enero. Lo que queda por cerrar hoy son las cláusulas de bonos.
+— Empecemos por lo que cambia respecto al contrato anterior —dijo Patiño, compartiendo su pantalla—. Salario base: de dos millones ochocientos mil a seis millones de euros anuales, por tres años. Eso ya está acordado desde enero, en línea con lo que proyectamos hace un año, en el cierre de 2021, cuando hablamos por primera vez de esta renovación. Lo que queda por cerrar hoy son las cláusulas de bonos.
+
+— Seis millones —repitió Santi, sin ocultar que la cifra todavía le costaba asimilarla del todo, a pesar de los meses que llevaba sabiéndolo—. Patiño, en esa reunión de hace dos diciembres, dijiste "unos seis millones, quizás más". Te quedaste corto con el "quizás más".
+
+— Me quedé corto porque el mercado de equipos top creció más rápido de lo que proyecté entonces —dijo Patiño, sin disimular la satisfacción—. Y porque ganaste un Giro más desde esa reunión. Los números siguen al palmarés, no al revés.
+
+— El presupuesto general del equipo también sube, para que tengas el contexto completo —agregó el representante legal—. MercadoLibre-FCV pasa de treinta y dos a treinta y ocho millones de euros anuales. El crecimiento no es solo tu salario: es la estructura completa, mecánicos, segundo equipo de desarrollo, el centro médico nuevo en Girona que Koen lleva pidiendo dos años.
 
 — La cláusula vieja tenía el problema que ya discutimos en diciembre —dijo Ferretti—. Cubría Grand Tour, Monumento, Mundial, Juegos Olímpicos y etapas de Grand Tour. Dejaba afuera carreras como Sanremo, Itzulia o la Flèche, que terminaron pesando en la temporada pasada sin que el contrato las reconociera.
 
@@ -64,6 +70,10 @@ Ferretti fue el primero en hablar.
 
 — Casi cerradas —dijo Duarte—. Deberíamos firmar las dos antes de Semana Santa. Sin chocar con ningún contrato existente, como prometí en diciembre.
 
+— Y los contratos viejos, ¿también se mueven? —preguntó Santi—. Claro, IWC, Bancolombia, Garmin, Alto Performance. Llevan dos o tres años con los mismos números.
+
+— Ya está todo conversado, solo falta firmar —dijo Duarte—. Con bicampeón del Tour y tricampeón del Giro en la mesa, ninguno de los cinco dudó. Claro sube su pago anual en un veinte por ciento. IWC activa una cláusula nueva de bono por Grand Tour que antes no tenía. Bancolombia y Garmin suben proporcional al resto del mercado. Alto Performance amplía la línea de regalías, ahora que el volumen de ventas justifica el riesgo. Nada espectacular en ningún caso individual, pero sumado, es un salto real respecto a lo que firmamos hace tres años.
+
 — Buen trabajo —dijo Santi—. Entre esto y el contrato del equipo, este marzo terminó siendo más ocupado en papeleo que en bicicleta.
 
 — Así es este negocio también —dijo Patiño, riendo—. No todo se gana en una carretera.
@@ -92,7 +102,7 @@ La firma se hizo poco después, con Santi firmando físicamente en Girona y Pati
 
 Esa noche, llamó a Hernando para contarle los detalles.
 
-— Listo, firmado —dijo Santi—. Tres años más con el equipo. Bonos mejorados, cobertura médica ampliada, y agregué algo que no esperabas.
+— Listo, firmado —dijo Santi—. Tres años más con el equipo, salario nuevo de seis millones, bonos mejorados, cobertura médica ampliada, y agregué algo que no esperabas.
 
 — ¿Qué cosa?
 

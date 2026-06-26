@@ -70,6 +70,12 @@ Santi se quedó callado un momento, con la imagen todavía clara del mensaje de 
 
 — Confirmado —dijo, finalmente—. Que firme.
 
+— Una cosa más, antes de pasar al calendario —agregó Rusconi—. Patiño me pidió que te lo mencionara, ya que estamos todos en la misma llamada. El presupuesto del equipo para este año quedó confirmado en cuarenta y dos millones de euros, seis más que el año pasado. Parte va al segundo equipo de desarrollo, parte a la estructura médica nueva de Girona, y una parte importante, según Patiño, refleja directamente lo que representás ahora para los patrocinadores: el equipo más visible del pelotón, con la estrella más visible también.
+
+— Más presupuesto, más responsabilidad —dijo Santi, sin que la cifra lo desconcentrara del tema que realmente le importaba esa mañana—. Mientras eso no signifique más reuniones de las que ya tengo con Duarte y Patiño.
+
+— Probablemente sí signifique alguna reunión más —dijo Rusconi, con un tono que dejaba claro que no era una promesa vacía—. Pero esa conversación es para otro día. Hoy el foco es el calendario y David.
+
 — ¿Algo que quieras que le transmita, antes de que sea oficial? —preguntó Rusconi.
 
 — Decile que el año que viene, esta vez, le toca a él decir cuándo.

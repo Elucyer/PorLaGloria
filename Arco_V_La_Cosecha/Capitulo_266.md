@@ -14,108 +14,120 @@ La primera semana completa en Girona, sin Hernando ni Carmen ya de vuelta en Col
 
 — Lo sé —dijo Santi—. Lo sé desde octubre. Pero estar acá, en la sede, viendo a los demás salir a entrenar en la carretera mientras yo hago sentadillas en un gimnasio, es más difícil de lo que pensé.
 
-— Es exactamente para eso que viniste a Girona —dijo Rusconi—. Para que esa diferencia te frustre todos los días en persona, en lugar de imaginarla desde Medellín. La frustración de cerca, paradójicamente, ayuda más que la comodidad de lejos.
+— Es exactamente para eso que viniste a Girona —dijo Rusconi—. Para que esa diferencia te frustre todos los días en persona, en lugar de imaginarla desde Medellín.
 
 ---
 
-Las primeras semanas de fortalecimiento específico avanzaron sin sobresaltos, con Santi cumpliendo cada sesión con la misma disciplina silenciosa que había aplicado a cada bloque de entrenamiento de su carrera, aunque el contenido —prensa de piernas, ejercicios de estabilidad lumbar, trabajo isométrico para la zona donde la vértebra todavía terminaba de consolidarse— no se parecía en nada a lo que asociaba con prepararse para competir.
-
-Luca, que entrenaba con el resto del equipo en la carretera mientras Santi todavía estaba confinado al gimnasio, pasaba por las tardes a verlo, después de sus propias sesiones.
-
-— ¿Cómo va? —preguntó Luca, una tarde, encontrando a Santi terminando una serie de ejercicios con una banda elástica, sudando más de lo que cualquier persona ajena al deporte hubiera esperado de un ejercicio tan simple.
-
-— Humillante —dijo Santi, riendo sin demasiada alegría—. Hace dos años podía subir el Galibier en menos de cuarenta minutos. Hoy me cuesta sostener el equilibrio en una pierna durante treinta segundos.
-
-— Es temporal —dijo Luca—. Lo vi en otros compañeros que volvieron de lesiones. El cuerpo recuerda más rápido de lo que uno cree, una vez que empieza a creerle otra vez.
-
-— Eso espero —dijo Santi—. Porque ahora mismo no se siente como mi cuerpo. Se siente como uno prestado, que todavía no aprendió las reglas de la casa.
-
-Mariana, que pasó por el gimnasio esa misma tarde para fotografiar una sesión para el reportaje que seguía coordinando con la revista española, observó el ejercicio de la banda elástica desde una esquina, con la cámara baja, sin disparar todavía.
-
-— ¿Puedo hacerte una pregunta rara? —dijo Mariana, después de un rato.
-
-— Las que quieras.
-
-— ¿Te da vergüenza que te vea así? —preguntó—. Sudando por algo que cualquier persona sin entrenamiento podría hacer sin esfuerzo.
-
-Santi lo pensó un momento, sin la respuesta automática de orgullo herido que hubiera dado meses atrás.
-
-— Un poco, todavía —admitió—. Pero menos que antes. Supongo que ya me acostumbré a que vos veas las partes que no son gloriosas.
-
-— Esas son las que más me importan fotografiar, en realidad —dijo Mariana, levantando finalmente la cámara—. La gente ya vio mil fotos tuyas ganando. Casi nadie vio esto.
-
----
+Las primeras semanas de fortalecimiento específico avanzaron sin sobresaltos, con Santi cumpliendo cada sesión con la misma disciplina silenciosa que había aplicado a cada bloque de entrenamiento de su carrera, aunque el contenido —prensa de piernas, estabilidad lumbar, trabajo isométrico para la zona donde la vértebra todavía terminaba de consolidarse— no se parecía en nada a lo que asociaba con prepararse para competir.
 
 A mediados de febrero, después de seis semanas completas de fortalecimiento, Rusconi finalmente autorizó las primeras salidas reales en bicicleta, con un volumen tan bajo que en cualquier año anterior de la carrera de Santi hubiera parecido un entrenamiento de recuperación activa después de una carrera, no el comienzo de una temporada.
 
-— Cuarenta minutos, ritmo conversacional, sin ninguna excepción —dijo Rusconi, antes de la primera salida—. Si en algún momento el cuerpo te dice que pares, parás. No negociás con eso este año.
+— Cuarenta minutos, ritmo conversacional, sin ninguna excepción —dijo Rusconi—. Si en algún momento el cuerpo te dice que pares, parás. No negociás con eso este año.
 
-La primera salida, junto a Luca por las carreteras tranquilas que rodeaban Girona, transcurrió sin problemas durante los primeros treinta minutos. Fue en el minuto treinta y cuatro, en un repecho suave que en cualquier otro momento de su carrera Santi ni hubiera registrado como esfuerzo, cuando sintió, por primera vez desde el accidente, una sensación que no esperaba todavía: las piernas, simplemente, dejaron de responder con la misma fuerza, como si alguien hubiera bajado un interruptor sin avisar.
+La primera salida, junto a Luca por las carreteras tranquilas que rodeaban Girona, transcurrió sin problemas durante los primeros treinta minutos. Fue en el minuto treinta y cuatro, en un repecho suave que en cualquier otro momento de su carrera Santi ni hubiera registrado como esfuerzo, cuando sintió, por primera vez desde el accidente, las piernas dejar de responder con la misma fuerza, como si alguien hubiera bajado un interruptor sin avisar.
 
 — Necesito bajar el ritmo —dijo Santi, con la voz tensa, sin frenar del todo pero reduciendo notablemente la cadencia.
 
-Luca, sin hacer preguntas, bajó el ritmo con él de inmediato, acompañándolo en silencio el resto del trayecto de vuelta, mientras Santi sentía, con una mezcla de frustración y algo parecido al miedo, que el cuerpo le estaba dictando límites que él, mentalmente, todavía no había aceptado del todo.
+Luca, sin hacer preguntas, bajó el ritmo con él de inmediato.
 
 ---
 
 Esa noche, en la videollamada de seguimiento, Santi le contó a Rusconi exactamente lo que había sentido en el minuto treinta y cuatro.
 
-— Eso es información valiosa, no una mala noticia —dijo Rusconi, revisando los datos de potencia de la salida, donde se veía con claridad la caída abrupta—. El cuerpo todavía no tiene la resistencia de base que vas a necesitar. Cuarenta minutos sostenidos, sin nada de intensidad, ya lo agotaron. Esto va a pasar muchas veces más este año, antes de que dejes de sentirlo.
+— Eso es información valiosa, no una mala noticia —dijo Rusconi, revisando los datos de potencia—. El cuerpo todavía no tiene la resistencia de base que vas a necesitar. Esto va a pasar muchas veces más este año, antes de que dejes de sentirlo. Probablemente va a pasar en alguna de las primeras carreras también.
 
-— ¿Muchas veces más? —repitió Santi, sin poder esconder la decepción.
+— ¿Y si pasa en una carrera de verdad? —preguntó Santi—. ¿Si tengo que abandonar?
 
-— Probablemente —dijo Rusconi, con la honestidad que ya era costumbre entre los dos—. No quiero que te sorprenda cada vez que pase. Va a pasar en entrenamientos. Probablemente va a pasar en alguna de las primeras carreras también, cuando volvamos a competir. El cuerpo tiene su propio calendario de reconstrucción, y ese calendario no siempre coincide con el que vos querés.
+Rusconi se quedó callado un momento.
 
-— ¿Y si pasa en una carrera de verdad? —preguntó Santi, formulando, por primera vez en voz alta, un miedo que llevaba semanas sin nombrar—. ¿Si tengo que abandonar?
+— Entonces abandonás —dijo, finalmente—. Y no va a ser un fracaso. Va a ser el cuerpo diciendo la verdad en el momento exacto en que hace falta escucharla.
 
-Rusconi se quedó callado un momento, sopesando la pregunta con el mismo cuidado de siempre.
+Santi colgó pensando que, al menos en eso, la pregunta ya tenía una respuesta aceptada por adelantado. Lo que no le dijo a Rusconi —porque todavía no encontraba la forma de decirlo sin que sonara a otra cosa— era que el miedo a no terminar una etapa no era, en el fondo, lo que más le pesaba. Lo que de verdad le inquietaba era algo más difícil de medir en watts: una sensación, todavía vaga, de que ya no sabía si, llegado el momento de decidir entre guardar fuerzas y arriesgarlo todo, su cabeza iba a elegir lo mismo que elegía antes.
 
-— Entonces abandonás —dijo, finalmente, sin suavizar la respuesta—. Y no va a ser un fracaso. Va a ser el cuerpo diciendo la verdad en el momento exacto en que hace falta escucharla. Preferiría eso mil veces a que sigas forzando algo que ya no está ahí, solo por orgullo.
+Hernando anotó en el cuaderno, esa noche, una línea breve:
 
----
-
-Esa misma noche, ya en el apartamento, Santi le contó a Mariana la conversación completa, sentado en el sofá nuevo que todavía olía a mueble recién comprado.
-
-— ¿Te asusta esa posibilidad? —preguntó Mariana—. ¿La de no terminar una carrera?
-
-— Más de lo que pensé que me asustaría —admitió Santi—. Nunca abandoné una carrera en toda mi carrera profesional. Ni siquiera en los peores días. Esto sería distinto.
-
-— ¿Por qué sería distinto? —preguntó Mariana—. Ya viviste algo mucho peor que no terminar una carrera. Sobreviviste a una caída que casi te deja sin caminar bien. Comparado con eso, no terminar una etapa es algo que el cuerpo puede sostener sin que se rompa nada de verdad.
-
-— Lo sé, racionalmente —dijo Santi—. Pero hay una parte de mí que todavía mide todo en términos de terminar o no terminar, ganar o no ganar. Esa parte no entendió todavía que este año se mide distinto.
-
-— Entonces vamos a tener que enseñarle eso, entre todos —dijo Mariana—. Cada vez que haga falta.
+*Febrero 2026. Girona. Primeras salidas en bicicleta. El cuerpo falla a los treinta y cuatro minutos, sin aviso. Va a pasar más veces, dice Rusconi. Empieza el año.*
 
 ---
 
-Llamó a Hernando antes de dormir, como cada noche, contándole la misma conversación con un detalle que no había compartido todavía con nadie más.
+Ferretti, antes de la primera reunión técnica completa del año, le recordó a Santi algo que ya le había dicho en diciembre, pero que ahora, con el calendario por delante en vez de detrás, pesaba distinto.
 
-— Rusconi me dijo que probablemente voy a tener que abandonar alguna carrera este año —dijo Santi—. Que no va a ser un fracaso, que va a ser el cuerpo diciendo la verdad.
+— El contrato con MercadoLibre vence en marzo —dijo Ferretti—. Se renueva al mismo tiempo que volvés a competir. La directiva sabe que no depende de un resultado inmediato, pero también sabe que lleva dos años sin ver lo que pagó por ver.
 
-Hernando se quedó callado un momento, antes de responder con una calma que reflejaba años de haber visto a su hijo enfrentar cada tipo de adversidad posible.
+— Lo sé —dijo Santi—. Arroyave terminó vigésimo octavo en un Giro el año pasado y lo festejamos como un podio. Eso no se me olvida.
 
-— Tiene razón —dijo Hernando—. Y te voy a contar algo que nunca te conté, porque nunca hizo falta hasta ahora: yo abandoné dos carreras en mi propia carrera de gregario. Las dos veces sentí que el mundo se acababa. Las dos veces, mirado desde hoy, fueron simplemente el cuerpo protegiéndome de algo peor.
+— Por eso te lo recuerdo ahora, no en marzo —dijo Ferretti—. No para que corras con miedo. Para que sepas exactamente cuánto silencio aguantó este equipo mientras te esperaba, y por qué este año importa para más gente que solo vos.
 
-— No sabía eso —dijo Santi, sorprendido.
+— Entendido —dijo Santi, sin necesitar que se lo explicaran dos veces.
 
-— Nunca tuve la oportunidad de contarlo, porque tu carrera siempre fue de éxito en éxito —dijo Hernando—. Pero ahora que vos también vas a pasar por eso, quiero que sepas que no es el fin de nada. Es, simplemente, parte de lo que significa correr en bicicleta lo suficiente como para que el cuerpo, en algún momento, te pase la cuenta.
+A la mañana siguiente, antes del desayuno, Koen llegó al apartamento con las dos bicicletas de competencia ya ajustadas a la nueva posición que Rusconi había recalculado.
 
-Hernando anotó en el cuaderno, esa noche, una línea que reflejaba el inicio real de ese año de regreso:
+— Va a sentirse distinta, al principio —advirtió Koen, mostrando los ajustes en la pantalla de la tablet—. Un centímetro más de altura en el sillín, dos grados menos de inclinación en el manillar.
 
-*Febrero 2026. Girona. Primeras salidas en bicicleta. El cuerpo falla a los treinta y cuatro minutos, sin aviso. Rusconi dice que va a pasar más veces, incluso en carrera. Santi, por primera vez, tiene miedo de no terminar algo. Le conté lo de mis dos abandonos viejos, que nunca le había contado. A veces los hijos necesitan escuchar las derrotas del padre, no solo sus consejos.*
+— Después de todo lo que ya noté esta semana, un centímetro de sillín no me asusta —dijo Santi, con un humor que no había mostrado en varios días.
+
+— Avisame cualquier molestia rara, por mínima que sea —dijo Koen—. Este año no hay margen para ignorar nada.
 
 ---
 
-Antes de dormir, Santi revisó el calendario que Ferretti había compartido esa semana: las primeras carreras de bajo riesgo estaban programadas para finales de febrero y marzo, pruebas pequeñas, sin ninguna expectativa de resultado, pensadas únicamente para que el cuerpo volviera a sentir, después de casi dos años, lo que significaba competir contra otros corredores y no solo contra un cronómetro de entrenamiento.
+Esa misma tarde, ya con las bicicletas nuevas montadas, Mariana le propuso algo que llevaba días pensando.
 
-Pensó, mirando el techo del apartamento todavía nuevo, en la posibilidad real de no terminar alguna de esas carreras, y se sorprendió a sí mismo al notar que, después de la conversación con Hernando, esa posibilidad ya no le generaba el mismo terror de un par de horas antes. Seguía dando miedo. Pero ya no se sentía como el fin de algo. Se sentía, simplemente, como la siguiente verdad incómoda que el cuerpo iba a tener que decirle, tarde o temprano, en su propio idioma.
+— Antes de que empiece todo esto en serio —dijo, mientras revisaba unas fotos en la pantalla de la cámara— quiero llevarte a un lugar este fin de semana. No a entrenar. Solo los dos, antes de que el calendario te trague entero otra vez.
 
-A la mañana siguiente, antes del desayuno, Koen llegó al apartamento con las dos bicicletas de competencia ya ajustadas a la nueva posición que Rusconi había recalculado, considerando los meses de inactividad relativa y el ligero cambio en la masa muscular de Santi tras la recuperación.
+Fueron a Cadaqués el sábado: dos horas de auto, calles empedradas, el Mediterráneo en un azul que ninguno de los dos había visto todavía desde que se instalaron en Girona. Caminaron por el paseo marítimo casi sin hablar de bicicletas, comieron mal y bien al mismo tiempo en un restaurante de pescadores, y Santi durmió, las dos noches, sin revisar una sola vez el teléfono antes de apagar la luz.
 
-— Va a sentirse distinta, al principio —advirtió Koen, mostrando los ajustes en la pantalla de la tablet—. Un centímetro más de altura en el sillín, dos grados menos de inclinación en el manillar. Nada dramático, pero el cuerpo lo va a notar las primeras veces.
+— Esto no se va a repetir muy seguido este año, ¿verdad? —dijo Mariana, el domingo, ya de vuelta en el auto.
 
-— Después de todo lo que ya noté esta semana, un centímetro de sillín no me asusta —dijo Santi, sonriendo con un humor que no había mostrado en varios días.
+— No —dijo Santi, mirando el mar alejarse por el espejo retrovisor—. Pero me alegra que haya sido ahora, antes de que arranque todo. Después de esto no va a quedar mucho espacio para escapadas.
 
-— Esa actitud ayuda más de lo que crees —dijo Koen—. Avisame cualquier molestia rara, por mínima que sea. Este año no hay margen para ignorar nada.
+Fue, sin que ninguno de los dos lo dijera en voz alta, una despedida adelantada de ese tipo de fin de semana: no porque no fueran a tener más, sino porque ambos sabían que el año que empezaba no iba a dejar muchos huecos para repetirlo con la misma calma.
+
+---
+
+De vuelta en Girona, con el calendario de las primeras carreras de bajo riesgo ya confirmado para finales de febrero y marzo, Santi se sorprendió revisando, más que el plan de Rusconi, viejas grabaciones de sus propias carreras de 2023 y 2024: un ataque en pleno descenso del Tour de Suiza, una bajada temeraria en la Lieja que en su momento nadie cuestionó porque salió bien. Los miraba sin nostalgia, casi como quien estudia a un desconocido.
+
+— ¿Qué buscás ahí? —preguntó Mariana, encontrándolo con el teléfono inclinado hacia la pantalla, una noche.
+
+— No estoy seguro —admitió Santi—. Trato de acordarme de qué se sentía decidir así, sin pensarlo dos veces.
+
+— ¿Y te acordás?
+
+— Un poco —dijo Santi—. Pero ya no estoy seguro de que vaya a sentirse igual la próxima vez que tenga que decidir algo parecido en plena carrera. Y esa duda me molesta más que cualquier cosa que el cuerpo me haya dicho hasta ahora.
+
+No dijo más esa noche. Tampoco hizo falta. Apagó la luz pensando en el mismo lugar exacto donde, kilómetros y kilómetros de carretera por delante, iba a tener que averiguarlo: no en un gimnasio, no en una videollamada con Rusconi, sino en el instante exacto de una bajada o un ataque, cuando el cuerpo respondiera bien y la cabeza, por primera vez en su carrera, dudara antes de usarlo.
+
+---
+
+La primera vez que esa duda se hizo visible, sin embargo, no fue todavía en carrera, sino en un entrenamiento de descensos que Rusconi programó a finales de febrero, en las carreteras que bajaban desde el Collformic, una rutina que Santi había hecho cientos de veces antes del accidente sin pensarlo más de lo que pensaba en respirar.
+
+— Hoy solo queremos volumen de curvas, nada de tiempo —dijo Rusconi, antes de la salida—. Bajá como quieras bajar. No hay cronómetro.
+
+Luca, que bajaba un poco más adelante, tomó la primera curva cerrada del descenso con la misma línea exterior-interior-exterior que Santi reconocía de memoria: frenar antes, soltar el freno en la mitad, acelerar a la salida. Santi, llegando al mismo punto unos segundos después, sintió las manos cerrarse sobre los frenos casi sin que él lo decidiera, mucho antes del punto donde sabía, racionalmente, que debía frenar.
+
+Terminó la curva diez metros por detrás de donde la física —su propia física, la de toda una carrera— le hubiera permitido estar.
+
+— ¿Todo bien? —preguntó Luca, esperándolo al pie de la siguiente recta.
+
+— Bien —dijo Santi—. Frené de más en esa curva, nada más.
+
+No le dijo a Luca que no había sido un cálculo. Había sido un reflejo nuevo, instalado en algún lugar del cuerpo durante los meses de inmovilidad, que se activaba antes de que la parte de él que sabía pilotear una bicicleta pudiera intervenir. Bajó el resto del Collformic así, curva tras curva, frenando un poco antes de lo necesario, sin que ningún dato de potencia ni ningún cronómetro pudiera mostrarle jamás esa diferencia exacta, porque no era una diferencia de fuerza. Era una diferencia de otra cosa, y todavía no tenía un nombre claro para ella.
+
+Esa noche no se lo contó a nadie. No porque quisiera ocultarlo, sino porque no encontraba todavía las palabras que no sonaran, dichas en voz alta, como una confesión de miedo que él mismo no estaba seguro de que fuera eso.
+
+---
+
+Rusconi, revisando los datos del entrenamiento dos días después, no encontró nada que llamara su atención.
+
+— El Collformic salió bien —dijo, repasando los números en la pantalla del gimnasio—. Tiempos normales para volumen base, potencia estable en las subidas entre curva y curva. Nada que reportar.
+
+— Nada que reportar —repitió Santi, casi para sí mismo.
+
+Era exactamente el problema. Los números de Rusconi medían vatios, cadencia, frecuencia cardíaca: todo lo que el cuerpo producía o dejaba de producir. Ninguno de esos números sabía medir el medio segundo de más que Santi se tomaba antes de soltar el freno, ni la decisión, tomada sin decidirla, de tomar la línea más segura en lugar de la más rápida. Para cualquier instrumento del equipo, ese entrenamiento había sido perfecto. Solo Santi sabía que algo, en la curva tres del descenso, se había quedado corto, y que ese algo no iba a aparecer en ningún informe de Ginebra.
+
+— ¿Pasa algo? —preguntó Rusconi, notando el silencio.
+
+— No —dijo Santi—. Solo pensaba en cuántas cosas de las que importan no entran en una planilla.
+
+Rusconi lo miró un momento, sin presionar, y siguió con el resto de la sesión. Santi agradeció, sin decirlo, que por esa vez nadie le hiciera la pregunta que él todavía no sabía cómo responderse a sí mismo.
 
 ---

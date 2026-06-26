@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco V — La Cosecha
-### Capítulo 268 — El primer abandono (8 de marzo de 2026)
+### Capítulo 268 — Los tres segundos que dudó (8 de marzo de 2026)
 
 ---
 
@@ -10,214 +10,232 @@
 
 La noticia del regreso de Santi a la competencia, confirmada por el equipo apenas una semana antes, ocupó portadas y secciones deportivas en todo el mundo del ciclismo con una intensidad que ninguna carrera de categoría menor solía generar.
 
-*L'Équipe*, en su edición del jueves anterior a la salida, tituló su nota principal de la sección de ciclismo con una sola frase: *"Reyes, de retour"* —Reyes, de vuelta— acompañada de una fotografía de la caída en el Tourmalet de 2024, contrastada con una imagen reciente de Santi entrenando en Girona. *Marca* optó por un titular más cauteloso: *"El regreso más esperado e incierto del pelotón"*. *Gazzetta dello Sport*, con el estilo declarativo que la caracterizaba, escribió simplemente: *"Diciannove mesi dopo, torna il colombiano"* —diecinueve meses después, vuelve el colombiano—. *Cyclingnews*, en inglés, publicó un análisis extenso titulado *"Can Reyes find his old self in the Sierra de las Nieves?"*, repasando cada detalle médico conocido de la recuperación.
+*L'Équipe*, en su edición del jueves anterior a la salida, tituló su nota principal con una sola frase: *"Reyes, de retour"* —Reyes, de vuelta— acompañada de una fotografía de la caída en el Tourmalet de 2024, contrastada con una imagen reciente de Santi entrenando en Girona. *Marca* optó por un titular más cauteloso: *"El regreso más esperado e incierto del pelotón"*. *Gazzetta dello Sport* escribió simplemente: *"Diciannove mesi dopo, torna il colombiano"*.
 
-— Nunca pensé que una clásica de etapas de categoría menor en Andalucía iba a tener esta cobertura —le comentó Ferretti a Rusconi, revisando la cantidad de acreditaciones de prensa que la organización había tenido que gestionar de último momento—. Hay periodistas de seis países distintos solo para esta carrera.
+En la cabina de Teledeporte, instalada para la transmisión nacional de la carrera, los comentaristas españoles dedicaron buena parte de los minutos previos a la salida a especular sobre lo que se podía esperar de ese regreso.
+
+— Diecinueve meses sin competir, Carlos. Es un período enorme para cualquier corredor, pero especialmente para uno que viene de una fractura vertebral —dijo el comentarista principal—. La pregunta no es si va a ganar hoy. Es si el cuerpo va a aguantar la etapa de montaña del final.
+
+— Conozco el caso de cerca, por contactos en el equipo, y la palabra que más se repite es "cautela" —respondió el comentarista invitado, un exprofesional retirado—. Rusconi, su preparador, no esperaba traerlo a competir oficialmente hasta mayo. Que esté en la salida hoy ya dice algo.
+
+— ¿Y qué deberíamos esperar, en términos realistas, en el puerto de la Sierra de las Nieves?
+
+— Sinceramente, no me sorprendería verlo sufrir mucho ahí —dijo el exprofesional—. El cuerpo de un escalador de su nivel puede fingir normalidad en terreno llano durante horas. La montaña no permite ese tipo de actuación.
+
+Ninguno de los dos, con años de pelotón a sus espaldas, mencionó la otra pregunta, la que ningún comentarista todavía sabía formular sobre un corredor que volvía de un accidente así: no si el cuerpo iba a aguantar la subida, sino si la cabeza, llegado el momento de decidir entre arriesgar y guardar margen, iba a decidir lo mismo que antes.
+
+— Yo corrí dieciséis años, y le puedo asegurar una cosa —agregó el exprofesional, después de una pausa, mientras la imagen de la salida se preparaba en pantalla—. El cuerpo se reconstruye con planillas y con tiempo. Lo otro, lo que pasa por la cabeza de un corredor en el medio segundo en que tiene que decidir si ataca o no, eso no lo reconstruye ningún fisioterapeuta. Eso se reconstruye solo, carrera tras carrera, o no se reconstruye nunca.
+
+— Una observación interesante para tener en cuenta hoy —dijo el comentarista principal, sin profundizar más, mientras la señal cambiaba a la línea de salida, donde los corredores ya empezaban a acomodarse en sus posiciones bajo un sol todavía tibio de marzo.
+
+— Nunca pensé que una clásica de etapas de categoría menor en Andalucía iba a tener esta cobertura —le comentó Ferretti a Rusconi, revisando la cantidad de acreditaciones de prensa.
 
 — El mundo entero quiere saber lo mismo que nosotros todavía no sabemos con certeza —dijo Rusconi—. Si el cuerpo va a responder, o no.
 
----
-
-La tarde anterior a la salida, la organización de la carrera convocó una rueda de prensa especial, fuera del horario habitual reservado a los líderes de la general, exclusivamente para que Santi respondiera preguntas sobre su regreso —algo que ningún corredor de una carrera de esa categoría solía recibir, pero que la cantidad de medios acreditados volvía casi inevitable.
-
-La sala, pensada para veinte periodistas locales en un año normal, se llenó hasta el punto de que la organización tuvo que abrir las puertas laterales para que los que no entraban pudieran escuchar desde el pasillo.
-
-— Empecemos por lo obvio —dijo el primer periodista, de una agencia internacional—. Diecinueve meses después del Tourmalet, ¿cómo se siente físicamente, hoy, la noche antes de volver a competir?
-
-— Distinto a como me sentía antes de cualquier otra carrera de mi vida —dijo Santi, con una calma que escondía buena parte de los nervios reales—. No tengo la certeza de antes. Tengo, en cambio, muchas ganas, y un equipo que me preparó lo mejor que se podía preparar a alguien en mi situación.
-
-— ¿Qué expectativa de resultado tiene para la etapa de montaña de mañana? —preguntó otro periodista, de un medio español.
-
-— Ninguna, en términos de posición —dijo Santi, sin dudarlo—. La única expectativa real es información: saber qué tiene el cuerpo para dar en una subida de verdad, después de tanto tiempo. Sea lo que sea que pase mañana, lo vamos a usar para seguir construyendo el resto del año.
-
-— ¿Pensó, en algún momento de estos diecinueve meses, que no iba a volver a competir? —preguntó una periodista de un medio colombiano, con una pregunta más personal que las anteriores.
-
-Santi se quedó en silencio un instante, sopesando cuánto quería compartir frente a una sala llena de cámaras.
-
-— Lo pensé, sí —admitió, finalmente—. Más de una vez. Pero acá estoy, así que supongo que esa parte de la historia ya tiene una respuesta, aunque todavía no sepa cómo termina el resto.
-
-— Una última pregunta —dijo el periodista de *L'Équipe*, levantando la mano—. ¿Qué le diría a la gente que va a estar mañana en la carretera, viéndolo pasar por primera vez en casi dos años?
-
-— Que gracias por estar ahí, sea lo que sea que vean —dijo Santi—. Ganando, sufriendo, o bajándome de la bicicleta antes de la meta. Cualquiera de esas tres cosas es parte real de lo que significa volver, y prefiero que lo vean completo, no solo la parte bonita.
-
-Ferretti, cerrando la rueda de prensa antes de que la sala siguiera acumulando preguntas, agradeció la presencia de todos con una frase breve que los medios repetirían esa misma noche en sus resúmenes.
-
-— Mañana no van a ver al Santi de 2023 —dijo Ferretti—. Van a ver al Santi de 2026, que es una persona distinta, construida sobre todo lo que pasó. Eso, para nosotros, ya es motivo suficiente de orgullo, antes de que se dé la salida.
+Lo que Rusconi no decía, porque no tenía manera de medirlo, era la otra pregunta, la que solo Santi se hacía en silencio desde el ejercicio de grupo de la semana anterior: si la cabeza iba a responder igual que el cuerpo, llegado el momento.
 
 ---
 
-En la cabina de Teledeporte, instalada para la transmisión nacional de la carrera, los comentaristas españoles dedicaron buena parte de los minutos previos a la salida a especular sobre lo que se podía esperar de ese regreso, en una conversación que se repetía, con matices distintos, en cabinas de transmisión de medio mundo esa misma mañana.
+La tarde anterior a la salida, la organización convocó una rueda de prensa especial, fuera del horario habitual reservado a los líderes de la general.
 
-— Diecinueve meses sin competir, Carlos. Es un período enorme para cualquier corredor, pero especialmente para uno que viene de una fractura vertebral —dijo el comentarista principal, repasando las imágenes de archivo del accidente que la producción insertaba de fondo—. La pregunta no es si va a ganar hoy. Es si el cuerpo va a aguantar la etapa de montaña del final.
+— Diecinueve meses después del Tourmalet, ¿cómo se siente físicamente, hoy, la noche antes de volver a competir? —preguntó el primer periodista.
 
-— Conozco el caso de cerca, por contactos en el equipo, y la palabra que más se repite es "cautela" —respondió el comentarista invitado, un exprofesional retirado que solía aportar el análisis técnico—. Rusconi, su preparador, no esperaba traerlo a competir oficialmente hasta mayo. Que esté en la salida hoy, en marzo, ya dice algo de cómo viene progresando, aunque sea de forma desigual.
+— Distinto a como me sentía antes de cualquier otra carrera de mi vida —dijo Santi—. No tengo la certeza de antes. Tengo, en cambio, muchas ganas, y un equipo que me preparó lo mejor que se podía preparar a alguien en mi situación.
 
-— ¿Y qué deberíamos esperar, en términos realistas, en el puerto de la Sierra de las Nieves? —preguntó el primero.
+— ¿Qué expectativa de resultado tiene para la etapa de montaña de mañana?
 
-— Sinceramente, no me sorprendería verlo sufrir mucho ahí —dijo el exprofesional, con la honestidad de quien había vivido procesos similares en carne propia—. El cuerpo de un escalador de su nivel puede fingir normalidad en terreno llano durante horas. La montaña no permite ese tipo de actuación. Si todavía le falta algo, hoy lo vamos a ver con total claridad, sin ningún lugar donde esconderlo.
+— Ninguna, en términos de posición —dijo Santi—. La única expectativa real es información: saber qué tiene el cuerpo para dar en una subida de verdad, después de tanto tiempo.
 
-— Esperemos que sea un buen día para él, más allá del resultado —cerró el comentarista principal, mientras la imagen cambiaba hacia la línea de salida, donde el pelotón completo, incluidos varios corredores jóvenes que apenas estaban entrando a la adolescencia cuando Santi ganó su primer Giro, esperaba para empezar la etapa.
+— ¿Y si la información no es la que espera? —insistió otro periodista, desde el fondo de la sala.
 
----
+Santi se tomó un segundo antes de responder, mirando la fila de cámaras sin que la pregunta lo incomodara visiblemente.
 
-La Vuelta a Andalucía, con su tercera etapa terminando en un final en alto en la Sierra de las Nieves —un puerto de categoría media, nada comparable a cualquier montaña de un Grand Tour, pero suficiente para exigir un esfuerzo sostenido de más de veinte minutos— era, según el plan de Rusconi, el primer verdadero test de montaña desde el accidente, el tipo de terreno donde el déficit real de resistencia de base, si todavía existía, no iba a tener ningún lugar donde esconderse.
+— Entonces voy a tener la misma información que tenía antes de venir, pero confirmada —dijo—. Prefiero eso a seguir sin saberlo. Llevo diecinueve meses sin saberlo, y esa parte ha sido, de lejos, más difícil que cualquier respuesta incómoda que pueda recibir mañana en una montaña.
 
-— Hoy vamos a saber más que en cualquier otro día desde octubre —le dijo Rusconi a Santi, esa mañana, durante el desayuno del equipo—. Las dos primeras etapas fueron llanas. Esta es la primera donde el cuerpo no puede simplemente rodar con el grupo. Tiene que producir un esfuerzo sostenido de verdad.
+Ferretti, cerrando la rueda de prensa, agregó una frase que los medios repetirían esa misma noche.
 
-— Lo sé —dijo Santi, con una calma que escondía una inquietud que llevaba sintiendo desde la noche anterior—. Estoy listo para lo que sea que el cuerpo decida decirme hoy.
+— Mañana no van a ver al Santi de 2023 —dijo Ferretti—. Van a ver al Santi de 2026, que es una persona distinta, construida sobre todo lo que pasó.
 
----
-
-Las dos primeras etapas, ambas llanas, habían transcurrido sin sobresaltos significativos, con Santi terminando en el grupo principal sin gastar energía de más, ganando confianza de a poco con cada kilómetro acumulado en las piernas. Esa confianza, sin embargo, se sentía frágil esa mañana, mientras el equipo se preparaba para la salida con el perfil de la etapa proyectado en la pantalla del autobús.
-
-Luca, revisando el mismo perfil junto a Santi, señaló el tramo final con el dedo.
-
-— Doce kilómetros al seis por ciento de media, con un repecho del nueve en los últimos dos —dijo Luca—. No es nada extraordinario para cualquier otro día de tu carrera. Pero hoy no es cualquier otro día.
-
-— Lo sé —repitió Santi, sin necesitar que nadie le recordara la magnitud de lo que tenía por delante—. Vamos a verlo en la carretera, no acá sentados.
+Ferretti decía la frase pensando en el cuerpo. Santi, escuchándola desde la mesa, pensó en otra cosa: en que tampoco él sabía todavía, con certeza, qué tipo de corredor era el Santi de 2026 en el instante exacto en que hiciera falta decidir algo en una fracción de segundo, sin tiempo para pensarlo dos veces.
 
 ---
 
-Los primeros ciento veinte kilómetros de la etapa, en terreno ondulado antes del puerto final, transcurrieron sin que Santi sintiera ninguna señal de alarma, rodando cómodamente en el grupo principal mientras una fuga de cinco corredores sin opciones reales se adelantaba en la carretera. La sensación general era buena, casi demasiado buena para la inquietud que había sentido esa mañana.
+Los primeros ciento veinte kilómetros de la etapa, en terreno ondulado antes del puerto final, transcurrieron sin que Santi sintiera ninguna señal de alarma física, rodando cómodamente en el grupo principal mientras una fuga de cinco corredores sin opciones reales se adelantaba en la carretera.
 
-— Esto se siente mejor de lo que esperaba —le dijo a Rusconi por radio, a quince kilómetros del pie del puerto—. Las piernas responden bien, después de tanto tiempo sin sentir esto.
+— Esto se siente mejor de lo que esperaba —le dijo a Rusconi por radio, a quince kilómetros del pie del puerto.
 
-— Buena señal —dijo Rusconi—. Pero el puerto todavía no empezó. Guardá algo de margen mental para los últimos kilómetros, por si las cosas cambian rápido.
+— Buena señal —dijo Rusconi—. Pero el puerto todavía no empezó.
 
-Esa advertencia, dicha casi de forma rutinaria, resultaría, en retrospectiva, la más importante de toda la etapa.
+Los primeros seis kilómetros del puerto de la Sierra de las Nieves transcurrieron con Santi todavía dentro del grupo de los veinte mejores. Fue en el kilómetro siete, en un tramo donde tres corredores —entre ellos un joven francés que peleaba su primera clasificación general relevante— lanzaron un ataque conjunto, cuando se presentó la situación que Rusconi y Ferretti habían anticipado solo en abstracto, sin imaginar que llegaría tan pronto.
 
----
+— Se fueron tres —dijo Rusconi por radio—. ¿Cómo te sentís de piernas?
 
-Los primeros seis kilómetros del puerto de la Sierra de las Nieves transcurrieron con Santi todavía dentro del grupo de los veinte mejores, marcando un ritmo que, para cualquier observador externo, parecía perfectamente normal para un corredor en proceso de regreso. Fue en el kilómetro siete, en un tramo donde la pendiente se mantenía constante sin ninguna variación que permitiera un respiro táctico, cuando Santi sintió, por primera vez en esa carrera, algo que no se parecía a ningún tipo de fatiga que hubiera experimentado antes en una bicicleta: no era el ardor habitual del ácido láctico acumulándose en las piernas, sino una sensación de vaciamiento total, como si el cuerpo, de un momento a otro, hubiera decidido simplemente apagar el motor sin ningún aviso previo.
+— Bien —dijo Santi, y era verdad: las piernas respondían, la potencia estaba ahí—. Puedo intentar ir con ellos.
 
-— Algo está mal —dijo Santi por radio, con la voz quebrada por un esfuerzo que ya no producía la potencia que debería—. No es cansancio normal. Es distinto.
+Fue un instante, no más de dos o tres segundos, en el que Santi tuvo que decidir si subirse a esa fuga de tres o quedarse en el grupo, conservando energía para el tramo final, donde Rusconi había calculado que el verdadero peligro físico podía aparecer. El Santi de 2023 hubiera atacado sin ese cálculo: hubiera salido tras ellos en el instante en que se movieron, confiando en que el cuerpo respondería después, porque siempre había respondido. El Santi de 2026, en cambio, pensó primero en el riesgo —en lo que Rusconi le había dicho sobre la resistencia de base todavía no reconstruida, en la posibilidad de un colapso más adelante si gastaba de más ahora— y se quedó.
 
-— ¿Distinto cómo? —preguntó Rusconi, con la tensión inmediata de quien reconocía, en esa frase, algo que no había escuchado en ninguna otra etapa anterior.
+Por una fracción de segundo, sin que lo llamara a propósito, le volvió la imagen de otra subida, otro país, otro año —el mismo tipo de cálculo, pero resuelto de una manera que ahora le costaba reconocer como suya.
 
-— No puedo explicarlo —dijo Santi, perdiendo posiciones en el grupo a cada pedalada—. Simplemente no hay nada ahí. Como si las piernas dejaran de recibir la señal que el cerebro les manda.
+Los tres se fueron. Ganaron, entre ellos, casi un minuto sobre el grupo en los siguientes cuatro kilómetros.
 
----
+*En el Amstel Gold Race de 2023, en el Bemelerberg, no había habido tres segundos. Había habido un cálculo hecho en el cuerpo antes de que la cabeza terminara de formularlo: Van Aert ya había gastado lo necesario para mantener el ritmo, y Santi lo supo en las piernas del belga, en la forma en que la cadencia de Van Aert había bajado dos revoluciones sin que el resultado todavía lo reflejara. Atacó sin pedirle permiso a nadie, ni siquiera a sí mismo. El cuerpo decidió y la cabeza llegó después, a confirmar lo que el cuerpo ya había hecho.*
 
-Luca, que rodaba a su lado en ese tramo, fue el primero en notar visualmente lo que Santi describía por radio: una caída repentina en la cadencia, una postura que empezaba a desmoronarse sobre la bicicleta, signos que cualquier corredor con experiencia reconocía de inmediato como algo más serio que la fatiga normal de una subida exigente.
+*Esa vez había ganado.*
 
-— Quedate conmigo —dijo Luca, bajando deliberadamente el ritmo para no dejarlo solo—. Lo que sea que esté pasando, no estás solo en esto.
+*Esta vez, en la Sierra de las Nieves, el cuerpo había hecho lo mismo —medio segundo de aceleración, el músculo ya tensándose para responder al ataque de los tres— pero la cabeza había llegado antes de tiempo, interrumpiendo lo que el cuerpo ya estaba haciendo, preguntándole si de verdad valía la pena el riesgo. Esa pregunta, que en 2023 ni siquiera existía, fue la que ganó.*
 
-Santi, sintiendo que cada pedalada requería un esfuerzo desproporcionado comparado con la potencia que generaba, vio, en los siguientes dos kilómetros, cómo el grupo principal se alejaba progresivamente, primero diez metros, después treinta, después cien, sin que ningún esfuerzo de voluntad lograra cambiar la dinámica de lo que estaba ocurriendo en su propio cuerpo.
+— Hiciste bien en no ir —dijo Rusconi, por radio, sin saber exactamente lo que acababa de pasar dentro de la cabeza de Santi—. No era el día.
 
-— No puedo seguir el ritmo —dijo Santi, con una honestidad que le costó más que cualquier confesión de su carrera—. Algo se apagó. No sé qué es, pero se apagó del todo.
+Santi no respondió de inmediato. Seguía pedaleando, viendo las tres figuras alejarse en la distancia, sintiendo algo que no era cansancio: era la certeza, fría y clara, de que la decisión correcta en términos de datos había sido también, por primera vez en su carrera, una decisión tomada desde el miedo y no desde la lectura de la carrera. No supo, en ese momento, si esas dos cosas podían ser la misma decisión sin que una contaminara a la otra.
 
----
-
-A cuatro kilómetros de la meta, con el grupo principal ya completamente fuera de la vista y un grupo reducido de corredores rezagados acercándose por detrás, Santi sintió, además del vaciamiento físico, una sensación de mareo leve que no había experimentado nunca antes en una bicicleta, suficiente para que Rusconi, escuchando la descripción por radio, tomara una decisión inmediata.
-
-— Necesito que te detengas —dijo Rusconi, con una autoridad que no admitía discusión—. Ahora mismo. No es una sugerencia.
-
-— Puedo llegar a la meta —insistió Santi, con la misma terquedad que lo había definido durante toda su carrera—. Aunque sea último, puedo llegar.
-
-— No vas a llegar —dijo Rusconi, sin suavizar la frase—. Y si seguís insistiendo, vas a arriesgar algo mucho más grave que un mal resultado de etapa. Esto no es sobre orgullo. Es sobre el cuerpo enviando una señal que no podemos ignorar.
-
-Santi, sintiendo el mareo intensificarse con cada metro adicional de esfuerzo, finalmente cedió, deteniéndose en el arcén de la carretera, todavía a tres kilómetros y medio de una meta que, por primera vez en toda su carrera profesional, no iba a cruzar.
+A dos kilómetros de la meta, con el grupo principal deshecho por el ritmo final y los tres fugados ya fuera de alcance, Santi cruzó la línea en el puesto catorce, sin ningún problema físico, sin ningún colapso de glucógeno, exactamente con la resistencia que Rusconi había proyectado para ese día.
 
 ---
 
-El coche médico llegó en menos de dos minutos, encontrando a Santi sentado en el borde de la carretera, con Luca de pie a su lado, sosteniéndole el casco que se había quitado en el momento exacto de bajar de la bicicleta.
+— Catorce, sin sustos —dijo Rusconi, esa noche, repasando los datos con un alivio genuino—. El cuerpo respondió mejor de lo esperado. Esto es una gran noticia.
 
-— Glucosa baja, probablemente —dijo el médico de la carrera, después de un examen rápido—. Combinado con una fatiga muscular que tu cuerpo todavía no estaba preparado para sostener en una pendiente así. No es nada permanente. Pero hoy no había más en el tanque, en ningún sentido de la palabra.
+— Lo es —dijo Santi, sin la misma convicción en la voz.
 
-— Es la primera vez en mi carrera que no termino una carrera —dijo Santi, con una voz que mezclaba el agotamiento físico con algo mucho más profundo, una sensación de derrota que ningún resultado anterior, ni siquiera sus peores derrotas, le había generado nunca.
+— ¿Algo te preocupa? —preguntó Rusconi, notando el tono.
 
-— Lo sé —dijo el médico, con calma profesional—. Pero hoy, no terminar fue la decisión correcta. La alternativa hubiera sido mucho peor.
+Santi dudó. Era la primera vez, desde el accidente, que tenía algo que contarle a Rusconi que ningún número podía explicar ni contradecir.
 
----
+— En el kilómetro siete, cuando se fueron los tres, tuve la opción de ir con ellos —dijo, finalmente—. Las piernas estaban bien. Pude haber ido.
 
-La organización, ante la cantidad de periodistas que ya esperaban en la zona de meta cuando se confirmó oficialmente el abandono, improvisó una rueda de prensa breve en el hotel del equipo esa misma tarde, algo que ningún protocolo de una carrera de esa categoría solía contemplar, pero que la magnitud de la noticia volvía inevitable.
+— ¿Y por qué no fuiste?
 
-Santi llegó a la sala todavía con signos visibles del esfuerzo —el rostro pálido, una vía intravenosa reciente marcada en el brazo bajo la manga de la chaqueta del equipo— decidido, sin embargo, a no esconderse detrás de un comunicado escrito.
+— Porque pensé en lo que me habías dicho de la resistencia de base, en que podía colapsar más adelante si gastaba de más —dijo Santi—. Fue la decisión correcta en el papel. Pero no fue la decisión que hubiera tomado hace tres años, y no estoy seguro de que la diferencia haya sido cabeza fría. Creo que fue miedo, disfrazado de cálculo.
 
-— Sé que esto genera muchas preguntas, así que prefiero responderlas en persona, ahora, en lugar de dejar que se respondan solas —dijo Santi, sentándose frente a una fila de micrófonos que se había multiplicado en cuestión de minutos.
+Rusconi se quedó en silencio un momento, algo que no hacía seguido.
 
-— ¿Qué pasó exactamente, en sus propias palabras? —preguntó el primer periodista, de un medio italiano.
+— Eso no lo puedo medir yo —dijo, finalmente, con una honestidad poco habitual en su propia voz—. Los números te van a decir siempre que hiciste bien en no arriesgar. Pero si la pregunta es si todavía tenés el reflejo de atacar cuando hace falta, esa pregunta no la responde ninguna planilla mía. Esa la respondés solo vos, carrera tras carrera, hasta que dejes de dudarlo.
 
-— El cuerpo se quedó sin nada que dar, a mitad del puerto —dijo Santi, sin buscar ningún eufemismo—. No fue una caída, no fue un problema mecánico. Fue, simplemente, que después de diecinueve meses sin competir, todavía no tengo la resistencia de base que esta etapa exigía. El equipo médico decidió, correctamente, que seguir hubiera sido un riesgo real.
+— ¿Y si nunca dejo de dudarlo?
 
-— ¿Esto cambia la fecha que tenían prevista para un regreso de nivel competitivo? —preguntó otro periodista, de un medio español, con una pregunta que iba directamente al corazón de la cobertura de los últimos días.
-
-— Vamos a revisar el plan con Rusconi, como hacemos después de cada carrera —dijo Santi—. Pero quiero ser claro en algo: esto no es un retroceso del plan. Es el plan funcionando exactamente como se diseñó, mostrándonos información que en un gimnasio no se puede conseguir.
-
-Un periodista de un medio colombiano, visiblemente afectado por la noticia, hizo la pregunta que buena parte de la sala estaba pensando sin atreverse a formularla con esa franqueza.
-
-— ¿Tiene miedo de que esto se repita, o de que sea una señal de que el cuerpo ya no vuelve a ser el de antes?
-
-Santi se quedó en silencio un instante, considerando la pregunta con la misma seriedad que le había dado a cada momento difícil de los últimos diecinueve meses.
-
-— Tengo miedo, sí —admitió, sin intentar disimularlo frente a las cámaras—. Sería deshonesto decir lo contrario, el mismo día que no pude terminar una etapa por primera vez en mi carrera. Pero el miedo no cambia el plan. Solo confirma que el plan tiene que seguir siendo paciente, aunque a mí, personalmente, la paciencia hoy me cueste más que cualquier entrenamiento.
-
-— ¿Algún mensaje para la gente que esperaba verlo cruzar la meta? —preguntó una última periodista, antes de que Ferretti hiciera una señal discreta de que la rueda de prensa debía cerrarse.
-
-— Que lamento no haber llegado, de verdad —dijo Santi—. Pero que esto, exactamente esto, es parte real de lo que dije ayer que iban a ver si volvían a seguirme: no solo la parte bonita. Gracias por seguir acá, incluso en un día como hoy.
-
-La cobertura de esa rueda de prensa, publicada esa misma noche en decenas de medios alrededor del mundo, generó una respuesta que sorprendió incluso a Duarte, que monitoreaba las menciones desde Colombia con una atención que no había necesitado en meses: *L'Équipe* tituló *"La leçon d'humilité de Reyes"* —la lección de humildad de Reyes—; *Marca* optó por *"Honestidad ante la primera derrota real de su carrera"*; y un editorial de *Cyclingnews*, firmado por uno de los periodistas más respetados del medio, cerraba con una frase que circularía durante días en redes sociales del pelotón entero: *"Hay corredores que ganan carreras. Pocos, como Reyes hoy, saben perder una con esta clase de dignidad."*
+— Entonces vas a ser un corredor distinto al de antes —dijo Rusconi—. No necesariamente peor. Pero distinto. Y vas a tener que decidir si ese corredor te alcanza para lo que querés todavía.
 
 ---
 
-Esa noche, en el hotel del equipo, Santi llamó a Hernando antes que a nadie, con una vulnerabilidad en la voz que su padre reconoció de inmediato, la misma que había escuchado la noche del Tourmalet.
+En Girona, Mariana vio la etapa completa desde el sofá del apartamento, con la transmisión de Teledeporte y un cuaderno propio —no el de Hernando, uno suyo, de tapa negra, que había empezado a usar sin decírselo a nadie todavía— abierto sobre las piernas.
 
-— Abandoné —dijo Santi, sin rodeos—. Mi primer abandono en toda mi carrera profesional.
+No anotó números. Anotó la hora exacta del ataque de los tres fugados, y debajo, una sola frase: *no fue.*
 
-Hernando se quedó en silencio un momento largo, sopesando la magnitud de lo que su hijo acababa de decirle, antes de responder con la misma honestidad que ya era costumbre entre los dos.
+No sabía, viéndolo por televisión, si "no fue" significaba que Santi no había podido ir, o que había decidido no ir. La diferencia le pareció, mientras lo escribía, más importante que el resultado final de la etapa, aunque todavía no tuviera manera de preguntárselo sin que sonara a interrogatorio.
 
-— ¿Cómo te sentís? —preguntó Hernando, en lugar de ofrecer un consuelo automático.
+Cuando Santi la llamó esa noche, antes de la cena del equipo, ella no le preguntó directamente.
 
-— Destruido —admitió Santi—. Más destruido de lo que pensé que me iba a sentir por una carrera de categoría menor, una etapa que en cualquier otro año de mi carrera hubiera sido completamente intrascendente.
+— Catorce —dijo Santi, por toda explicación, antes de que ella alcanzara a preguntar.
 
-— Tiene sentido que te sientas así —dijo Hernando—. No es por la etapa. Es por lo que la etapa representa: la confirmación de que el cuerpo todavía tiene límites que vos no podés controlar con voluntad, por primera vez en tu vida adulta.
+— Vi la fuga —dijo Mariana, después de un silencio—. Vi que la dejaste ir.
 
-— Exactamente eso —dijo Santi, sintiendo, en la precisión de esa frase, el mismo alivio que siempre encontraba en las palabras exactas de su padre—. Nunca tuve que aceptar un límite que no pudiera superar con suficiente entrenamiento o suficiente cabeza.
+— ¿Tan claramente se vio, por televisión?
 
-— Y ahora tenés que aprender a aceptarlo —dijo Hernando—. No es debilidad. Es la realidad de un cuerpo que está reconstruyéndose, no fallando. Las dos cosas se sienten parecido desde dentro, pero son completamente distintas.
+— Se vio que dudaste. No sé si eso es lo mismo que dejarla ir a propósito.
 
----
+Santi no respondió de inmediato.
 
-Mariana, que había escuchado parte de la llamada desde la habitación contigua, esperó a que Santi colgara antes de entrar, encontrándolo sentado en el borde de la cama, todavía con la ropa de competencia puesta, mirando hacia la ventana sin ver realmente nada del paisaje andaluz que se extendía afuera.
+— Todavía no sé cuál de las dos cosas fue —admitió, finalmente—. Por eso no te lo voy a explicar todavía. Prefiero entenderlo yo primero.
 
-— Rusconi me llamó, me contó lo que pasó —dijo Mariana, sentándose a su lado—. ¿Cómo estás?
+— Tomate el tiempo que necesites —dijo Mariana—. Yo sigo viendo las carreras de todos modos, dude o no dude.
 
-— No sé cómo nombrarlo bien —admitió Santi—. No es tristeza exactamente. Es como si una parte de mí, la que siempre confió en que el esfuerzo suficiente resolvía cualquier problema, hubiera chocado hoy contra algo que el esfuerzo no puede resolver.
-
-— Eso es información nueva sobre vos mismo, no una derrota —dijo Mariana—. Y es información que tarde o temprano cualquier persona tiene que aprender, con o sin bicicleta de por medio.
-
-— ¿Vos también tuviste un momento así? —preguntó Santi—. ¿Donde el esfuerzo, simplemente, no alcanzó?
-
-Mariana lo pensó un momento, antes de responder con una honestidad que reflejaba meses de su propia terapia.
-
-— Cuando entendí que no podía sostener tu recuperación entera sola, sin ayuda profesional propia —dijo—. Insistí mucho tiempo en que podía, con suficiente fuerza de voluntad. Hasta que el cuerpo, a su manera, también me dijo que no.
-
-— ¿Y cómo lo aceptaste?
-
-— De la misma forma en que vos vas a tener que aceptar esto —dijo Mariana—. Despacio, con ayuda, sin pretender que duela menos de lo que duele.
+Colgaron poco después, y Mariana volvió a abrir el cuaderno negro, releyendo la frase que había escrito horas antes, sin saber todavía si algún día le iba a servir para algo más que para procesar, ella también, a su manera, lo que significaba quererlo en esta versión nueva, todavía incompleta, del hombre del que se había enamorado en otra versión completamente distinta.
 
 ---
 
-Rusconi, en la reunión técnica de esa misma noche, presentó un análisis completo de los datos de la etapa, encontrando una explicación que, sin eliminar la decepción del día, al menos le daba a Santi algo concreto para entender.
+Esa misma noche, en la cena del equipo, Luca se sentó junto a Santi, lejos del resto, sin que nadie más se diera cuenta de que la conversación no era casual.
 
-— Tus reservas de glucógeno todavía no se reconstruyeron al nivel que necesitás para un esfuerzo sostenido de veinte minutos a esa intensidad —dijo Rusconi—. Combinado con la fatiga muscular acumulada de las dos etapas anteriores, el cuerpo simplemente no tenía más que dar en el kilómetro siete del puerto. No es un retroceso. Es el mapa exacto de lo que todavía falta reconstruir.
+— Vi la fuga de los tres —dijo Luca—. Vi que dudaste.
 
-— ¿Cuánto falta? —preguntó Santi, con una pregunta que ya empezaba a sonar como un mantra repetido en cada conversación de esos meses.
+— ¿Tan visible fue?
 
-— Más de lo que pensábamos hace un mes, menos de lo que pensás esta noche —dijo Rusconi—. El cuerpo da señales como esta para que ajustemos el plan, no para que te rindas. Vamos a bajar el volumen de las próximas dos semanas, reconstruir la base de glucógeno con más cuidado, y volver a intentar un esfuerzo de montaña real recién cuando los números digan que es seguro hacerlo.
+— Solo para alguien que te conoce de antes —dijo Luca—. El Santi viejo no mira dos veces antes de decidir. Vos los miraste dos veces.
 
-Ferretti, presente en la misma reunión, agregó algo que reflejaba veinte años de experiencia gestionando corredores en procesos similares.
+Santi no lo negó.
 
-— Lo que pasó hoy se va a contar, algún día, como el día que entendiste de verdad cuánto trabajo faltaba —dijo Ferretti—. No como el día que fallaste. La diferencia entre esas dos historias depende solo de cómo decidas recordarlo a partir de ahora.
+— No sé si va a volver, esa rapidez de antes —dijo, en voz baja, para que nadie más en la mesa lo escuchara—. Y no sé tampoco si quiero forzarla a volver, después de lo que costó este cuerpo. Esas dos cosas pelean todo el tiempo en mi cabeza, y todavía no sé cuál gana.
+
+— Esa pelea no se resuelve en una etapa de Andalucía —dijo Luca—. Se resuelve carrera tras carrera, con el tiempo. Lo único que no podés hacer es fingir que no existe.
+
+— No pienso fingir —dijo Santi—. Por suerte, ya aprendí que fingir nunca funciona del todo, conmigo.
 
 ---
 
-Hernando, esa noche, escribió en el cuaderno una entrada distinta a cualquier otra de los últimos años, con una letra que reflejaba el peso específico de ese primer abandono:
+Arroyave, que había escuchado parte de la conversación desde el otro extremo de la mesa sin que ninguno de los dos se lo pidiera, esperó a que Luca se levantara antes de acercarse con su propia silla.
 
-*8 de marzo de 2026. Vuelta a Andalucía, etapa 3. Primer abandono de toda la carrera profesional de Santi — Sierra de las Nieves, kilómetro 7 del puerto final. Glucosa baja, fatiga muscular, mareo leve. Nada permanente, según los médicos. Pero algo en él se rompió un poco hoy, algo distinto a cualquier fractura física: la creencia de que el esfuerzo siempre alcanza. Ferretti dice que esto se va a recordar como el día que entendió cuánto faltaba, no como el día que falló. Espero que tenga razón. Por ahora, solo anoto lo que pasó, sin saber todavía cómo va a sentirse dentro de unos meses.*
+— Te puedo decir algo, si querés, de alguien que nunca tuvo esa rapidez que vos tenías antes —dijo, con la franqueza directa que ya lo caracterizaba—. Yo corrí doce años sin ella. Nunca fui el que decide en una fracción de segundo. Siempre fui el que calcula, el que llega un poquito tarde a la decisión y por eso nunca fue líder de nada.
 
-Antes de cerrar el cuaderno, agregó una línea más, casi como una plegaria silenciosa que no esperaba que nadie más leyera nunca.
+— ¿Y cómo se vive así, doce años? —preguntó Santi, con una curiosidad genuina, sin el tono de quien busca consuelo.
 
-*Que esto sea el peor día del año, y no el primero de muchos parecidos. Pero si son varios más, que encuentre, cada vez, la misma gente alrededor que encontró hoy.*
+— Se vive distinto a como vos viviste hasta el Tourmalet —dijo Arroyave—. No mejor, no peor. Distinto. Yo aprendí a ganar las carreras que se ganan calculando, no las que se ganan en un segundo de instinto. Vos quizás tengas que aprender, este año, si todavía existe una versión de vos que gana de las dos formas, o si esta temporada te toca ser, por un tiempo, más parecido a mí de lo que nunca quisiste ser.
+
+— Eso es lo que más me asusta de todo esto —admitió Santi, bajando la voz—. No la espalda. No la clavícula. La idea de que el corredor que era antes ya no exista, y que el que queda sea uno más prudente, más lento, más parecido a cualquier otro gregario de fondo de pelotón.
+
+— Si terminás siendo ese corredor, igual vas a ser mejor que la mayoría de los gregarios de fondo de pelotón —dijo Arroyave, riendo, aunque sin esquivar la seriedad de la frase anterior—. Pero no creo que sea eso lo que va a pasar. Lo que vi hoy no fue un corredor que perdió el instinto. Fue un corredor que todavía está decidiendo si tiene permiso para usarlo otra vez. Esas dos cosas no son lo mismo, aunque desde afuera se vean igual.
+
+Santi se quedó pensando esa distinción el resto de la cena, sin volver a mencionarla, pero sin soltarla del todo tampoco. Cuando los platos ya estaban casi vacíos y el resto del equipo empezaba a levantarse hacia sus habitaciones, le dio a Arroyave un golpe corto en el hombro, el mismo gesto que alguna vez había compartido con Julián en los recreos del colegio, sin necesitar ninguna palabra más para cerrar lo que ya se había dicho.
+
+---
+
+A la mañana siguiente, antes de la salida de la etapa cuatro —una jornada de transición sin ninguna dificultad relevante, que la organización había diseñado como simple traslado hacia el final de la carrera—, Rusconi convocó una reunión breve con Ferretti y Luca, sin Santi presente, en la habitación que el equipo usaba como oficina improvisada en cada hotel.
+
+— Lo de ayer cambia algo en lo que tenemos planeado para mayo y junio —dijo Rusconi, abriendo su computador sobre la cama—. No el calendario. La forma de leer los resultados.
+
+— ¿A qué te referís? —preguntó Ferretti.
+
+— A que hasta ahora medíamos el regreso solo en watts, en tiempos de recuperación, en consolidación ósea —dijo Rusconi—. A partir de ayer, hay una variable nueva que ninguna planilla mía contempla, y que puede pesar tanto como las otras: si el corredor confía en su propio instinto cuando hace falta confiar, o si cada decisión importante le va a costar ese segundo de duda que ayer le costó la fuga.
+
+— ¿Y eso se entrena? —preguntó Luca.
+
+— No lo sé todavía —admitió Rusconi, con una honestidad poco habitual en su voz—. Sospecho que no se entrena igual que un umbral de potencia. Sospecho que se recupera carrera tras carrera, o no se recupera nunca del todo, y que la única forma de saberlo es seguir poniéndolo en situaciones donde tenga que decidir, una y otra vez, hasta que el cuerpo deje de consultarle permiso al miedo.
+
+Ferretti se quedó en silencio un momento, mirando por la ventana del hotel hacia la sierra todavía cubierta de neblina baja.
+
+— Entonces la Vuelta, en agosto, no va a ser solo una prueba de resistencia de tres semanas —dijo, finalmente—. Va a ser la prueba real de si recuperó eso. Las dos cosas a la vez.
+
+— Las dos cosas a la vez —confirmó Rusconi—. Y no hay forma de separarlas, por más que cualquiera de los tres quisiera, esta noche, que existiera esa forma.
+
+---
+
+Antes de que Hernando abriera el cuaderno, Santi lo llamó, ya tarde, desde el pasillo del hotel donde había salido a caminar un poco después de la conversación con Arroyave.
+
+— Catorce, sin sustos —dijo, antes de que su padre preguntara—. Pero hay algo más que te quiero contar, porque a vos sí te lo puedo contar entero.
+
+— Contame —dijo Hernando, sin apuro, con la misma paciencia de siempre.
+
+Santi le contó la fuga, los tres segundos, la pregunta de Rusconi sobre si era prudencia o miedo, la respuesta de Arroyave sobre los doce años calculando en vez de decidiendo.
+
+— ¿Vos qué pensás? —preguntó, al final—. Vos corriste sin tener nunca los números que yo tuve. ¿Cómo se vive con esa duda, todos los días, sin que se vuelva una excusa para no intentar nada?
+
+Hernando se quedó un momento en silencio, del otro lado de la línea, en la sala de Laureles donde el ventilador del techo seguía girando despacio como siempre.
+
+— Yo nunca tuve la rapidez que tuviste vos, así que no puedo decirte cómo se vive perdiéndola —dijo, finalmente—. Pero te puedo decir cómo se vive sin ella desde el principio: se corre con la cabeza siempre un paso adelante del cuerpo, calculando todo, sin la libertad de no pensar. Yo hice eso treinta años y llegué a algunos podios, nunca a lo que vos llegaste. Si te toca correr así un tiempo, no es el fin de nada. Es, simplemente, otra forma de correr, más parecida a la mía que a la tuya de antes. La pregunta que de verdad importa no es si la duda se va. Es si vos podés seguir queriendo este deporte aunque tarde en irse, o aunque no se vaya nunca del todo.
+
+— ¿Y si nunca se va?
+
+— Entonces vas a tener que aprender a ganar dudando —dijo Hernando—. Yo nunca gané un Tour. Vos quizás ganás un Tour dudando. No es lo mismo que antes, pero tampoco es nada despreciable. Y si te sirve de algo: el corredor que más admiré en mi vida, antes de que existieras vos, era justamente de esos que ganaban calculando, no de los que ganaban en un segundo de instinto. Hay grandeza en las dos formas, aunque a los veinte años uno solo sepa reconocer la que tiene.
+
+Santi sonrió, solo, en el pasillo vacío del hotel, sin que su padre lo viera.
+
+— Gracias, papá.
+
+— Dormí —dijo Hernando—. Mañana hay etapa, dudes o no dudes.
+
+Colgaron. Hernando, esa noche, escribió en el cuaderno una entrada distinta a cualquier otra de los últimos años:
+
+*8 de marzo de 2026. Vuelta a Andalucía, etapa 3. Sin abandono, sin colapso físico, puesto catorce. Pero Santi me contó algo que nunca antes me había tenido que contar: que dejó ir una fuga que antes hubiera cerrado sin pensarlo, y que no sabe si fue prudencia o miedo. Llevo treinta años viéndolo correr, desde que era un niño en San José que no le tenía miedo a nada en una bajada. Esta es la primera vez que el miedo no le llegó al cuerpo. Le llegó a la decisión.*
+
+Cerró el cuaderno sin la frase final que solía agregar siempre al margen, la que resumía en una sola línea lo que el día había significado. Esta vez no encontró una línea que lo resumiera, y prefirió dejarlo así, sin cerrar del todo, como la pregunta misma de su hijo.
+
+Carmen, que había escuchado parte de la llamada desde la cocina sin que Hernando se diera cuenta, se sentó a su lado en el sofá sin decir nada al principio.
+
+— ¿Qué le dijiste? —preguntó, finalmente.
+
+— La verdad —dijo Hernando—. Que no sé si la duda se le va a ir nunca del todo, y que tiene que aprender a correr con ella si no se va.
+
+— ¿Y eso alcanza, para lo que él quiere todavía?
+
+Hernando se quedó mirando el cuaderno cerrado sobre sus piernas, sin abrirlo de nuevo.
+
+— No lo sé —dijo—. Pero es lo único verdadero que tenía para darle esta noche, y después de todo lo que pasamos los dos, prefiero eso a cualquier consuelo bonito que no resista una segunda pregunta.
 
 ---

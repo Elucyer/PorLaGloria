@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco V — La Cosecha
-### Capítulo 269 — Lo que queda después de un abandono (marzo de 2026)
+### Capítulo 269 — Lo que queda después de dudar (marzo de 2026)
 
 ---
 
@@ -8,7 +8,7 @@
 
 ---
 
-Los días posteriores al abandono en la Sierra de las Nieves transcurrieron con una rutina deliberadamente reducida, por orden expresa de Rusconi, que prefería darle al cuerpo —y a la cabeza— tiempo de procesar lo ocurrido antes de exigirle cualquier cosa nueva.
+Los días posteriores a la etapa de la Sierra de las Nieves transcurrieron con una rutina deliberadamente reducida, por orden expresa de Rusconi, que prefería darle a la cabeza —más que al cuerpo, que había respondido sin sustos— tiempo de procesar lo ocurrido antes de exigirle cualquier cosa nueva.
 
 — No quiero que vuelvas a la bicicleta hasta el jueves, como mínimo —dijo Rusconi, durante la primera videollamada de seguimiento, tres días después de la carrera—. Y cuando vuelvas, va a ser con un volumen todavía más bajo del que tenías antes de Andalucía. Necesitamos reconstruir desde un escalón más atrás de lo que pensábamos.
 
@@ -18,7 +18,7 @@ Los días posteriores al abandono en la Sierra de las Nieves transcurrieron con 
 
 ---
 
-Mariana, que había notado un silencio distinto en Santi desde la noche del abandono —no tristeza abierta, sino algo más parecido a una introspección constante que lo acompañaba incluso en las conversaciones más simples del día—, decidió, esa misma semana, proponerle algo que llevaba días pensando.
+Mariana, que había notado un silencio distinto en Santi desde la noche de la carrera —no tristeza abierta, sino algo más parecido a una introspección constante que lo acompañaba incluso en las conversaciones más simples del día—, decidió, esa misma semana, proponerle algo que llevaba días pensando.
 
 — ¿Querés ir a algún lado este fin de semana? —preguntó Mariana, una noche, mientras cenaban en el apartamento—. No a entrenar, no a ninguna reunión con Rusconi. Solo a algún lado, los dos, sin nada que tenga que ver con bicicletas.
 
@@ -56,13 +56,13 @@ De vuelta en Girona, Santi llamó a Rodrigo, algo que no hacía siempre desde Eu
 
 — ¿Qué cosa?
 
-— Que un abandono no es lo mismo que un fracaso —dijo Santi—. Es solo el cuerpo diciendo la verdad en voz alta, en lugar de mentir en silencio hasta romperse de verdad.
+— Que dudar tres segundos no es lo mismo que haber perdido algo para siempre —dijo Santi—. Es solo la cabeza diciendo la verdad en voz alta, en lugar de fingir una confianza que todavía no tengo del todo.
 
 — Eso suena a algo que diría tu papá —dijo Rodrigo, riendo—. ¿Te lo dijo él, o lo pensaste solo?
 
 — Un poco de los dos —dijo Santi, sonriendo—. Aunque cada vez me cuesta menos llegar a esas conclusiones sin que alguien me las tenga que explicar primero.
 
-— Eso es crecer, hermano —dijo Rodrigo—. Aunque te tomó un accidente grave y un abandono de etapa para llegar ahí, pero bueno, cada uno aprende a su ritmo.
+— Eso es crecer, hermano —dijo Rodrigo—. Aunque te tomó un accidente grave y tres segundos de duda en una montaña española para llegar ahí, pero bueno, cada uno aprende a su ritmo.
 
 — ¿Cómo va la ferretería? —preguntó Santi, cambiando de tema hacia algo que no tuviera nada que ver con su propia recuperación.
 
@@ -82,7 +82,7 @@ El jueves siguiente, de vuelta en la bicicleta después de la pausa prescrita, S
 
 — A veces eso es lo que más entrena la cabeza, aunque no entrene las piernas —dijo Luca.
 
-La sesión, de hora y media a intensidad moderada, transcurrió sin ninguna de las señales de fatiga abrupta que habían marcado las semanas anteriores, una mejora que, sin ser definitiva, le devolvió a Santi una fracción de la confianza que el abandono le había quitado.
+La sesión, de hora y media a intensidad moderada, transcurrió sin ninguna de las señales de fatiga abrupta que habían marcado las semanas anteriores, una mejora que, sin ser definitiva, le devolvió a Santi una fracción de la confianza que esos tres segundos en la Sierra de las Nieves le habían arrebatado.
 
 ---
 
@@ -116,13 +116,13 @@ Llamó a Hernando esa misma noche, con un tono que reflejaba la mezcla de calma 
 
 Hernando anotó en el cuaderno, esa noche, una entrada que reflejaba el cierre parcial de esa primera crisis del año:
 
-*Marzo de 2026. Una semana después del abandono. Cadaqués ayudó más que cualquier consejo que yo pudiera darle. Rusconi ajusta el plan con trabajo de nutrición específico. Hay una carrera en tres semanas, de perfil más controlado, pensada para que termine algo completo otra vez. Santi suena mejor que en cualquier llamada de los últimos días. La pausa, esta vez, fue parte del entrenamiento, no una interrupción de él.*
+*Marzo de 2026. Una semana después de los tres segundos de la Sierra de las Nieves. Cadaqués ayudó más que cualquier consejo que yo pudiera darle. Rusconi ajusta el plan con trabajo de nutrición específico. Hay una carrera en tres semanas, de perfil más controlado, pensada para que confirme algo distinto a la potencia: si el instinto, esta vez, se anima a salir primero. Santi suena mejor que en cualquier llamada de los últimos días. La pausa, esta vez, fue parte del entrenamiento, no una interrupción de él.*
 
 ---
 
 Antes de dormir, Santi revisó el calendario de las próximas semanas que Ferretti había compartido, deteniéndose en el nombre de la carrera que habían elegido como segundo intento: una vuelta de una semana, en terreno mayormente llano, con un perfil pensado específicamente para reconstruir confianza sin arriesgar otro colapso como el de la Sierra de las Nieves.
 
-Pensó, mirando el nombre de la carrera en la pantalla del teléfono, en lo distinto que se sentía ese tipo de planificación cuidadosa comparado con la confianza casi automática con la que había abordado cada calendario de los años anteriores a la caída. No era una sensación cómoda del todo. Pero, por primera vez desde el abandono, tampoco era una sensación que le generara miedo.
+Pensó, mirando el nombre de la carrera en la pantalla del teléfono, en lo distinto que se sentía ese tipo de planificación cuidadosa comparado con la confianza casi automática con la que había abordado cada calendario de los años anteriores a la caída. No era una sensación cómoda del todo. Pero, por primera vez desde la Sierra de las Nieves, tampoco era una sensación que le generara miedo.
 
 Apagó la luz, pensando en Cadaqués, en la conversación con Rodrigo, en la calma nueva que Mariana le había ayudado a encontrar esa semana, y se durmió con la certeza tranquila de que, sea lo que fuera que esa próxima carrera tuviera reservado, no la iba a enfrentar solo, ni con el mismo tipo de presión que se había impuesto a sí mismo en Andalucía.
 

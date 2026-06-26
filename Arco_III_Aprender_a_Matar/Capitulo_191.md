@@ -175,7 +175,7 @@ Santi asintió.
 
 — Una pregunta para los tres — dijo Santi—. Si renuevo en las condiciones del mercado actual, ¿qué cambia en todo lo que acabamos de revisar?
 
-— El salario base probablemente sube por encima de los tres millones — dijo Patiño—. La cláusula de bonos ya quedó bien armada este año — eso no hay que tocarlo, solo subir los números proporcionalmente.
+— El salario base probablemente sube a unos seis millones, quizás más si el mercado de equipos top sigue creciendo como creció este último año — dijo Patiño—. La cláusula de bonos ya quedó bien armada este año — eso no hay que tocarlo, solo subir los números proporcionalmente.
 
 — El patrocinio personal sigue creciendo en paralelo, independientemente del equipo — dijo Duarte—. Lo que tenés hoy con ocho marcas y el podcast es apenas el comienzo si ganás el Tour el año que viene.
 

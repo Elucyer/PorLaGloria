@@ -84,9 +84,15 @@ Esa noche, en una cena tranquila organizada por el equipo en un comedor privado 
 
 — Nervioso, pero de la forma correcta —dijo Santi—. No el miedo de Andalucía. Algo más parecido a la ansiedad normal de cualquier corredor antes de un Grand Tour importante.
 
-— Eso es exactamente lo que tenía que sentir, después de todo este año —dijo Hernando—. El miedo real ya quedó atrás, en marzo. Lo que queda ahora es la ansiedad sana de querer hacerlo bien, no la ansiedad enferma de tener miedo de romperse otra vez.
+— Eso es exactamente lo que tenía que sentir, después de todo este año —dijo Hernando—. El miedo real ya quedó atrás, en marzo.
 
-— Tenés razón —dijo Santi—. Es la primera vez en meses que distingo bien esas dos cosas.
+— El miedo sí —dijo Santi—. Pero hay otra cosa que no se fue, y de esa no hablé tanto con vos. En cada bajada, en cada curva cerrada, hay una fracción de segundo donde freno antes de necesitarlo. No por miedo, ya no. Por costumbre nueva. Y odio esa fracción de segundo más de lo que odié el dolor de la rehabilitación.
+
+Hernando se quedó callado un momento, sopesando la confesión con el cuidado de quien entendía que no había una respuesta fácil para ofrecer.
+
+— No te puedo decir que eso se va a ir solo, con el tiempo, porque no lo sé —dijo, finalmente—. Pero te puedo decir que el corredor que frenaba de más en 2017, en Porvenir, tampoco sabía todavía que un día iba a atacar sin pensarlo en el Tourmalet. Las cosas se reconstruyen distinto cada vez. No tienen por qué reconstruirse igual a como eran antes.
+
+— Eso ya lo sé, en la cabeza —dijo Santi—. El problema es que el cuerpo todavía no se enteró.
 
 Koen, que cenaba en la mesa de al lado junto al resto del equipo de mecánicos, se acercó un momento antes de que la cena terminara, con una carpeta delgada en la mano.
 

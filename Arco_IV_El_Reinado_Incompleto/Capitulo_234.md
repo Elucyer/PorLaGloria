@@ -18,7 +18,7 @@ La reunión anual se hizo, como cada año, en la oficina de Diego Patiño en El 
 
 ---
 
-— Empiezo por el equipo —dijo Duarte—. MercadoLibre-FCV. Salario base: tres millones doscientos mil euros, con el aumento acordado en la renovación de contrato de marzo. Los bonos, esta vez, son los más altos de tu carrera.
+— Empiezo por el equipo —dijo Duarte—. MercadoLibre-FCV. Salario base: seis millones de euros, con el aumento acordado en la renovación de contrato de marzo, sobre un presupuesto total del equipo que ahora llega a treinta y ocho millones anuales. Los bonos, esta vez, son los más altos de tu carrera.
 
 Patiño tomó la carpeta.
 
@@ -26,7 +26,7 @@ Patiño tomó la carpeta.
 
 — Total de bonos del equipo este año —dijo Patiño—: dos millones cien mil euros.
 
-— Total del equipo —cerró Duarte—: cinco millones trescientos mil euros.
+— Total del equipo —cerró Duarte—: ocho millones cien mil euros.
 
 ---
 
@@ -71,23 +71,23 @@ Salcedo tomó la palabra desde la pantalla.
 
 — Total de patrocinio personal —dijo Salcedo—: cuatro millones cien mil euros.
 
-— Sumado al equipo —dijo Duarte—: cinco millones trescientos mil del FCV. Subtotal: nueve millones cuatrocientos mil.
+— Sumado al equipo —dijo Duarte—: ocho millones cien mil del FCV. Subtotal: doce millones doscientos mil.
 
 — Los premios oficiales de carrera —dijo Salcedo— fueron los más altos de tu carrera. Tour: ciento ochenta mil. Lombardia, Strade, Catalunya, Itzulia, Amstel, Dauphiné, San Sebastián: entre veinte y cuarenta mil cada una. En total, trescientos cincuenta mil euros de premios oficiales, de los cuales, al cuarenta por ciento de reparto, te corresponden ciento cuarenta mil.
 
-— Total bruto del año —dijo Salcedo, cerrando la cuenta—: nueve millones quinientos cuarenta mil euros.
+— Total bruto del año —dijo Salcedo, cerrando la cuenta—: doce millones trescientos cuarenta mil euros.
 
 — El mejor año de tu carrera, por un margen amplio —agregó Salcedo, con una satisfacción evidente incluso a través de la pantalla.
 
 ---
 
-— Los impuestos, con la misma estructura de los años anteriores —dijo Salcedo—, fueron del treinta y dos por ciento: tres millones cincuenta y tres mil euros.
+— Los impuestos, con la misma estructura de los años anteriores —dijo Salcedo—, fueron del treinta y dos por ciento: tres millones novecientos cuarenta y ocho mil ochocientos euros.
 
 — Los gastos operativos personales habituales —continuó—: quinientos veinte mil euros, incluyendo los viajes adicionales de toda la familia a Bilbao y París para presenciar el inicio y el final del Tour, algo que no había pasado en años anteriores.
 
 — Los honorarios de Diego y Duarte: ciento ochenta mil. Mis honorarios: ciento diez mil. El apoyo a Ospina: treinta mil, con un aumento por el crecimiento del taller en Floresta.
 
-— Ingreso neto —dijo Salcedo, cerrando la cuenta—: cinco millones seiscientos cuarenta y siete mil euros.
+— Ingreso neto —dijo Salcedo, cerrando la cuenta—: siete millones quinientos cincuenta y un mil doscientos euros.
 
 — La Fundación —dijo Salcedo— recibió este año un millón ciento sesenta mil euros, el mayor aporte de su historia. La diferencia respecto a años anteriores no es solo crecimiento normal: por primera vez se activó la cláusula nueva del contrato del equipo, el cinco por ciento del bono del Tour destinado automáticamente a la Fundación, sin que nadie tuviera que decidirlo en esta misma mesa. El programa creció a nueve municipios, incluyendo dos nuevos en Boyacá y uno en el Eje Cafetero, por solicitud directa de las federaciones regionales después de ver el modelo de San José.
 
@@ -123,7 +123,7 @@ La reunión terminó pasada la una. Santi condujo hacia Laureles, donde Hernando
 
 — ¿Cómo estuvo? —preguntó Hernando.
 
-— El mejor año de mi carrera, en números —dijo Santi—. Nueve millones doscientos cuarenta mil euros brutos.
+— El mejor año de mi carrera, en números —dijo Santi—. Doce millones trescientos cuarenta mil euros brutos.
 
 — ¿Y en lo demás? —preguntó Hernando, sabiendo exactamente a qué se refería con esa pregunta.
 

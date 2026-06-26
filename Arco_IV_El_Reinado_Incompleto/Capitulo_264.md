@@ -160,6 +160,30 @@ Carmen, escuchando la conversación desde el otro lado de la mesa, no pudo evita
 
 ---
 
+Antes de la reunión financiera, Ferretti pidió un espacio aparte, solo con Santi, para hablar de algo que no tenía que ver con su recuperación personal sino con el resto del equipo.
+
+— Hay un balance del año que te debo, como director, y que no quería mezclar con los números de Duarte —dijo Ferretti—. Cómo le fue al equipo, en las carreras, sin vos.
+
+— Decime —dijo Santi, con una curiosidad genuina que no había sentido antes de preguntarlo, ocupado durante meses casi exclusivamente en su propio cuerpo.
+
+— Mal —dijo Ferretti, sin suavizarlo—. El Giro lo corrimos sin ningún objetivo de clasificación general real. Arroyave terminó vigésimo octavo, su mejor resultado en un Grand Tour en toda su carrera, y lo celebramos como si hubiera sido un podio, porque en términos de lo que el equipo necesitaba demostrar, lo fue. En el Tour, ningún corredor del equipo terminó entre los quince primeros de la general. Luca corrió la Vuelta como gregario de un líder que no existía, ayudando a quien fuera que ese día tuviera mejores piernas, sin ninguna jerarquía clara. Ningún podio de Grand Tour. Dos victorias de etapa en todo el año, las dos de corredores jóvenes en carreras de una semana, nada en Monumentos ni en clásicas grandes.
+
+Santi escuchó el resumen completo, sintiendo, por primera vez, el peso específico de lo que su ausencia había significado más allá de su propia vida.
+
+— Nunca pensé en eso con esta claridad —admitió Santi—. Estaba tan metido en mi propia recuperación que no medí lo que le costaba al resto.
+
+— No tenías que medirlo —dijo Ferretti—. Para eso estoy yo. Pero sí quiero que sepas que el equipo entero corrió este año sabiendo que no tenía, en ningún momento, un candidato real a pelear arriba. Eso desgasta a un grupo, carrera tras carrera, más de lo que cualquier número de presupuesto puede compensar.
+
+— ¿Y los patrocinadores del equipo, no de los míos personales, cómo lo tomaron? —preguntó Santi.
+
+— Con paciencia, hasta ahora —dijo Ferretti—. MercadoLibre renueva en 2026, y la dirección ya me preguntó, dos veces este semestre, si el plan de tu regreso era realista o si necesitaban empezar a pensar en un proyecto deportivo distinto, con otro corredor como eje. Les dije que sí era realista. Pero te voy a ser honesto: si 2026 vuelve a ser un año sin resultados de Grand Tour, esa pregunta va a volver, y la próxima vez no va a ser tan fácil de responder con paciencia.
+
+— Entonces 2026 importa más de lo que pensaba, para más gente que solo yo —dijo Santi, pensando en Arroyave, en Luca, en los gregarios jóvenes que habían pasado el año entero corriendo sin ningún resultado que celebrar.
+
+— Siempre importó por más gente que solo vos —dijo Ferretti—. Eso nunca cambió. Lo que cambió este año es que, por primera vez, todos lo sintieron al mismo tiempo, sin vos ahí para repartir el peso.
+
+---
+
 La reunión anual con Duarte, Patiño y Salcedo, programada como cada año para el 20 de diciembre, tuvo en 2025 un carácter completamente distinto a cualquiera de las anteriores: sin bonos de carrera, sin clasificaciones generales, sin ningún resultado deportivo que repasar, porque por primera vez en la carrera profesional de Santi, el año entero había transcurrido sin competir.
 
 — Este es el año más raro que voy a registrar en esta mesa —dijo Duarte, abriendo la carpeta con una sonrisa que reflejaba, sin embargo, un alivio genuino—. Pero también el año donde más aprendí sobre lo que esta carrera de patrocinios realmente representa, más allá de los resultados.

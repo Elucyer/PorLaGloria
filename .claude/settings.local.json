@@ -32,7 +32,10 @@
       "Bash(sort -t: -k3)",
       "Bash(uniq -c -f2)",
       "Bash(git stash *)",
-      "Bash(git checkout *)"
+      "Bash(git checkout *)",
+      "Bash(grep -n \"gan\\\\|líder\\\\|primer puesto\\\\|1\\\\\\\\.º\" Capitulo_271.md)",
+      "Bash(grep -rn \"cuarto\\\\|4\\\\\\\\.º\\\\|podio\" Capitulo_27*.md Capitulo_26*.md)",
+      "Bash(grep -n \"4\\\\\\\\.º\\\\|cuarto\" MAPA_Capitulos_Arco_V.md)"
     ]
   }
 }

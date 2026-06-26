@@ -16,7 +16,7 @@ La Settimana Internazionale Coppi e Bartali, una carrera de seis etapas por las 
 
 ---
 
-La cobertura mediática, mucho menor que la de Andalucía después de que la noticia del abandono ya hubiera ocupado su ciclo completo de atención, le dio a Santi un alivio que no esperaba sentir tan claramente: la posibilidad de competir sin la sensación constante de que cada pedalada estaba siendo observada por medio mundo.
+La cobertura mediática, mucho menor que la de Andalucía después de que la noticia de la fuga perdida ya hubiera ocupado su ciclo completo de atención, le dio a Santi un alivio que no esperaba sentir tan claramente: la posibilidad de competir sin la sensación constante de que cada pedalada estaba siendo observada por medio mundo.
 
 — Es raro decir esto, pero extraño un poco el silencio de las carreras de categoría menor de hace años, antes de que todo se volviera tan grande —le comentó a Luca, durante el reconocimiento de la primera etapa—. Esta semana se siente más parecida a eso.
 
@@ -28,37 +28,37 @@ Un periodista italiano, de un diario regional de Emilia-Romaña, lo reconoció d
 
 — Se siente exactamente como debería sentirse el ciclismo, en el fondo —dijo Santi—. Carreteras tranquilas, pocas cámaras, solo el pelotón compitiendo por el placer de competir. A veces el ciclismo grande hace olvidar esto.
 
-El periodista, satisfecho con la respuesta, no insistió con ninguna pregunta sobre el accidente ni sobre el abandono reciente, algo que Santi agradeció en silencio durante el resto del reconocimiento.
+El periodista, satisfecho con la respuesta, no insistió con ninguna pregunta sobre el accidente ni sobre lo ocurrido en Andalucía, algo que Santi agradeció en silencio durante el resto del reconocimiento.
 
 ---
 
 Las primeras tres etapas, todas con perfiles ondulados sin ninguna dificultad extrema, transcurrieron exactamente como Rusconi había proyectado: Santi terminando cómodamente en el grupo principal, sin ninguna señal de la fatiga abrupta que había definido el día en Andalucía, acumulando kilómetros de competencia real con una sensación de progreso constante que se notaba, día a día, en su propio estado de ánimo.
 
-— Tres etapas, tres llegadas con el grupo principal —le dijo a Hernando, la tercera noche, con un entusiasmo que no había sentido desde antes del abandono—. Nada espectacular, pero nada de sustos tampoco.
+— Tres etapas, tres llegadas con el grupo principal —le dijo a Hernando, la tercera noche, con un entusiasmo que no había sentido desde antes de Andalucía—. Nada espectacular, pero nada de dudas tampoco.
 
 — Eso es exactamente lo que necesitabas demostrarte a vos mismo —dijo Hernando—. No al mundo. A vos mismo.
 
 ---
 
-La cuarta etapa, con un final de categoría tercera que exigía un esfuerzo de poco más de diez minutos, sirvió como el primer test real de montaña desde el abandono, aunque de una magnitud mucho menor que la Sierra de las Nieves.
+La cuarta etapa, con un final de categoría tercera que exigía un esfuerzo de poco más de diez minutos, sirvió como el primer test real de montaña desde la Sierra de las Nieves, aunque de una magnitud mucho menor.
 
 — Esto es justo lo que necesitábamos antes de cualquier cosa más grande —dijo Rusconi, antes de la etapa—. Un esfuerzo real, pero corto. Si el cuerpo responde bien acá, es la primera confirmación concreta de que el ajuste de nutrición y volumen está funcionando.
 
-Santi subió el repecho final sin ninguna señal de la sensación de vaciamiento que había sentido en Andalucía, terminando la etapa en el puesto veintidós, a pocos segundos del grupo de los favoritos reales de la carrera —un resultado modesto en cualquier comparación con su carrera anterior, pero el primer indicio real, desde el accidente, de que el cuerpo podía sostener un esfuerzo de montaña sin colapsar.
+A trescientos metros de la cima, cuando dos corredores del grupo de cabeza se movieron sin previo aviso, Santi sintió el mismo cálculo de la Sierra de las Nieves preparándose en la cabeza —el segundo de duda que pedía permiso antes de actuar— y, esta vez, lo dejó pasar de largo: aceleró sin esperar la confirmación de los números, sin preguntarle nada a nadie por radio, cerrando la diferencia en menos de cien metros y pasando a los dos en los últimos cincuenta, sin que ninguno de los dos pudiera responder al cambio de ritmo. Cruzó la línea primero, con los brazos apenas levantados, más por la sorpresa que por la celebración —la primera victoria de cualquier tipo desde el Tourmalet, en una carrera de categoría menor que ningún año anterior de su carrera hubiera merecido ni una línea de su atención.
 
-— ¿Cómo te sentiste? —preguntó Rusconi, por radio, apenas cruzó la meta.
+— ¿Cómo te sentiste? —preguntó Rusconi, por radio, apenas cruzó la meta, la voz quebrada por una emoción que no intentó disimular.
 
-— Bien —dijo Santi, con una sonrisa que se notaba incluso a través de la radio—. De verdad bien, esta vez. Sentí el esfuerzo, sentí el cansancio normal de un repecho duro. Pero no sentí lo de Andalucía.
+— Bien —dijo Santi, con una sonrisa que se notaba incluso a través de la radio—. Esta vez no pensé. Vi que se movían, y fui. Sin contar nada.
 
 ---
 
 Esa noche, en la cena del equipo, Ferretti levantó una copa de agua con gas en un brindis improvisado, algo que no hacía desde los días previos al Tour de 2023.
 
-— Por la etapa cuatro —dijo Ferretti—. Pequeña en el calendario, enorme en lo que significa.
+— Por la etapa cuatro —dijo Ferretti—. Pequeña en el calendario, enorme en lo que significa. La primera victoria desde el Tourmalet.
 
-— Por terminar de verdad, esta vez —agregó Luca, chocando su propia copa con la de Santi.
+— Por atacar de verdad, esta vez —agregó Luca, chocando su propia copa con la de Santi—. No por sobrevivir. Por ganar.
 
-Santi, sintiendo una emoción que no esperaba sentir por un puesto veintidós en una carrera de categoría menor, se quedó un momento en silencio antes de hablar.
+Santi, sintiendo una emoción que no esperaba sentir por la victoria de una etapa de categoría menor, se quedó un momento en silencio antes de hablar.
 
 — Gracias a todos por seguir confiando, incluso después de Andalucía —dijo, finalmente—. Sé que no fue fácil para nadie, esa semana.
 
@@ -72,9 +72,9 @@ La mesa entera rió, agradecida de tener, después de tantos meses difíciles, u
 
 ---
 
-Las dos etapas restantes, ambas con perfiles similares a las primeras tres, transcurrieron sin sobresaltos, con Santi terminando la carrera completa en el puesto dieciocho de la clasificación general, un resultado que, comparado con cualquier año anterior de su carrera, hubiera sido completamente intrascendente, pero que, en el contexto específico de ese regreso, representaba exactamente lo que el equipo necesitaba: seis días completos de competencia, sin ningún abandono, con al menos una señal clara de que el cuerpo podía sostener un esfuerzo de montaña real.
+Las dos etapas restantes, ambas con perfiles similares a las primeras tres, transcurrieron sin sobresaltos, con Santi terminando la carrera completa en el puesto dieciocho de la clasificación general —el resultado general no reflejaba la etapa ganada, ya que las jornadas llanas habían diluido cualquier ventaja construida en la cuarta— un resultado que, comparado con cualquier año anterior de su carrera, hubiera sido completamente intrascendente, pero que, en el contexto específico de ese regreso, representaba exactamente lo que el equipo necesitaba: seis días completos de competencia, una victoria de etapa, y la confirmación de que el instinto, al menos una vez, había llegado antes que la duda.
 
-— Dieciocho —le dijo a Mariana esa noche, por videollamada, ya que ella había permanecido en Girona esa semana, coordinando los últimos detalles de su exposición de fotografía—. El puesto más bajo de toda mi carrera en una clasificación general, y se siente como una de las mejores semanas que tuve en años.
+— Dieciocho en la general, pero gané la etapa cuatro —le dijo a Mariana esa noche, por videollamada, ya que ella había permanecido en Girona esa semana, coordinando los últimos detalles de su exposición de fotografía—. El puesto más bajo de toda mi carrera en una clasificación general, y al mismo tiempo la primera victoria en casi dos años. Las dos cosas a la vez, sin que ninguna le reste nada a la otra.
 
 — Eso es exactamente lo que más me gusta de cómo cambiaste este año —dijo Mariana—. Antes medías todo en términos absolutos. Ahora medís en términos de lo que cada cosa representa, dentro del contexto que le corresponde.
 
@@ -98,7 +98,7 @@ Rusconi, en la reunión técnica de cierre de la semana, presentó un análisis 
 
 Hernando, esa noche, escribió en el cuaderno la entrada que cerraba esa semana específica con un tono distinto a cualquier otra de los últimos meses:
 
-*Fin de marzo de 2026. Coppi e Bartali. Seis etapas, seis llegadas, 18.º en la general. El puesto más bajo de su carrera en una clasificación final, y la mejor noticia que recibimos en meses. La etapa 4, con un repecho real, no generó ningún colapso como en Andalucía. Rusconi dice que la curva apunta en la dirección correcta. Abril trae una semana más exigente. Por primera vez desde el accidente, Santi suena listo para esa pregunta, no asustado de ella.*
+*Fin de marzo de 2026. Coppi e Bartali. Seis etapas, seis llegadas, 18.º en la general. El puesto más bajo de su carrera en una clasificación final, y la mejor noticia que recibimos en meses. En la etapa 4, con un repecho real, atacó sin pensarlo, sin los tres segundos de Andalucía. Rusconi dice que la curva apunta en la dirección correcta. Abril trae una semana más exigente. Por primera vez desde el accidente, Santi suena listo para esa pregunta, no asustado de ella.*
 
 Antes de cerrar el cuaderno, agregó una línea más, casi como una reflexión personal que llevaba semanas queriendo anotar de alguna forma.
 

@@ -126,15 +126,19 @@ Antes de dormir esa noche, Santi revisó, una última vez, el perfil completo de
 
 Sintió, mirando esos nombres todavía desconocidos en carne propia, una calma que no había sentido antes de ningún otro Grand Tour de su carrera —no la ausencia de presión, sino algo más parecido a la aceptación tranquila de que, sea lo que fuera que esas montañas finalmente decidieran sobre su cuerpo, ya había hecho, durante esos siete meses completos desde enero, todo lo que estaba en sus manos hacer.
 
-Apagó la luz, con dieciocho etapas todavía por delante, sin saber, esa noche en el norte de España, exactamente qué versión de sí mismo iba a encontrar esperándolo al final de ese camino.
+Apagó la luz, con dieciocho etapas todavía por delante, sin saber, esa noche en el norte de España, qué versión de sí mismo iba a encontrar esperándolo en esos puertos: no la duda de si el cuerpo iba a aguantar —de eso, después de Coppi e Bartali, de Itzulia, de Romandie, ya tenía pruebas suficientes— sino la otra pregunta, la que ningún número de potencia podía contestarle de antemano: si en el instante exacto en que del Toro o Pogačar se movieran en la subida decisiva, su cuerpo iba a ir tras ellos sin pedirle permiso a nadie, o si los tres segundos de la Sierra de las Nieves todavía estaban ahí, esperando el momento de volver.
 
 Mariana, ya acostada a su lado, lo encontró todavía despierto, con el teléfono apagado pero los ojos abiertos, mirando el techo de la habitación.
 
 — ¿En qué pensás? —preguntó, en voz baja.
 
-— En los puertos de Asturias —admitió Santi—. En si van a ser el lugar donde por fin termino de demostrarme que volví de verdad, o el lugar donde el cuerpo decide que todavía no.
+— En si todavía me queda algo de esos tres segundos de Andalucía, o si ya los dejé atrás de verdad —admitió Santi—. Eso me importa más, en este momento, que cualquier puerto de Asturias.
 
-— Sea cual sea la respuesta, vas a tener a toda esta gente alrededor para enfrentarla —dijo Mariana—. Eso ya no es una pregunta abierta, después de este año.
+— Llevás meses sin dudar así, carrera tras carrera —dijo Mariana—. Eso también es información, ¿no? Como diría Rusconi.
+
+— Es información —concedió Santi—. Pero la única que de verdad va a contar es la que aparezca el día que haga falta, no antes.
+
+— Entonces vas a tener a toda esta gente alrededor cuando llegue ese día —dijo Mariana—. Eso, al menos, ya no es una pregunta abierta, después de este año.
 
 — Eso es cierto —dijo Santi, finalmente cerrando los ojos—. Esa es la única certeza que necesito, en realidad, antes de cualquier puerto.
 

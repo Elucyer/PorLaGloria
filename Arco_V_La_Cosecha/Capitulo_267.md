@@ -1,6 +1,6 @@
 # POR LA GLORIA
 ## Arco V — La Cosecha
-### Capítulo 267 — Todavía no (febrero de 2026)
+### Capítulo 267 — La línea segura (febrero de 2026)
 
 ---
 
@@ -10,65 +10,69 @@
 
 Las semanas posteriores a la primera salida en bicicleta, la que había terminado con el cuerpo apagándose a los treinta y cuatro minutos sin ningún aviso previo, transcurrieron con una lentitud que Santi no recordaba haber sentido en ningún otro punto de su carrera, ni siquiera en los meses más oscuros de la inmovilización después del Tourmalet.
 
-— Pensé que para esta altura ya estaríamos hablando de la primera carrera —le dijo a Rusconi, a mediados de febrero, durante una sesión de seguimiento en la sede del equipo, revisando juntos los datos acumulados de las últimas semanas—. En cambio, seguimos hablando de volumen de base.
+— Pensé que para esta altura ya estaríamos hablando de la primera carrera —le dijo a Rusconi, a mediados de febrero, durante una sesión de seguimiento en la sede del equipo—. En cambio, seguimos hablando de volumen de base.
 
-— Lo sé —dijo Rusconi, sin disimular que también a él le hubiera gustado un proceso más rápido—. Pero los números todavía no están donde necesitan estar. Tu resistencia de fondo mejoró mucho desde enero, eso es real. Pero "mucho mejor que enero" no es lo mismo que "listo para competir".
+— Los números todavía no están donde necesitan estar —dijo Rusconi—. Tu resistencia de fondo mejoró mucho desde enero. Pero "mucho mejor que enero" no es lo mismo que "listo para competir".
 
 — ¿Y cuándo lo vamos a saber con certeza? —preguntó Santi.
 
-— Cuando puedas sostener tres horas completas a intensidad moderada sin ninguna caída en la potencia, ni siquiera en el último tramo —dijo Rusconi—. Todavía estamos a dos horas y media, con una caída visible después de la hora cuarenta. Falta, pero cada vez falta menos.
+— Cuando puedas sostener tres horas completas a intensidad moderada sin ninguna caída en la potencia —dijo Rusconi—. Todavía estamos a dos horas y media, con una caída visible después de la hora cuarenta. Falta, pero cada vez falta menos.
 
 ---
 
-Esa semana, en una de las sesiones más largas hasta entonces —dos horas y cuarenta minutos, la mayor distancia que Santi había sostenido desde el accidente—, sintió, otra vez, la misma sensación que ya empezaba a reconocer como parte normal del proceso: un punto exacto, siempre distinto pero siempre real, donde el cuerpo dejaba de responder con la misma autoridad de los primeros kilómetros.
+A finales de febrero, en la reunión semanal con Ferretti y Rusconi, finalmente se puso sobre la mesa una fecha concreta.
 
-— Pasó otra vez, a la hora cuarenta y cinco —le dijo a Luca, ya de vuelta en la sede, mientras los dos se estiraban después del entrenamiento—. Cada vez un poco más tarde, pero siempre pasa.
+— Si las próximas dos semanas siguen esta misma curva, vamos a apuntar a la Vuelta a Andalucía —dijo Ferretti—. La semana del ocho de marzo.
 
-— Eso es progreso, aunque no se sienta como progreso —dijo Luca—. Hace tres semanas pasaba a la hora veinte. Ahora pasa a la hora cuarenta y cinco. El cuerpo está corriendo su propia carrera, kilómetro por kilómetro, contra una versión de sí mismo de hace un mes.
+— ¿Tan pronto? —preguntó Santi.
 
-— Suena bien cuando lo decís así —dijo Santi—. Cuesta sentirlo así en el momento exacto en que las piernas dejan de responder.
-
----
-
-Mariana, que documentaba buena parte de este proceso para el reportaje de la revista española, notó, en las fotos que iba acumulando semana tras semana, un cambio que las cifras de Rusconi todavía no terminaban de capturar del todo.
-
-— Mirá esto —le dijo a Santi, una noche, mostrándole dos fotos en la pantalla de la cámara, una de la primera semana en el gimnasio y otra de esa misma tarde, en la bicicleta—. La postura es distinta. En la primera te ves rígido, como si estuvieras conteniendo algo todo el tiempo. En esta de ahora, aunque sé que estás agotado, hay algo más suelto en los hombros.
-
-— No lo había notado —admitió Santi, mirando las dos imágenes con atención—. Pero tenés razón. Algo cambió, aunque Rusconi siga diciendo que no estoy listo todavía.
-
-— Las dos cosas pueden ser ciertas al mismo tiempo —dijo Mariana—. Que falte, y que ya hayas cambiado mucho desde enero.
+— Va a ser una carrera de etapas, con un perfil variado —dijo Rusconi—. Dos jornadas llanas, y una etapa de montaña media hacia el final, donde vamos a ver, por primera vez en serio, cómo responde el cuerpo a un esfuerzo sostenido de verdad.
 
 ---
 
-A finales de febrero, en la reunión semanal con Ferretti y Rusconi, finalmente se puso sobre la mesa una fecha concreta, después de meses sin ninguna referencia firme en el calendario.
+Esa misma semana, en uno de los entrenamientos de grupo con el resto del equipo, llegó el primer ensayo real de algo que ningún plan de potencia podía simular: pelotón completo, simulacro de etapa, ataques de prueba en una loma corta cerca de la sede.
 
-— Si las próximas dos semanas siguen esta misma curva, vamos a apuntar a la Vuelta a Andalucía —dijo Ferretti, repasando el calendario en la tablet—. La semana del ocho de marzo. Faltan poco más de dos semanas desde hoy.
+Koen, que había organizado el ejercicio junto a uno de los directores deportivos jóvenes, marcó la salida de un grupo de seis corredores del equipo, con instrucciones simples: simular los últimos cinco kilómetros de una etapa llana, con un repecho final donde alguien debía intentar una fuga de prueba.
 
-— ¿Tan pronto? —preguntó Santi, sorprendido por la cercanía de la fecha después de tantas semanas de espera.
+A dos kilómetros del final ficticio, uno de los gregarios más jóvenes del equipo, un español de veintidós años que apenas llevaba un año en el WorldTour, aceleró sin avisar en el momento exacto en que el grupo bajaba la guardia tras una curva, abriendo un hueco de cinco, después diez metros.
 
-— No tan pronto, en realidad —dijo Rusconi—. Es exactamente el tiempo que necesitábamos. Va a ser una carrera de etapas, con un perfil variado: dos jornadas llanas para que el cuerpo se acostumbre al ritmo de competencia otra vez, y una etapa de montaña media hacia el final, donde vamos a ver, por primera vez en serio, cómo responde el cuerpo a un esfuerzo sostenido de verdad.
+Era exactamente el tipo de movimiento que Santi, en 2023, hubiera cerrado en el acto, casi sin pensarlo: el cuerpo decidía antes que la cabeza terminara de procesar la situación. Esa tarde, en cambio, Santi vio el hueco abrirse, calculó —con una claridad que después le sorprendió, porque calcular era exactamente lo que antes no hacía— que todavía tenía margen para cerrarlo sin gastar de más, y aun así dejó pasar dos, tres segundos antes de reaccionar. Cuando finalmente aceleró, el hueco ya tenía quince metros, y cerrarlo le costó un esfuerzo que, de haber reaccionado a tiempo, no hubiera sido necesario.
 
-— ¿Y si no responde bien? —preguntó Santi, formulando la pregunta que llevaba semanas evitando decir en voz alta con esa claridad.
+— Buena reacción al final —dijo el director deportivo joven, al terminar el ejercicio, sin haber notado nada raro.
 
-— Entonces lo vamos a saber ahí, en carretera, en lugar de seguir adivinándolo en un gimnasio —dijo Rusconi, sin suavizar la respuesta—. Cualquier resultado de esa etapa de montaña, incluido el peor, es información que necesitamos antes de seguir construyendo el resto del año.
+Luca, que rodaba justo detrás de Santi, sí lo notó.
+
+— Lo viste salir antes de que abriera el hueco —dijo Luca, no como pregunta—. Te vi mirarlo.
+
+— Lo vi —admitió Santi—. Y sabía que todavía podía cerrarlo. Pero me tomó un par de segundos de más decidirme a hacerlo.
+
+— ¿Por qué?
+
+Santi no respondió de inmediato. Pedaleaba mirando la carretera, buscando una explicación que no sonara ni a excusa ni a confesión.
+
+— No sé bien por qué —dijo, finalmente—. Antes no había ningún por qué. Salía el hueco, yo lo cerraba. Ahora hay un instante en el medio donde algo se detiene a pensarlo, y ese instante no estaba ahí antes.
+
+Luca no dijo nada más sobre el tema, pero tampoco lo dejó pasar del todo.
+
+— Es un ejercicio de entrenamiento —dijo, al final—. No importa hoy. Pero si te pasa lo mismo en una carrera real, con algo en juego, sí va a importar.
+
+— Lo sé —dijo Santi—. Por eso me molesta más de lo que debería molestarme un ejercicio sin consecuencias.
 
 ---
 
-Esa noche, llamó a Hernando para contarle, finalmente, una fecha real después de meses de hablar solo de procesos y porcentajes.
+Esa noche, en la videollamada de seguimiento, Santi le contó a Rusconi la fecha confirmada de Andalucía, pero no le contó lo del ejercicio de grupo. No fue una omisión calculada: simplemente no encontró el lugar exacto, en una conversación sobre volumen y potencia, para meter algo que no tenía números que lo respaldaran.
 
-— Ocho de marzo —dijo Santi—. Vuelta a Andalucía. Mi primera carrera desde el Tourmalet.
+— Ocho de marzo —dijo Santi—. Mi primera carrera desde el Tourmalet.
 
-Hernando se quedó en silencio un momento, dejando que la noticia se asentara antes de responder.
+— Diecinueve meses y medio —dijo Rusconi, haciendo la cuenta—. Es la espera más larga de toda tu carrera entre una carrera y la siguiente.
 
-— Diecinueve meses y medio —dijo Hernando, haciendo la cuenta en voz alta—. Desde el veinte de julio de 2024 hasta el ocho de marzo de este año. Es la espera más larga de toda tu carrera entre una carrera y la siguiente.
+— Lo sé —dijo Santi—. Y todavía no sé si el cuerpo va a aguantar la etapa de montaña del final.
 
-— Lo sé —dijo Santi—. Y todavía no sé si el cuerpo va a aguantar la etapa de montaña del final. Rusconi dice que probablemente no del todo, la primera vez.
-
-— Entonces no esperes que aguante del todo —dijo Hernando—. Esperá, simplemente, estar ahí, en la salida, después de todo lo que costó llegar hasta ese punto. El resto, dejalo que lo decida el cuerpo, no la cabeza.
+— Entonces no esperes que aguante del todo —dijo Rusconi—. Esperá, simplemente, estar ahí, en la salida.
 
 Hernando anotó en el cuaderno esa noche, con una letra que reflejaba la mezcla exacta de alivio y cautela que llevaba meses sin sentir:
 
-*Finales de febrero de 2026. Fecha confirmada: 8 de marzo, Vuelta a Andalucía. Primera carrera de Santi en diecinueve meses y medio. Rusconi advierte que la etapa de montaña final puede ser dura, que el cuerpo probablemente todavía no esté listo del todo. Pero hay una fecha. Después de tanto tiempo sin ninguna, eso solo ya se siente como una victoria.*
+*Finales de febrero de 2026. Fecha confirmada: 8 de marzo, Vuelta a Andalucía. Primera carrera de Santi en diecinueve meses y medio.*
 
 ---
 
@@ -76,14 +80,32 @@ Mariana, esa misma noche, encontró a Santi despierto mucho después de la hora 
 
 — ¿No podés dormir? —preguntó, acostándose a su lado.
 
-— Estoy memorizando la subida final, como hacía antes de cualquier carrera importante —admitió Santi—. Aunque esta vez no sé bien para qué, si de todas formas el cuerpo va a decidir lo que va a decidir, sin importar cuánto la memorice.
+— Estoy memorizando la subida final, como hacía antes de cualquier carrera importante —admitió Santi.
 
-— Quizás es para eso mismo —dijo Mariana—. Para sentir que hiciste todo lo que podías controlar, antes de entregarle el resto al cuerpo.
+No le contó lo del hueco que había dejado abrirse esa tarde. Pensó en hacerlo, un instante, y decidió que todavía no tenía manera de explicarlo sin que sonara más grave de lo que —se decía a sí mismo— probablemente era.
 
-— Tiene sentido —dijo Santi, dejando finalmente el teléfono sobre la mesa de noche—. Aunque después de hoy, ya memoricé cada metro de esos doce kilómetros más veces de las que puedo contar.
+— Quizás es para sentir que hiciste todo lo que podías controlar —dijo Mariana—, antes de entregarle el resto al cuerpo.
 
-— Entonces ya es hora de dormir —dijo Mariana, apagando la luz—. La memoria no se construye mejor a la una de la madrugada.
+— Tiene sentido —dijo Santi, dejando finalmente el teléfono sobre la mesa de noche.
 
-Santi se quedó un momento más despierto en la oscuridad, pensando en la fecha que finalmente tenía marcada en el calendario después de meses de espera, sin saber todavía cuánto le iba a costar, en pocos días, cruzar esa línea de salida.
+Santi se quedó un momento más despierto en la oscuridad, pensando no tanto en la etapa de montaña que se venía, sino en el medio segundo de duda que había sentido esa tarde, en un ejercicio sin importancia, y en lo que podía costarle ese mismo medio segundo si volvía a aparecer en una carrera de verdad.
+
+---
+
+Al día siguiente, antes del último entrenamiento de la semana, Santi le pidió a Koen que revisara con él, otra vez, las grabaciones del ejercicio del día anterior, algo que no era parte de la rutina habitual de revisión técnica.
+
+— ¿Buscás algo específico? —preguntó Koen, pasando el video en la pantalla del ordenador del taller.
+
+— Quiero ver el momento exacto en que el chico abre el hueco —dijo Santi.
+
+Koen lo encontró, lo pasó en cámara lenta. En la pantalla, el gregario joven se levantaba del sillín con una decisión limpia, sin un solo gramo de duda visible en la postura. Santi, dos segundos después, giraba apenas la cabeza hacia el hueco que se abría, y ahí, en ese fotograma exacto, quedaba registrado lo que ningún sensor de potencia podía medir: la mirada que calcula antes de actuar, en lugar de actuar mientras calcula.
+
+— ¿Viste algo raro en mi posición? —preguntó Santi, evitando nombrar lo que de verdad quería preguntar.
+
+— Nada raro en la posición —dijo Koen, sin captar la pregunta real—. ¿Por qué, sentiste algo en la espalda?
+
+— No —dijo Santi—. Solo quería verlo otra vez.
+
+Cerró el video sin pedir que lo repitiera una tercera vez, y salió del taller pensando que, de todas las personas del equipo capaces de leer un dato en una pantalla, ninguna todavía sabía leer ese fotograma específico de la misma forma en que él lo estaba leyendo.
 
 ---

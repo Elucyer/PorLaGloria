@@ -72,13 +72,13 @@ Y una oficina en Buenos Aires con el equipo directivo de expansión de marca que
 
 El director ejecutivo respondió.
 
-— Diez millones de euros anuales de patrocinio al equipo — dijo. — Contrato de cinco años. El FCV sigue como co-naming — el nombre del equipo pasa a ser *MercadoLibre-FCV*. El presupuesto total del equipo en 2021 sería de veinticuatro millones.
+— Quince millones de euros anuales de patrocinio al equipo — dijo. — Contrato de cinco años. El FCV sigue como co-naming — el nombre del equipo pasa a ser *MercadoLibre-FCV*. El presupuesto total del equipo en 2021 sería de treinta y dos millones.
 
-Veinticuatro millones.
+Treinta y dos millones.
 
-Diez más que en 2020.
+Dieciocho más que en 2020.
 
-El segundo presupuesto más alto del pelotón WorldTour, detrás del Ineos Grenadiers y empatado con el Jumbo-Visma.
+Uno de los tres presupuestos más altos del pelotón WorldTour — todavía por debajo del Ineos Grenadiers, ya a la altura del Jumbo-Visma, y por primera vez en la historia del equipo belga, en la conversación de los gigantes del pelotón en lugar de mirarlos desde afuera.
 
 El director ejecutivo pasó a los recursos que el presupuesto nuevo desbloqueaba. Ferretti, desde Ginebra, fue quien los presentó — los había pedido él, los conocía de memoria.
 
@@ -284,33 +284,33 @@ El documento que Salcedo compartía pantalla era el documento que Santi nunca pe
 
 **Ingresos totales 2020 — Santiago Reyes Cardona:**
 
-*Contrato FCV-WorldTour:* 1.970.000 euros (salario base + bonos de rendimiento por Tour, Flandes, etapas).
+*Contrato FCV-WorldTour:* 2.430.000 euros (salario base + bonos de rendimiento por Tour, Flandes, etapas).
 
-La cláusula de rendimiento que Duarte había negociado en la renovación de agosto de 2019 decía: bono de 400.000 euros por victoria en Grand Tour, bono de 150.000 por victoria en Monumento, bono de 25.000 por etapa de Grand Tour ganada. En 2020: Tour de France + Tour de Flandes + cuatro etapas (tres del Tour + una de la Vuelta) = 400.000 + 150.000 + (4 × 25.000) = 650.000 euros en bonos sobre el salario base de 1.320.000.
+La cláusula de rendimiento que Duarte había negociado en la renovación de agosto de 2019 decía: bono de 700.000 euros por victoria en Grand Tour, bono de 250.000 por victoria en Monumento, bono de 40.000 por etapa de Grand Tour ganada. En 2020: Tour de France + Tour de Flandes + cuatro etapas (tres del Tour + una de la Vuelta) = 700.000 + 250.000 + (4 × 40.000) = 1.110.000 euros en bonos sobre el salario base de 1.320.000.
 
-*Bancolombia:* 110.000 euros (imagen en Colombia, apariciones en medios, campaña digital — contrato de tres años firmado en 2019, renovable).
+*Bancolombia:* 250.000 euros (imagen en Colombia, apariciones en medios, campaña digital — contrato de tres años firmado en 2019, renovable).
 
-*IWC Schaffhausen:* 180.000 euros (embajador de la marca para Europa y América Latina, dos activaciones anuales, uso del reloj en contextos de competencia — contrato de cuatro años con bono por victoria en Grand Tour).
+*IWC Schaffhausen:* 350.000 euros (embajador de la marca para Europa y América Latina, dos activaciones anuales, uso del reloj en contextos de competencia — contrato de cuatro años con bono por victoria en Grand Tour).
 
-*Claro Colombia:* 420.000 euros (campaña anual, imagen en televisión, tres activaciones en Colombia).
+*Claro Colombia:* 800.000 euros (campaña anual, imagen en televisión, tres activaciones en Colombia — la cifra más alta que la marca había pagado nunca por un deportista colombiano, según el propio Duarte).
 
-*Garmin:* 180.000 euros (contenido orgánico, uso de equipamiento, posts en redes sociales durante carreras).
+*Garmin:* 300.000 euros (contenido orgánico, uso de equipamiento, posts en redes sociales durante carreras).
 
-*Alto Performance (Alejandro Vélez):* 95.000 euros (colección de ropa lifestyle con nombre de Santi, tres diseños lanzados en el año — contrato de dos años firmado en 2019).
+*Alto Performance (Alejandro Vélez):* 150.000 euros (colección de ropa lifestyle con nombre de Santi, tres diseños lanzados en el año — contrato de dos años firmado en 2019).
 
 *Derechos de imagen UCI:* 67.000 euros (distribución de derechos de imagen del pelotón profesional según rendimiento).
 
-*Podcast "Aprender a Matar":* 138.000 euros (ingresos por publicidad y Spotify, split 60/40 con Julián Estrada).
+*Podcast "Aprender a Matar":* 200.000 euros (ingresos por publicidad y Spotify, split 60/40 con Julián Estrada).
 
-*Total bruto 2020:* **3.160.000 euros.**
+*Total bruto 2020:* **4.547.000 euros.**
 
 Deducciones: impuestos suizos (Santi era residente fiscal en Suiza desde 2019, Salcedo había negociado la tasa efectiva con la autoridad cantonal de Ginebra), comisión de gestión de Duarte, honorarios de Patiño, honorarios de Salcedo, costos de representación y una partida fija mensual que Santi había pedido incluir desde 2019 y que Salcedo anotó sin preguntar: apoyo al local de Ospina en Floresta — el alquiler del local de la calle 58, el equipamiento, los salarios de los dos mecánicos del taller. Dos mil euros al mes. Veinticuatro mil al año.
 
-*Total neto 2020:* **2.050.000 euros.**
+*Total neto 2020:* **2.960.000 euros.**
 
 Duarte cerró la carpeta.
 
-— El año 2021 — dijo Duarte — con el nuevo contrato del equipo, el acuerdo personal con MercadoLibre y los patrocinadores actuales, el total bruto estimado es de 5.500.000 euros. Neto proyectado: 3.500.000.
+— El año 2021 — dijo Duarte — con el nuevo contrato del equipo, el acuerdo personal con MercadoLibre y los patrocinadores actuales, el salario base sube a 2.800.000 euros — más del doble del año pasado. El total bruto estimado, sin contar ningún resultado todavía, es de 9.000.000 euros. Neto proyectado: 5.800.000.
 
 Santi lo miró.
 
@@ -318,7 +318,7 @@ No dijo nada durante diez segundos.
 
 — El Tour — dijo Santi.
 
-— Si ganás el Tour de nuevo — dijo Duarte — hay una cláusula de rendimiento de 600.000 euros del equipo más el bono de activación de MercadoLibre de 400.000 y el bono de IWC por Grand Tour ganado. Eso sube el total a 4.500.000 bruto.
+— Si ganás el Tour de nuevo — dijo Duarte — hay una cláusula de rendimiento de 900.000 euros del equipo más el bono de activación de MercadoLibre de 700.000 y el bono de IWC por Grand Tour ganado. Eso sube el total a 11.000.000 bruto.
 
 Santi asintió.
 

@@ -48,25 +48,39 @@ Las primeras dos semanas del Tour transcurrieron con Santi siguiendo cada etapa 
 
 ---
 
-La segunda semana del Tour, con su tradicional paso por los Pirineos, le dio a Santi la oportunidad de ver, por primera vez desde su propio accidente, a Pogačar y a Isaac del Toro disputarse, codo a codo, una etapa de montaña real, en lo que la prensa especializada ya empezaba a describir como el primer indicio serio de un relevo generacional en marcha.
+La segunda semana del Tour, con su tradicional paso por los Pirineos, le dio a Santi la oportunidad de ver, por primera vez desde su propio accidente, lo que Isaac del Toro ya era capaz de hacer en una montaña real: no como rival de Pogačar, sino como su gregario de lujo en el UAE Team Emirates, el corredor a quien el equipo finalmente le había dado permiso de atacar en la fuga del día, con el resto de favoritos ya neutralizado, mientras Pogačar se limitaba a vigilar de cerca a Vingegaard en el grupo de cabeza.
 
-— Mirá esto —le dijo a Mariana, durante la transmisión de la etapa con final en Luz Ardiden, el mismo puerto donde él mismo había atacado en 2023—. Del Toro le respondió cada ataque. Hace un año, nadie hubiera podido hacer eso.
+— Mirá esto —le dijo a Mariana, durante la transmisión de la etapa con final en Luz Ardiden, el mismo puerto donde él mismo había atacado en 2023—. El equipo lo soltó, y respondió cada ataque de la fuga como si llevara diez años corriendo así. Hace un año, nadie hubiera dejado correr a un gregario de esa forma.
 
-— ¿Te genera algo raro, verlo a él ahí, en lugar de vos? —preguntó Mariana, con la pregunta directa que ya era costumbre entre los dos.
+Mariana lo miró un momento, más a él que a la pantalla, antes de decir algo.
 
-Santi lo pensó un momento, antes de responder con una honestidad que reflejaba meses de trabajo con el psicólogo deportivo.
+— Lo que yo veo es otra cosa —dijo, finalmente—. Lo veo tirarse en la bajada del Tourmalet de esa transmisión vieja que todavía tenés guardada, y después lo veo a él, ahí, en Luz Ardiden, sin pensarlo dos veces en ninguna curva. Y pienso en lo que me contaste de la Itzulia.
 
-— Un poco, sí —admitió—. Pero menos de lo que esperaba. Es casi como ver una versión más joven de mí mismo, peleando las mismas batallas que yo peleé hace años. Eso genera más curiosidad que envidia, en realidad.
+Santi no respondió enseguida. Se quedó mirando la repetición de la bajada técnica posterior al ataque de del Toro, donde el mexicano se metía en cada curva con la misma confianza ciega que él alguna vez tuvo.
+
+— Yo era así —dijo, finalmente—. Y una parte de mí todavía espera serlo, en la próxima curva, en la que viene después de esa. Pero el cuerpo frena antes de que esa parte decida nada.
+
+— ¿Eso te da rabia? —preguntó Mariana.
+
+— Mucha —dijo Santi, sin suavizarlo—. Más rabia que el miedo que tenía en marzo, para serte honesto. El miedo lo entendía. Esto es distinto: es saber exactamente lo que tendría que hacer y no poder hacerlo todavía, sin que nadie pueda decirme cuándo eso se va a arreglar, si se arregla.
 
 ---
 
-Pogačar, que terminó ganando esa etapa de los Pirineos por apenas unos segundos sobre del Toro, le escribió a Santi esa misma noche, como ya era costumbre después de cada jornada decisiva del Tour.
+Del Toro, que terminó ganando esa etapa de los Pirineos con casi un minuto sobre la fuga, mientras Pogačar y Vingegaard se vigilaban mutuamente sin gastar nada de más en el grupo de los favoritos, le escribió a Santi esa misma noche, después de que Pogačar le pasara, sin que él lo pidiera, el número de teléfono que llevaba meses queriendo tener.
 
-*Pogačar: Viste la etapa de hoy. Este chico mexicano va a ser un problema serio para todos nosotros, en un par de años.*
+*Isaac del Toro: Espero que no le moleste que le escriba. Tadej me dio su número. Quería contarle que pensé en usted hoy, en la bajada — el respeto a la curva sin perder velocidad de verdad.*
 
-*Santi: Lo vi. Me hizo acordar a cómo corría yo a su edad. Cuidate de él.*
+*Santi: No me molesta para nada. Te vi atacar. Me hiciste acordar a cómo corría yo a tu edad.*
 
-*Pogačar: Me cuido. Aunque preferiría tenerte a vos peleando esto conmigo, en lugar de a él.*
+*Isaac del Toro: Eso es el mejor cumplido que me hicieron esta semana.*
+
+Pogačar, esa misma noche, le escribió por su cuenta, como ya era costumbre después de cada jornada decisiva del Tour.
+
+*Pogačar: Viste la etapa de hoy. Le di permiso a Isaac de ir, ya que la fuga no tenía nada peligroso para la general. Y Jonas, marcando todo sin atacar nunca, como siempre.*
+
+*Santi: Lo vi. El chico mexicano me hizo acordar a cómo corría yo a su edad. Jonas me preocuparía más, la verdad — el que no gasta nada hasta que hace falta.*
+
+*Pogačar: Me cuido de los dos, aunque sea de distinta forma. Aunque preferiría tenerte a vos peleando esto conmigo, en lugar de a ellos.*
 
 *Santi: El año que viene. Este año, la Vuelta me está esperando.*
 
@@ -114,15 +128,19 @@ El catorce de julio, mientras el Tour entraba en su última semana decisiva, San
 
 — Esa sí es mi mamá —dijo Santi, sonriendo—. Decile que la quiero, y que estoy contando los días.
 
-Hernando anotó en el cuaderno, esa misma noche, una entrada que reflejaba el optimismo cauteloso de mediados de julio:
+Esa noche, en vez de escribir en el cuaderno, Hernando se sentó un rato en el balcón del apartamento con Carmen, repasando en voz alta, para ella, lo que pensaba anotar, como hacía cada vez que la entrada le costaba más de lo habitual.
 
-*Julio de 2026. Tour de Francia en su última semana, sin Santi en el pelotón, pero sin la misma oscuridad del año pasado. Pogačar y del Toro pelean por el maillot amarillo — la próxima generación ya empieza a tomar protagonismo, y Santi lo observa con curiosidad, no con amargura. Semana de altitud en Sierra Nevada completada con los mejores números desde el accidente. Carmen y yo ya tenemos los pasajes para la Vuelta, en agosto. Después de Andalucía, después de todo este año, finalmente sentimos que vamos hacia algo, no que estamos esperando a que algo pase.*
+— Hay algo que no sé cómo poner en la página —le dijo a Carmen—. Santi me contó que verlo atacar a del Toro en Luz Ardiden, sin pensarlo, le dio rabia consigo mismo. No miedo. Rabia.
+
+— Ponelo así, entonces, tal cual —dijo Carmen—. Treinta años anotando lo que él te cuenta. No hace falta que encuentres una frase más bonita que la verdad.
+
+Hernando volvió adentro y escribió, casi palabra por palabra, lo que Carmen le había dicho que escribiera: que del Toro atacaba sin pensar y Santi lo veía con rabia, no con miedo; que la semana de altitud en Sierra Nevada había dado los mejores números desde el accidente; que los pasajes para la Vuelta ya estaban comprados. Cerró el cuaderno sin ninguna línea final esa noche, dejando que la entrada terminara donde Carmen la había dejado.
 
 ---
 
 El veintiséis de julio, el día de la llegada a París, Santi vio el cierre del Tour 2026 desde el sofá del apartamento en Girona, con Mariana a su lado y un sentimiento que, comparado con el del año anterior, representaba una transformación casi completa.
 
-— Ganó Pogačar —dijo Santi, viendo el podio final, con del Toro a su lado en el segundo escalón—. Su séptimo Tour. Y del Toro, segundo, con apenas veintidós años.
+— Ganó Jonas —dijo Santi, viendo el podio final, con Pogačar a un lado y del Toro al otro—. Su segundo Tour. Esperó todo el mes, dejó que los otros dos se desgastaran peleando etapas, y se quedó con la corona en los Alpes, cuando nadie tenía nada más para responderle.
 
 — ¿Cómo te sentís, viendo esto, sabiendo que en cualquier otro año hubiera sido vos peleando ese podio? —preguntó Mariana.
 
@@ -130,11 +148,15 @@ El veintiséis de julio, el día de la llegada a París, Santi vio el cierre del
 
 Mariana lo tomó de la mano, sin decir nada más, mientras la transmisión mostraba los Campos Elíseos llenos de gente, un escenario que Santi conocía bien, y que, por primera vez en su carrera, observaba sin ningún rastro de la urgencia que normalmente acompañaba a cualquier final de Tour ajeno.
 
-Antes de apagar la televisión, Santi le escribió un mensaje breve a Pogačar, felicitándolo por el séptimo Tour de su carrera.
+Antes de apagar la televisión, Santi le escribió un mensaje breve a Pogačar, sobre la carrera que ninguno de los dos había podido ganar.
 
-*Santi: Felicitaciones. Un podio histórico, otra vez. Y cuidado con del Toro, en serio.*
+*Santi: Jonas otra vez. Esperó todo el mes y se las cobró en los Alpes. ¿Cómo se siente, perder así?*
 
-*Pogačar: Gracias. Y ya lo cuido, créeme. Nos vemos en algún punto del año, cuando termine tu Vuelta.*
+*Pogačar: Mal. Pero es lo que pasa cuando uno se concentra tanto en vigilar a Jonas que se olvida de que Jonas no necesita que nadie lo provoque para atacar en el momento exacto. Errores de cálculo, dirían algunos.*
+
+*Santi: Cuidado con los dos el año que viene, entonces. Jonas no va a parar de esperar, y a este paso Isaac va a dejar de ser gregario antes de lo que pensás.*
+
+*Pogačar: Gracias por el consejo, créeme. Nos vemos en algún punto del año, cuando termine tu Vuelta.*
 
 *Santi: Ahí voy a estar, con suerte celebrando algo que también valga la pena contar.*
 
