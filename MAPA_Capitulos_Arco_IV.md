@@ -62,7 +62,7 @@ Tres vertientes principales:
 - **Giro de Italia:** Santi vuelve a correrlo (a diferencia de 2023). Pogačar gana — confirma su año histórico. Santi pierde el liderato en una etapa de montaña clave (por definir el puerto exacto). Termina 2.º o 3.º.
 - **Tour de Francia:** Santi llega de amarillo en plena lucha de los tres extraterrestres, sin nadie más cerca en la general. Accidente: en una curva en la bajada del Col du Tourmalet, durante el ataque de los tres, Santi resbala y cae. Fractura de clavícula y costillas (agravada respecto al plan original). Evacuado en helicóptero. Abandona de inmediato.
 - **La carrera continúa** — no se cancela la etapa (esto nunca ocurre en el ciclismo real, ni siquiera ante accidentes graves). Pogačar gana la etapa y hereda el maillot amarillo. Posible gesto de respeto del pelotón (no disputar tiempo/bonificaciones mientras evacuan a Santi).
-- **Consecuencia:** Santi queda fuera el resto de 2024 y todo 2025, con regreso recién en la segunda mitad de 2026.
+- **Consecuencia:** Santi queda fuera el resto de 2024 y la mayor parte de 2025. **Canon revisado (julio 2026):** alta médica en junio de 2025 y regreso a la competencia en octubre de 2025, en las clásicas italianas de otoño (antes: regreso en la segunda mitad de 2026).
 
 **Estructura sugerida de capítulos 2024 (~28-35):**
 - Vida cotidiana / negocios / preparación: 6-8
@@ -72,16 +72,15 @@ Tres vertientes principales:
 
 ---
 
-## BLOQUE 3 — 2025: EL AÑO OSCURO
+## BLOQUE 3 — 2025: EL AÑO OSCURO Y EL REGRESO
 
-Año sin competir. Ejes:
+Enero-junio sin competir; alta médica en junio; regreso a la competencia en octubre. Ejes:
 - Recuperación física dura y con reveses — tareas antes automáticas ahora son difíciles.
 - La lucha es interior: contra el propio cuerpo y la propia cabeza, sin rival externo.
 - La relación con Mariana se profundiza en este vacío.
 - Mayor protagonismo del podcast *Aprender a Matar* (episodios más introspectivos, grabados desde la convalecencia) y de la Fundación Hernando Reyes / otros negocios.
 - Nunca deja de entrenar del todo, aunque al principio sea simbólico.
-
-**Estructura sugerida de capítulos 2025 (~22-30):** sin bloques de carrera que lo dividan; capítulos centrados en recuperación, cabeza, Mariana, podcast, fundación, entrenamiento.
+- **Segunda mitad del año (canon revisado):** alta médica en junio, preparación desde julio (con la despedida de Clarke, Colombo y Rensen), presión de patrocinadores tras año y medio sin victorias del equipo, anuncio público del regreso, primeras carreras en octubre y **el Lombardia del regreso** (3.º detrás de Pogačar y Evenepoel).
 
 ---
 
@@ -180,13 +179,13 @@ Año sin competir. Ejes:
 | 258 | El Alto de Minas | Abril, primera salida real en bicicleta con Hernando |
 | 259 | Lo que llena el espacio | Mayo, podcast nuevo, gira por la Fundación, Mariana se muda a Laureles |
 | 260 | La noche del Tour | 29 junio, crisis más oscura del año (Tour 2025 arranca sin él) |
-| 261 | Un año después | 20 julio, aniversario del accidente, paz en la piedra del abuelo |
-| 262 | Los primeros vatios | Agosto-sept., alta médica completa, primer entrenamiento estructurado |
-| 263 | El susto de octubre | Contractura (no la vértebra) — ajuste a ritmo más conservador |
-| 264 | El cierre de un año sin carreras | 20 dic. 2025, reunión anual sin resultados deportivos, Fundación creció más que nunca. **20 nov. 2025: control médico confirma 95% de recuperación muscular — la vértebra ya consolidada del todo. Rusconi propone y Santi decide mudarse a Girona, cerca del equipo, hasta el regreso a competencia. Mariana decide acompañarlo. Anunciado a Duarte/Patiño en la reunión del 20 dic.; última Navidad en Laureles antes del viaje.** |
-| 265 | El reinado incompleto | Enero 2026. Exposición de Mariana en Bogotá, despedidas en Medellín (gimnasio de San José, Rodrigo), última noche en el balcón de Laureles, y mudanza a Girona con Hernando y Carmen acompañándolos la primera semana para instalarlos. Cierra el arco completo ya radicados en Girona — noticia de la "Pista Hernando Reyes" llega por teléfono allí, última foto familiar en la terraza nueva, despedida de Hernando/Carmen en el aeropuerto. Plan de regreso a mediados de 2026, entrenando ya junto al equipo. |
+| 261 | Un año después | 20 julio, aniversario del accidente, paz en la piedra del abuelo. **[Retocado, canon revisado]** El aniversario lo encuentra ya con el alta médica de junio encima — no en el hueco, sino en el umbral. |
+| 262 | Los que se quedaron | **[Reescrito, canon revisado]** Julio-septiembre. La visita de Clarke, Colombo y Rensen cuando Santi arranca la preparación: pospusieron el retiro cuando el Tourmalet lo dejó en el hospital, corrieron 2024-2025 de fondo esperándolo, y se lo dicen en persona — este es su último año; su última carrera será el Lombardia del regreso. Callback explícito al "hoy nadie nos vio" del cap. 120 (Tour 2020): Santi confiesa que aquella noche lo escuchó desde adelante del bus y nunca dijo nada. Además: preparación estructurada con Rusconi, la presión de los patrocinadores (año y medio del equipo sin ganar; renovaciones 2026 congeladas a la espera de una fecha), y el anuncio público del regreso para octubre — la bomba mediática. |
+| 263 | El regreso | **[Reemplazado, canon revisado]** Primeras carreras: Giro dell'Emilia y Tre Valli Varesine (octubre 2025). El pelotón viéndolo volver, la prensa italiana montando el relato del reencuentro de los titanes. Sin presión de resultado — la historia es volver. |
+| 264 | Il Lombardia | **[Reemplazado, canon revisado]** 11 de octubre de 2025. La carrera del regreso y la última de Clarke, Colombo y Rensen. Pogačar 1.º (3.ª Lombardia in-novel), **Evenepoel 2.º**, **Santi 3.º** — un podio que el mundo lee como resurrección. La prensa vende "el reencuentro de los dos titanes" e ignora a Remco, campeón de todo, relegado a nota al pie en su propio podio (semilla del Tour 2026; Remco además sabe lo que es volver de una lesión grave — pelvis rota en este mismo Lombardia, 2020). Cierre: la conversación Santi–Pogačar, la declaración de guerra del Tour 2026. |
+| 265 | El reinado incompleto | **[Retocado y ampliado, canon revisado]** Noviembre 2025 – enero 2026. Reunión anual del 20 dic. reescrita: ya no "el año sin competir" sino el año del regreso a medias — números en recuperación, renovaciones firmadas pero condicionadas a resultados 2026, y la contrapartida: la financiación del **superequipo** (fichajes de Ganna, Kuss, Buitrago, Tiberi, Soler, Christen — ver `MAPA_Capitulos_Arco_V.md`). Última Navidad en Laureles (la bicicleta guardada en el garaje como semilla). Enero 2026: exposición de Mariana en Bogotá, despedidas en Medellín, mudanza a Girona con Hernando y Carmen instalándolos la primera semana, "Pista Hernando Reyes", despedida en el aeropuerto. El objetivo declarado ya no es difuso: es el Tour. |
 
-**Cierre del Arco IV:** Santi termina 2025 con la vértebra completamente sanada (95% confirmado en noviembre), una relación consolidada con Mariana, la Fundación en su mejor momento (11 municipios), y la decisión — tomada en noviembre de 2025 — de instalarse en Girona junto al equipo para encarar de cerca la última etapa de preparación hacia el regreso a mediados de 2026. El volumen 4 cierra con Santi y Mariana ya viviendo en Girona, sin fecha de resultados, solo de reaparición en carrera. El título "El Reinado Incompleto" queda explícitamente nombrado dentro de la propia narración en el cap. 265.
+**Cierre del Arco IV (canon revisado, julio 2026):** Santi termina 2025 con el regreso ya consumado — alta médica en junio, despedida de los tres veteranos en julio, primeras carreras en octubre y el podio del Lombardia (3.º detrás de Pogačar y Evenepoel) como prueba pública de que volvió. La relación con Mariana consolidada, la Fundación en su mejor momento (11 municipios), las renovaciones de patrocinio firmadas pero condicionadas a resultados en 2026 — con el superequipo como contrapartida — y la mudanza a Girona en enero de 2026. El volumen 4 cierra con la guerra del Tour 2026 ya declarada en Como. El título "El Reinado Incompleto" queda explícitamente nombrado dentro de la propia narración en el cap. 265.
 
 ---
 
@@ -196,8 +195,8 @@ Año sin competir. Ejes:
 |-----|-----|--------|-----------|
 | 229_especial_1 | 26 | El año que apostamos todo | Grabado 5 ago. 2023, post-Tour. Santi reflexiona sobre la apuesta de enero, el túnel de viento, la Flèche, la etapa de Pinot. Se convierte en el episodio más escuchado hasta ese momento. |
 | 259_especial_1 | 54 | Marco Hidalgo — "El año sin carreras" Ep. 1 | Grabado 8 may. 2025. Primer episodio de la serie sobre recuperación de lesiones graves en otros deportes (expiloto de F1). |
-| 264_especial_1 | 58 | La noche más oscura | Grabado 3 jul. 2025, publicado 28 nov. 2025. La crisis del 29 de junio, contada sin editar. El episodio más compartido de la serie. |
-| 265_especial_1 | 60 | El Reinado Incompleto, la historia completa | Grabado 9 ene. 2026. **Episodio de cierre, ~5000 palabras.** Casi 3 horas, con Hernando, Carmen y Mariana presentes e interviniendo. Santi revela, por primera vez, las partes que nunca contó: el llanto en el túnel de viento, el ataque de pánico en el Tour 2023, el favor deliberado a Pinot, el resentimiento hacia Pogačar/Vingegaard durante 2025, el pensamiento más oscuro de la noche en Tarbes. Mensajes de voz de Rusconi, Koen, Restrepo y Rodrigo. Cierra con mensajes de Pogačar y Vingegaard tras escucharlo. |
+| 264_especial_1 | 58 | La noche más oscura | Grabado 3 jul. 2025, publicado 28 nov. 2025. La crisis del 29 de junio, contada sin editar. **[Canon revisado]** Se publica *después* del regreso y del podio del Lombardia — el mundo escucha la noche más oscura ya sabiendo cómo termina esa historia. El episodio más compartido de la serie. |
+| 265_especial_1 | 60 | El Reinado Incompleto, la historia completa | Grabado 9 ene. 2026. **Episodio de cierre, ~5000 palabras.** Casi 3 horas, con Hernando, Carmen y Mariana presentes e interviniendo. Santi revela, por primera vez, las partes que nunca contó: el llanto en el túnel de viento, el ataque de pánico en el Tour 2023, el favor deliberado a Pinot, el resentimiento hacia Pogačar/Vingegaard durante 2025, el pensamiento más oscuro de la noche en Tarbes. Mensajes de voz de Rusconi, Koen, Restrepo y Rodrigo. Cierra con mensajes de Pogačar y Vingegaard tras escucharlo. **[Retocar, canon revisado]** El repaso debe incluir el regreso de octubre y el Lombardia (la despedida de los veteranos, el podio, la conversación con Pogačar). |
 
 ---
 
@@ -207,10 +206,13 @@ Año sin competir. Ejes:
 - [x] Detalle de la escena de la falla mecánica en la Flèche Wallonne 2023 — cap. 210.
 - [x] Momentos específicos de 2025 — cubiertos en caps. 256-264.
 - [ ] Cómo se reescribe la sección del Arco IV en `BIBLIA_PorLaGloria.md` (la actual quedó obsoleta, sigue pendiente).
-- [ ] Ajuste del Arco V: el regreso de Santi ocurre a mediados de 2026, no en 2026 completo como sugería el plan original — replantear calendario de victorias de Arco V (la "segunda victoria en el Tour 2026" probablemente se mueve a 2027).
-- [ ] Decidir el nivel de Santi en su primera carrera de regreso (mediados de 2026): ¿competitivo de entrada o claramente disminuido?
-- [ ] Revisar si Ferretti, Rusconi, Koen y Luca Arnheim continúan con el mismo rol en el Arco V o si hay cambios de equipo tras el ciclo de contrato 2023-2026.
+- [x] Ajuste del Arco V — **resuelto (julio 2026):** regreso adelantado a octubre de 2025, Tour 2026 como eje del Arco V. Ver `MAPA_Capitulos_Arco_V.md` (reescrito).
+- [x] Nivel de Santi en su primera carrera de regreso — **resuelto:** competitivo pero no ganador: 3.º en el Lombardia 2025 detrás de Pogačar y Evenepoel.
+- [ ] Revisar si Ferretti, Rusconi y Koen continúan con el mismo rol en el Arco V tras el ciclo de contrato 2023-2026 (Luca Arnheim confirmado: capitán de ruta del superequipo 2026).
+- [x] Reescritura de capítulos por el canon revisado — **completada (2026-07-14):** 261 (retoque: alta médica 7 de julio), 262 (reescrito: "Los que se quedaron"), 263 (reemplazado: "El regreso", Emilia 15.º y Tre Valli 6.º), 264 (reemplazado: "Il Lombardia", ~5000 palabras — rueda de prensa previa, narración RAI de Bettini/Cassani, rueda de prensa final, bus del equipo y conversación del lago con Pogačar), 264_especial_1 y 265_especial_1 (retocados), 265 (ampliado: absorbe nov-dic 2025 — fichajes del superequipo, reunión anual con renovaciones condicionadas, Navidad y cápsula del tiempo para la víspera del Tour).
 
 ---
 
 *Documento creado: 2026-06-18. Arco IV completado: caps. 201-265 + especial 227_especial_1 (Pinot). Total: 65 capítulos + 1 especial.*
+
+*Revisado: 2026-07-14 — **canon del cierre revisado**: la recuperación se acorta (alta médica junio 2025, regreso en las clásicas italianas de octubre 2025, Lombardia 3.º), Clarke/Colombo/Rensen se retiran en el Lombardia 2025 con despedida presencial (retcon), presión de patrocinadores y superequipo 2026 incorporados. Caps. 261-265 y 265_especial_1 marcados para reescritura/retoque. El Arco V fue replanificado desde cero (Tour 2026 como eje) y sus caps. 266-279 del plan viejo eliminados.*

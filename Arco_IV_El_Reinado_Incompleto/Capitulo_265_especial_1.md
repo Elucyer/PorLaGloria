@@ -214,11 +214,11 @@ Rusconi, que también había mandado un mensaje de voz para este episodio especi
 
 — Hablemos de 2025 —dijo Julián, dándole un momento a Santi para recomponerse—. Ya contamos varios momentos específicos en otros episodios. Pero quiero preguntarte algo que nunca preguntamos directamente: ¿hubo algún momento, además de la noche del Tour de junio, en que pensaste seriamente en dejar el ciclismo para siempre?
 
-— Sí, uno más, que nunca conté —admitió Santi—. Fue en octubre, durante el susto de la contractura muscular. Mientras esperábamos los resultados de la resonancia, en esas horas de incertidumbre, pensé: "si esto es la vértebra otra vez, no voy a volver a intentarlo. No tengo la fuerza para empezar de cero, por tercera vez."
+— Sí, uno más, que nunca conté, y es más reciente de lo que la gente imagina —admitió Santi—. Fue en Bolonia, en el Giro dell'Emilia. La primera bajada del San Luca. Se me abrieron cinco metros con la rueda de adelante, las manos agarrotadas en el manillar, y durante tres curvas pensé, con una claridad horrible: "si no puedo cerrar este hueco, se acabó. No voy a pasarme la vida corriendo con miedo. Prefiero no correr."
 
-— ¿Qué cambió, cuando supiste que era solo una contractura?
+— ¿Y qué pasó en la cuarta curva?
 
-— Sentí vergüenza de haber pensado en rendirme tan rápido —dijo Santi—. Pero también entendí algo importante: que esa idea de rendirme no era una debilidad permanente. Era una respuesta humana, completamente normal, frente a la posibilidad de otro golpe devastador. No me definía. Solo reflejaba cuánto miedo todavía cargaba, incluso después de tanto progreso.
+— Pensé en la voz del psicólogo, contando la caída en orden. En la quinta pensé en Clarke prendiéndome el dorsal esa mañana. Y en la sexta dejé de pensar, y las manos aflojaron solas, y el hueco se cerró —dijo Santi—. Después entendí que ese pensamiento de dejarlo no era una debilidad permanente. Era una respuesta humana frente a la posibilidad de otro golpe. No me definía. Solo medía cuánto miedo todavía cargaba — y que el miedo, esa vez, perdió por tres curvas.
 
 ---
 
@@ -278,9 +278,21 @@ Julián también reprodujo un segundo mensaje, esta vez de Rodrigo Torres, graba
 
 ---
 
-— Quiero preguntarte algo sobre Pogačar y Vingegaard, para cerrar ese capítulo de la conversación —dijo Julián—. Ya hablamos del resentimiento que sentiste. ¿Cómo está esa relación ahora, en enero de 2026?
+— Quiero que hablemos de octubre —dijo Julián—. El regreso. Emilia, Tre Valli, el podio de Como. Ya lo cubrió toda la prensa del mundo. ¿Qué es lo que la prensa del mundo no vio?
 
-— Mejor que nunca, en realidad —dijo Santi—. El resentimiento se disolvió, poco a poco, a medida que entendí que no tenía nada que ver con ellos como personas. Pogačar me escribe seguido, sin presionar nunca, solo preguntando cómo va el proceso. Vingegaard es más reservado, pero también mandó un mensaje después del aniversario del accidente, algo simple pero genuino.
+— La prensa no vio lo más importante de ese mes, y lo digo sin ninguna ironía —dijo Santi—. Tres compañeros míos corrieron su última carrera ese sábado. Clarke, Colombo y Rensen. Tenían el retiro decidido desde hacía dos años y se quedaron cuando me rompí la espalda, en silencio, para no colgar la bicicleta mientras yo estuviera en el suelo. Me lo vinieron a decir en julio, a Medellín, en un café de carretera en el alto de Las Palmas. Esa conversación, en una mesa plástica, con cuatro cafés, fue más importante para mi regreso que cualquier vatio que haya movido en el entrenamiento.
+
+— ¿Qué te dijeron?
+
+— La parte que se puede contar ya la conté en la rueda de prensa de Bérgamo —dijo Santi—. La otra parte es de ellos. Pero te digo lo que aprendí: en este deporte se habla siempre de los que ganan, y a veces de los que pierden. Casi nunca de los que sostienen. Yo fui campeón del Tour sostenido por hombres que en veinte años tuvieron medio minuto de televisión. Si este podcast sirve para algo, que sirva para que quede grabado eso.
+
+— ¿Y la conversación con Pogačar, en el lago, después del podio? —preguntó Julián—. Las fotos de lejos existen. Nadie sabe qué se dijeron.
+
+— Y así se va a quedar —dijo Santi, con la primera sonrisa de esa parte de la grabación—. Lo único que puedo decir es que los dos firmamos algo esa noche, sin papel. Se va a leer completo en julio.
+
+— Ya que llegamos ahí: ¿cómo está la relación con ellos ahora, en enero de 2026?
+
+— Mejor que nunca, en realidad —dijo Santi—. El resentimiento del que hablamos se disolvió a medida que entendí que no tenía nada que ver con ellos como personas. Pogačar me escribe seguido — aunque ya no pregunta cómo voy: pregunta cuándo llego. Vingegaard es más reservado, pero también mandó un mensaje después del aniversario del accidente, algo simple pero genuino.
 
 — ¿Qué te dijo Vingegaard?
 
@@ -302,13 +314,13 @@ Julián también reprodujo un segundo mensaje, esta vez de Rodrigo Torres, graba
 
 ---
 
-— Estamos llegando al final de esta conversación —dijo Julián—. Quiero cerrar con algo distinto. ¿Qué es lo que más miedo te da, de cara al regreso de este año?
+— Estamos llegando al final de esta conversación —dijo Julián—. Quiero cerrar con algo distinto. Ya volviste. Como quedó atrás, el mundo entero vio el Civiglio. Ahora todo el calendario apunta a una sola palabra. ¿Qué es lo que más miedo te da, de cara a julio?
 
-— Que el regreso no alcance, después de tanto tiempo de espera —dijo Santi, con una honestidad final que resumía buena parte de la conversación—. Que vuelva a competir, a mediados de este año, y descubra que el cuerpo, o la cabeza, simplemente no están donde necesito que estén. Eso me da más miedo que cualquier otra cosa que hayamos hablado hoy.
+— Que el cuerpo llegue al noventa y julio me exija el cien —dijo Santi, con una honestidad final que resumía buena parte de la conversación—. En Como nadie me pedía nada, y por eso salió lo que salió. En julio va a ser lo contrario: el equipo nuevo, los contratos, los patrocinadores, mi país entero, y tres rivales en el mejor momento de sus carreras. Que toda esa gente ponga todo eso en mis piernas, y que a las piernas les falte un cinco por ciento — eso me da más miedo que cualquier otra cosa que hayamos hablado hoy.
 
 — ¿Y qué te da esperanza, frente a ese miedo?
 
-— Todo lo que pasó este último año y medio —dijo Santi, mirando alrededor de la sala, hacia Hernando, Carmen, Mariana—. Si pude sobrevivir a esto, con esta gente alrededor, puedo sobrevivir también a un regreso que no salga perfecto. La diferencia, ahora, es que ya no necesito que el resultado sea perfecto para sentir que mi vida tiene sentido.
+— Todo lo que pasó este último año y medio —dijo Santi, mirando alrededor de la sala, hacia Hernando, Carmen, Mariana—. Si pude sobrevivir a esto, con esta gente alrededor, puedo sobrevivir también a un julio que no salga perfecto. La diferencia, ahora, es que ya no necesito que el resultado sea perfecto para sentir que mi vida tiene sentido. Pero que nadie confunda eso con conformismo: voy a ir a ganar el Tour. Solo que, si no lo gano, ya sé que hay una mesa en Laureles donde eso no cambia nada.
 
 ---
 
@@ -328,7 +340,7 @@ La sala se quedó en silencio, un silencio cargado de toda la emoción acumulada
 
 *Santi, en una publicación personal acompañando el lanzamiento del episodio, escribió simplemente: "Esta es la historia completa, sin editar. El reinado fue incompleto. La vida, hasta ahora, no lo fue."*
 
-*Pogačar, al escuchar el episodio completo, le mandó un último mensaje a Santi esa misma noche: "Escuché todo. No tenía idea de la mitad de lo que contaste. Te espero en la carretera, hermano, sin ninguna prisa, el tiempo que haga falta."*
+*Pogačar, al escuchar el episodio completo, le mandó un último mensaje a Santi esa misma noche: "Escuché todo. No tenía idea de la mitad de lo que contaste. Ahora entiendo mejor lo que vi en el Civiglio. Lo del lago sigue firmado. Julio, hermano."*
 
 *Vingegaard, más breve como siempre, escribió simplemente: "Respeto total."*
 

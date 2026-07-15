@@ -1,34 +1,92 @@
 # POR LA GLORIA
 ## Arco IV — El Reinado Incompleto
-### Capítulo 265 — El reinado incompleto (enero de 2026)
+### Capítulo 265 — El reinado incompleto (noviembre de 2025 - enero de 2026)
 
 ---
 
-*Medellín y Girona. Enero de dos mil veintiséis.*
+*Medellín y Girona. Noviembre de dos mil veinticinco - enero de dos mil veintiséis.*
 
 ---
 
-El primero de enero, después de la celebración de Año Nuevo en casa de Laureles —una cena más tranquila que la de Navidad, solo la familia inmediata, con Mariana ayudando a Carmen a preparar el lechón que se había convertido en tradición desde que Santi tenía memoria—, Santi se despertó con una sensación que no había sentido en ningún primero de enero anterior de su vida adulta: la ausencia total de un calendario de competencia esperándolo.
+El recorrido del Tour de Francia 2026 se presentó en París el último jueves de octubre, en el Palacio de Congresos, con Santi siguiéndolo por streaming desde la sala de Laureles, y cuando el mapa de la tercera semana apareció en la pantalla gigante, la cámara de la organización hizo exactamente lo que todo el mundo sabía que iba a hacer: buscar en primera fila la cara de Pogačar. La etapa diecinueve subía y bajaba el Col du Tourmalet.
 
-— Te quedaste mirando el calendario de la nevera como si esperaras que apareciera algo escrito ahí —le dijo Mariana, mientras desayunaban juntos en la cocina, con la casa todavía en silencio después de la fiesta de la noche anterior.
+*Pogačar: ¿Viste?*
 
-— Es la primera vez en mi vida adulta que enero no me dice nada —admitió Santi—. Y es raro, todavía, no tener ahí una fecha de Giro o de Tour esperando. Pero es un raro distinto al de hace un año. Esta misma sensación, en enero pasado, me generaba ansiedad. Ahora, simplemente, genera curiosidad por lo que viene.
+*Santi: Vi.*
+
+*Pogačar: Te dije. Los fantasmas se matan donde nacieron.*
+
+Rusconi llamó al día siguiente, y no habló del Tourmalet ni un segundo, porque Rusconi no gastaba palabras en simbolismo.
+
+— Un Tour no se construye por videollamada —dijo—. Lo que viene ahora no es rehabilitación: es la preparación más importante de tu carrera. Te necesito en Girona. No de visita. Instalado, hasta que esto termine, de una forma o de la otra.
+
+Esa noche, en el patio bajo el níspero, Santi se lo planteó a Mariana sin rodeos, y Mariana lo interrumpió antes de que terminara de armar el discurso que traía preparado.
+
+— Ya lo decidí, en realidad, hace meses —dijo—. Sabía que este momento iba a llegar desde que te vi la cara en Como. La revista me puede contratar desde cualquier lugar de Europa, y la exposición de Bogotá la inauguramos antes de irnos. —Se encogió de hombros, como quien resuelve un trámite—. Lo que construí este año no fue una ciudad. Fue una vida con vos. Esa vida se puede mudar.
+
+---
+
+Los fichajes se anunciaron en la primera semana de diciembre, uno por día, con una puesta en escena que llevaba la firma inconfundible de Duarte, y para el viernes la prensa especializada ya había encontrado el nombre que iba a usar todo 2026: *el superequipo*.
+
+Filippo Ganna desde Ineos — y L'Équipe desenterró en veinticuatro horas la vieja frase interna que alguien alguna vez filtró, "el modelo Ganna", el nombre con que Rusconi medía desde hacía años todo lo que Santi no era contra el reloj. "No pudieron fabricarlo", tituló el diario francés, "así que lo compraron." Sepp Kuss desde el equipo de Vingegaard, y esa contratación nadie la leyó como un fichaje: se leyó, en todos los idiomas del pelotón, como una declaración de guerra. Santiago Buitrago, el mejor escalador colombiano de la generación siguiente, que lloró en la conferencia de prensa al decir que de niño había ido a ver a Santi al Alto de Minas. Antonio Tiberi para las generales que Santi no iba a correr. Marc Soler desde el propio equipo de Pogačar. Jan Christen, veintiún años, el futuro. Y un octavo anuncio que no salió en L'Équipe pero sí en la primera página de El Colombiano: Andrés Cano, veinte años, escalador de Yarumal, el primer corredor formado en el programa de la Fundación Hernando Reyes que llegaba al WorldTour.
+
+— ¿Vos sabías? —le preguntó Santi a Ferretti, por teléfono, la noche del anuncio de Cano.
+
+— Sabía desde agosto —dijo Ferretti—. Restrepo me mandó los datos del muchacho hace un año y medio. No te lo dijimos porque no queríamos que la noticia dependiera de vos: el muchacho firmó por sus vatios, no por tu apellido. Pero te voy a confesar la parte sentimental: cuando Duarte me preguntó si el proyecto nuevo tenía sentido, yo pensé en eso. En que la fundación de tu padre ya produce ciclistas. Un equipo así no se abandona. Se financia.
+
+La contrapartida de todo aquello quedó firmada en los mismos contratos: las renovaciones de patrocinio, congeladas durante un año y medio, se cerraron todas entre octubre y diciembre — renovadas, ampliadas, y condicionadas. Bonos atados a resultados de 2026, cláusulas de revisión en cada Grand Tour, y una fecha subrayada en todos los anexos: julio.
+
+---
+
+La reunión anual del veinte de diciembre, con Duarte, Patiño y Salcedo, fue la primera en dos años con resultados deportivos que repasar, y Duarte abrió la carpeta con una sonrisa que no le cabía en la videollamada.
+
+— Quince meses de silencio y facturamos más en el último trimestre que en todo 2024 —dijo Salcedo, desde la pantalla—. Tres millones seiscientos en el año, casi todo firmado después de Como. Un tercer puesto que valió más que muchas victorias.
+
+— ¿Y la Fundación? —preguntó Santi, como cada año, antes de cualquier otra cifra.
+
+— Su mejor año, otra vez —dijo Salcedo—. Once municipios, ochocientos mil euros recibidos, y desde la firma de Cano, una lista de espera de trescientos niños. Vas a tener que construir más gimnasios.
+
+— Hay una sola cosa que tenés que entender de todo este informe —agregó Duarte, ya sin la sonrisa, porque Duarte siempre guardaba una frase seria para el final—. Todo lo que firmamos este trimestre está escrito con la misma tinta: 2026. Los patrocinadores no compraron la historia del sobreviviente. Esa ya la tienen gratis. Compraron el Tour. Que no te pese, pero que no se te olvide.
+
+— No me pesa —dijo Santi—. Yo compré lo mismo.
+
+---
+
+La Nochebuena en Laureles —natilla, buñuelos, la misa de gallo, Mariana aprendiendo de Carmen la receta exacta que la familia se pasaba hacía generaciones— fue la última en esa casa por un buen tiempo, y todos lo sabían sin decirlo en cada frase. Esa noche, bajo las luces que Hernando había colgado esa misma tarde, la conversación se fue sola hacia las navidades viejas, y Hernando contó algo que Santi no sabía: que la primera bicicleta de verdad, la de los siete años, seguía guardada en el garaje.
+
+— ¿Por qué la guardaste? —preguntó Santi.
+
+— Porque algún día quiero que tu hijo, si llegás a tenerlo, aprenda a andar en esa misma bicicleta —dijo Hernando, con una ternura que tomó a todos por sorpresa.
+
+Mariana y Santi se miraron, sin decir nada, con una sonrisa que comunicaba más que cualquier palabra.
+
+— Esa bicicleta se queda acá —dijo Santi, después de un momento—. Aunque nosotros nos vayamos a Girona, este garaje sigue siendo la casa de esa bicicleta.
+
+En la cena de fin de año, más grande que nunca —Rodrigo, Julián, Restrepo, los padres de Mariana llegados desde Bucaramanga—, Julián propuso algo que nadie había planeado: grabar, sin propósito de publicarlo, un mensaje corto de cada persona en la mesa, dirigido a Santi. Una cápsula del tiempo.
+
+— ¿Y esto cuándo lo escucho? —preguntó Santi.
+
+— La víspera del Tour —dijo Julián—. La noche antes de la salida, en julio, donde sea que estés. Ese día vas a necesitar acordarte de esta mesa.
+
+---
+
+El primero de enero, Santi se despertó con una sensación que no había tenido en dos años: un calendario de competencia esperándolo en la nevera, escrito con el marcador rojo de Rusconi, con una palabra subrayada dos veces al final de la lista.
+
+— Te quedaste mirando el calendario como si fuera la primera vez que ves uno —le dijo Mariana, mientras desayunaban en la cocina todavía en silencio después de la fiesta.
+
+— El enero pasado, esta nevera estaba vacía —dijo Santi—. Y yo no sabía si iba a volver a llenarse. Ahora dice "Tour" con marcador rojo, y lo raro es que no me da miedo. Me da hambre.
 
 — Esa es una diferencia enorme —dijo Mariana, sonriendo—. Y se nota, en cómo hablás de esto.
 
 ---
 
-La reunión de planificación de 2026, distinta a cualquier otra de los últimos años, no se centró en un calendario de carreras ni en proyecciones de CdA, sino en algo mucho más simple: confirmar, con Rusconi por videollamada desde Ginebra y Hernando escuchando desde el sillón de siempre, que el plan de las próximas semanas seguía siendo el correcto después del susto de octubre.
+La reunión de planificación de 2026, con Rusconi por videollamada desde Ginebra y Hernando escuchando desde el sillón de siempre, fue la primera en dos años que se pareció a las de antes: un calendario real sobre la mesa, carrera por carrera, construido entero hacia atrás desde una sola fecha.
 
-— Enero y febrero, fortalecimiento muscular específico —repasó Rusconi—. Marzo y abril, incremento gradual de volumen. Mayo, primeras pruebas de potencia. Si todo eso progresa sin sobresaltos, mediados de año, regreso a competencia.
+— Todo se lee desde julio —dijo Rusconi—. Enero y febrero, pretemporada completa con el equipo nuevo: hay que aprender a correr con Ganna y con Kuss antes de necesitarlos. Primavera de carreras por etapas, sin clásicas de un día todavía: no voy a arriesgar quince meses de trabajo en una caída de Roubaix. Dauphiné en junio. Y el Tour. Del setenta por ciento de Como al cien de julio hay ocho meses. Es justo, pero alcanza.
 
-— Y todo eso, esta vez, con vos ahí mismo, en Girona —agregó Santi—. Mariana y yo viajamos en dos semanas.
+— ¿Y si no alcanza? —preguntó Hernando, desde el sillón, porque alguien tenía que preguntarlo.
 
-— Eso va a cambiar todo el ritmo del proceso, en el mejor sentido —dijo Rusconi—. Hay cosas que ninguna videollamada puede reemplazar. Va a ser bueno tenerte cerca otra vez, no solo en pantalla.
-
-— ¿Alguna carrera específica en mente? —preguntó Santi.
-
-— Todavía es pronto para eso —dijo Rusconi—. Vamos a decidirlo cuando tengamos los números de mayo. Pero probablemente algo pequeño, de bajo riesgo, antes de pensar en cualquier cosa más grande.
+— Alcanza —dijo Rusconi—. En Como corrió tres carreras con la base de un convaleciente y le quitó un minuto al grupo de los mejores del mundo en dos subidas. Yo ya no discuto con lo que veo. Discuto solo con los plazos, y los plazos dan.
 
 Mariana, presente en la sala durante esa llamada, escuchando con la misma atención que había desarrollado durante todo el año anterior, hizo una pregunta que ni Rusconi ni Hernando habían considerado plantear directamente.
 
@@ -42,7 +100,7 @@ Rusconi se quedó callado un momento, considerando la pregunta con una seriedad 
 
 Santi escuchó el plan con una calma que, dos años atrás, hubiera sido impensable para él —la calma de alguien que había aprendido, durante el año más oscuro de su vida, que el control real nunca estuvo en los resultados, sino en cómo se enfrentaba cada día, cada sesión, cada pequeño paso del camino.
 
-Pensó, mientras escuchaba a Rusconi repasar los detalles técnicos, en todo lo que ese arco de su vida —el que había empezado en enero de 2023 con la apuesta más arriesgada de su carrera, y que cerraba ahora, tres años después, con una vértebra sanada y un calendario todavía incierto— le había enseñado: que 2023 había sido el año en que ganó todo lo que se propuso ganar en una bicicleta, apostando todo a un solo objetivo y triunfando de la forma más completa posible. Que 2024 había sido el año en que descubrió, de la forma más dura, que ningún plan, ninguna preparación, podía protegerlo completamente de lo impredecible. Y que 2025, el año sin ninguna carrera, sin ningún resultado que mostrarle al mundo, había sido, paradójicamente, el año donde más había crecido como persona, más allá de cualquier cosa que pudiera medirse en un cuaderno de splits.
+Pensó, mientras escuchaba a Rusconi repasar los detalles técnicos, en todo lo que ese arco de su vida —el que había empezado en enero de 2023 con la apuesta más arriesgada de su carrera, y que cerraba ahora, tres años después, con una vértebra sanada y un calendario todavía incierto— le había enseñado: que 2023 había sido el año en que ganó todo lo que se propuso ganar en una bicicleta, apostando todo a un solo objetivo y triunfando de la forma más completa posible. Que 2024 había sido el año en que descubrió, de la forma más dura, que ningún plan, ninguna preparación, podía protegerlo completamente de lo impredecible. Y que 2025 —el año de una sola semana de carreras, la última— había sido, paradójicamente, el año donde más había crecido como persona: nueve meses de reconstrucción invisible y diez días de octubre que le habían devuelto, en un podio de Como, algo más grande que cualquier cosa que pudiera medirse en un cuaderno de splits.
 
 ---
 
@@ -50,7 +108,7 @@ Esa tarde, después de la reunión, caminó hasta el balcón donde había tenido
 
 — ¿En qué pensás? —preguntó Santi, sentándose junto a él.
 
-— En todo lo que pasó en estos tres años —dijo Hernando—. Empezamos 2023 con una apuesta que parecía una locura, y terminó siendo la mejor temporada de tu carrera. Después vino 2024, con la mejor crono de tu vida y la peor caída. Y ahora cerramos 2025, un año sin una sola carrera, que de alguna forma se convirtió en uno de los años más importantes de todos.
+— En todo lo que pasó en estos tres años —dijo Hernando—. Empezamos 2023 con una apuesta que parecía una locura, y terminó siendo la mejor temporada de tu carrera. Después vino 2024, con la mejor crono de tu vida y la peor caída. Y ahora cerramos 2025, un año que tuvo una sola semana de carreras — y qué semana. De alguna forma se convirtió en uno de los años más importantes de todos.
 
 — "El reinado incompleto" —dijo Santi, repitiendo una frase que había leído en algún artículo deportivo sobre esos tres años, sin saber bien por qué se le había quedado grabada.
 
@@ -110,19 +168,19 @@ Santi, observando la escena, sintió una emoción particular viendo a don Aureli
 
 ---
 
-Pogačar, que seguía la historia de la recuperación de Santi a través de las redes sociales y de algún mensaje ocasional, le escribió esa misma semana, después de ver, por casualidad, una publicación sobre la exposición de Mariana.
+Pogačar le escribió esa misma semana, después de ver, por casualidad, una publicación sobre la exposición de Mariana.
 
-*Pogačar: Vi la foto de la exposición de tu novia. Es hermosa. ¿Cómo va todo, en general?*
+*Pogačar: Vi las fotos de la exposición. Son hermosas. Decile a Mariana que la del café de Las Palmas, la de las cuatro tazas, es la mejor foto de ciclismo del año, y no sale ni una bicicleta.*
 
-*Santi: Muy bien. Empezamos el año con buena energía. Rusconi habla de mediados de año para el regreso.*
+*Santi: Se lo digo. ¿Ya empezaste a entrenar?*
 
-*Pogačar: Eso es una gran noticia. ¿Alguna carrera en mente para esa primera vuelta?*
+*Pogačar: Desde el 2 de enero. Vos también, me contaron. Girona, equipo nuevo, el modelo Ganna en persona. Están armando un ejército.*
 
-*Santi: Todavía no decidimos. Probablemente algo pequeño, sin presión.*
+*Santi: Dijiste que me querías al cien. Al cien no se llega solo.*
 
-*Pogačar: Cuando decidas, avisame. Quiero estar ahí, aunque sea solo para verte cruzar la meta otra vez, sin importar en qué posición.*
+*Pogačar: Bien. Muy bien. Nos vemos en julio, Santiago. Y en algún cartel de primavera, supongo.*
 
-Santi le mostró el intercambio a Mariana esa noche, conmovido, una vez más, por la solidez de las relaciones que el ciclismo, a pesar de toda su dureza competitiva, había logrado construir a lo largo de los años.
+Santi le mostró el intercambio a Mariana esa noche, y ella se quedó un momento mirando la primera línea, la de su foto, sin decir nada, con una sonrisa que no era por el elogio sino por algo más raro: la vida entera que cabía en ese teléfono, la guerra y el afecto conviviendo en el mismo hilo de mensajes.
 
 ---
 
@@ -134,7 +192,7 @@ El episodio, grabado en la sala de Laureles con Hernando, Carmen y Mariana prese
 
 — ¿Cuál fue el momento que más te marcó de todo este tiempo? —preguntó Julián, hacia el final de la grabación.
 
-Santi lo pensó largamente, repasando mentalmente la victoria en París, el Monte Grappa, la caída en el Tourmalet, la noche oscura de junio, el aniversario en la piedra del abuelo.
+Santi lo pensó largamente, repasando mentalmente la victoria en París, el Monte Grappa, la caída en el Tourmalet, la noche oscura de junio, el aniversario en la piedra del abuelo, el café de Las Palmas con los tres veteranos, el Civiglio y el podio de Como.
 
 — No fue ninguna victoria, ni siquiera ganar el Tour en 2023 —dijo Santi, finalmente—. Fue la noche que lloré en el kilómetro tres del Alto de Minas, volviendo a una bicicleta por primera vez después del accidente. Ese momento, más que cualquier trofeo, me dijo quién era yo de verdad, más allá de cualquier resultado.
 
@@ -170,9 +228,9 @@ Esa noche, después de que Julián se fuera, Hernando encontró un momento para 
 
 Esa noche, antes de dormir, Hernando abrió el cuaderno y escribió, con la letra que había documentado cada momento importante de la carrera de su hijo desde que tenía memoria, una línea que cerraba simbólicamente ese capítulo de tres años, todavía en Laureles, todavía sin haber cruzado el océano que los esperaba en pocos días:
 
-*Enero 2026. Cierre de "El Reinado Incompleto" — 2023, 2024, 2025. Un Tour ganado de la forma más completa posible. Una caída que cambió todo. Un año entero de recuperación que terminó siendo, contra todo pronóstico, uno de los más importantes de la vida de mi hijo. Mariana, parte de esta familia para siempre. Rodrigo, con su homenaje en la ferretería. Julián, documentando cada paso con honestidad. Restrepo y los niños de la fundación, multiplicando el impacto de todo esto más allá de lo que cualquier carrera podría haber logrado. La Fundación, más grande que nunca. Y ahora, enero de 2026, con la vértebra sanada y el corazón en paz, empieza el siguiente capítulo: el regreso, esta vez desde Girona.*
+*Enero 2026. Cierre de "El Reinado Incompleto" — 2023, 2024, 2025. Un Tour ganado de la forma más completa posible. Una caída que cambió todo. Un año de recuperación que terminó, contra todo pronóstico, en un podio en Como y en tres despedidas que no salieron en las portadas. Mariana, parte de esta familia para siempre. Rodrigo, con su homenaje en la ferretería. Julián, documentando cada paso con honestidad. Restrepo y los niños de la fundación — y ahora Cano, el primero del programa que llega al WorldTour, para que quede claro que nada de esto fue en vano. Y ahora, enero de 2026, con la vértebra sanada, el corazón en paz y un calendario en la nevera que termina en una palabra subrayada dos veces, empieza el siguiente capítulo: desde Girona, con el equipo más fuerte que se haya armado jamás alrededor de mi hijo.*
 
-*No sé todavía qué va a encontrar Santi cuando vuelva a competir, a mediados de este año. No sé si va a ser el mismo corredor de 2023, o algo distinto, construido sobre lo que sobrevivió. Pero sé que va a volver. Y eso, después de todo lo que pasó, es la única certeza que necesito para seguir anotando, página tras página, lo que venga, aunque ahora tenga que anotarlo desde más lejos.*
+*Ya no me pregunto si va a volver: volvió, lo vi con estos ojos en el Civiglio. La pregunta de este año es otra, y me da más miedo y más ganas al mismo tiempo: cuánto le va a alcanzar. Julio dirá. Yo, mientras tanto, sigo anotando, página tras página, aunque ahora tenga que anotarlo desde más lejos.*
 
 ---
 
@@ -180,7 +238,7 @@ Los días siguientes a la exposición de Bogotá transcurrieron a un ritmo que S
 
 En el gimnasio, el día antes del viaje, los cuarenta y ocho niños del programa organizaron una despedida improvisada, con el profesor Restrepo formando, una última vez antes del viaje, la misma guardia de honor que habían hecho después del Tour de 2023.
 
-— Esta vez no me voy por una victoria —les dijo Santi a los niños, agachándose para hablarles a la altura de los más pequeños—. Me voy para volver a competir de verdad. Cuando vuelva a una carrera, quiero que sepan que cada pedalada va a tener un poco de este gimnasio adentro.
+— Esta vez no me voy por una victoria. Me voy a buscar una —les dijo Santi a los niños, agachándose para hablarles a la altura de los más pequeños—. En julio, en la carrera más grande del mundo. Y quiero que sepan que cada pedalada va a tener un poco de este gimnasio adentro. Pregúntenle a Andrés Cano, que entrenó en pistas como esta, si no es verdad.
 
 El mismo niño que le había pedido que firmara la bicicleta de juguete después del Tour, ahora un poco más alto, se acercó con una pregunta directa.
 
@@ -218,7 +276,7 @@ Carmen, sirviendo el café por última vez en esa cocina antes del viaje, escuch
 
 ---
 
-El vuelo a Girona, con escala en Madrid, lo hicieron los cuatro juntos: Santi, Mariana, Hernando y Carmen, en lo que para los dos mayores era apenas su tercer viaje a Europa en toda la vida, después de Bilbao en 2023 y Tarbes en 2024, esta vez sin ninguna urgencia médica ni ceremonia oficial empujando el viaje, solo la decisión tranquila de empezar algo nuevo.
+El vuelo a Girona, con escala en Madrid, lo hicieron los cuatro juntos: Santi, Mariana, Hernando y Carmen, en lo que para los dos mayores era apenas su cuarto viaje a Europa en toda la vida, después de Bilbao en 2023, Tarbes en 2024 y el otoño italiano del regreso, esta vez sin ninguna urgencia médica ni carrera empujando el viaje, solo la decisión tranquila de empezar algo nuevo.
 
 El apartamento, alquilado por el equipo en un edificio a quince minutos en bicicleta del centro de entrenamiento, tenía vista a los campos que rodeaban la ciudad vieja, con las montañas catalanas recortándose al fondo, distintas a las de Antioquia pero con una quietud parecida al amanecer.
 
@@ -232,9 +290,9 @@ Durante esa primera semana, Hernando y Carmen ayudaron a armar cada rincón del 
 
 Luca Arnheim, que entrenaba en Girona desde hacía semanas con el resto del equipo de cara a la pretemporada, fue el primero en recibir a Santi en la sede del equipo, con un abrazo que decía más que cualquier frase sobre los meses de distancia.
 
-— Por fin de vuelta donde corresponde —dijo Luca—. Ya hablé con Rusconi. Todavía no hay bicicleta para vos, ni para mí acompañándote en una — primero toca gimnasio, los dos juntos, como en los viejos tiempos de cualquier pretemporada aburrida.
+— Por fin de vuelta donde corresponde —dijo Luca—. Ya hablé con Rusconi: primera semana, gimnasio los dos juntos, como cualquier pretemporada aburrida de los viejos tiempos. Y prepárate, porque esto ya no es el equipo que conocías: Ganna ocupa dos rodillos él solo, Kuss saluda a todo el mundo como si llevara diez años acá, y el pelado Cano te tiene más miedo a vos que al Tourmalet.
 
-— Como en los viejos tiempos —repitió Santi, sintiendo, por primera vez en mucho tiempo, la sensación exacta de pertenecer otra vez a un lugar construido alrededor de la misma pasión que él, aunque esa pasión, por ahora, tuviera que vivirse entre máquinas de gimnasio y no sobre el asfalto.
+— Como en los viejos tiempos, pero más grande —dijo Santi, sintiendo la sensación exacta de pertenecer otra vez a un lugar construido alrededor de la misma pasión que él — un lugar que, mientras él se reconstruía, había crecido hasta volverse un ejército.
 
 A la mañana siguiente, Santi entrenó junto a Luca en el gimnasio del equipo —series de fuerza, trabajo de estabilidad, nada todavía que se pareciera a una bicicleta de verdad—, sintiendo, en cada ejercicio compartido, la confirmación de algo que había tardado tres años en entender completamente: que el verdadero reinado, el que de verdad importaba, nunca había dependido de un trofeo o de una clasificación general, sino de la capacidad de levantarse, una y otra vez, con la gente correcta alrededor, sin importar cuántas veces el camino decidiera interrumpirse, ni en qué país tuviera que reconstruirse esa vez.
 
@@ -290,9 +348,9 @@ Carmen abrazó a Mariana con la misma fuerza con que había abrazado a su propio
 
 ---
 
-Esa misma noche, ya solos en el apartamento, Santi abrió, por primera vez desde la cena de fin de año, el archivo de audio que Julián le había entregado en Laureles: los mensajes grabados de cada persona que había sostenido esos tres años, guardados para el día en que Santi finalmente volviera a una línea de salida.
+Esa misma noche, ya solos en el apartamento, Santi abrió, por primera vez desde la cena de fin de año, el archivo de audio que Julián le había entregado en Laureles: los mensajes grabados de cada persona que había sostenido esos tres años, guardados, según la instrucción de Julián, para la víspera del Tour.
 
-— Todavía no estamos ahí —dijo Mariana, sentándose junto a él—. ¿Por qué lo abrís hoy?
+— Julián dijo julio —dijo Mariana, sentándose junto a él—. ¿Por qué lo abrís hoy?
 
 — Porque siento que hoy también es un comienzo —dijo Santi—. No el de una carrera. El de este capítulo nuevo, acá, con vos. Y quiero empezarlo recordando a toda la gente que nos trajo hasta este punto.
 

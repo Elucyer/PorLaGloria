@@ -10,6 +10,8 @@
 
 Las semanas entre la crisis de junio y el aniversario del accidente transcurrieron con una estabilidad que Santi atribuía, en buena parte, a las sesiones semanales con el psicólogo deportivo, combinadas con un progreso físico que Rusconi describía, en cada llamada, como "exactamente lo que necesitábamos ver a esta altura del año".
 
+Y el siete de julio, en un control de columna que llevaba meses marcado en el calendario con lápiz —como si escribirlo con tinta pudiera arruinarlo—, llegó la noticia que ordenaba todo lo demás: la vértebra completamente consolidada, sin ninguna restricción, y el alta médica definitiva para volver a entrenar en serio. El especialista se la dio con la neutralidad profesional de siempre, y Santi la recibió igual, sin celebración, guardándola como se guarda algo demasiado grande para abrirlo de una vez.
+
 — ¿Cómo te sentís, pensando en que se acerca el aniversario? —le preguntó el psicólogo, en la sesión de mediados de julio.
 
 — Nervioso —admitió Santi—. No sé bien qué esperar de mí mismo ese día. Si va a ser como la noche del Tour, otra crisis, o algo distinto.
@@ -204,7 +206,7 @@ Rusconi, al recibir la noticia del día completo —enviada por Hernando, con ci
 
 — Algo cambió —confirmó Santi—. No sé bien explicarlo todavía. Pero sentí, por primera vez, que este año no fue solo algo que me pasó. Fue algo que atravesé.
 
-— Esa diferencia es más importante de lo que parece —dijo Rusconi—. Y probablemente la señal más clara que tuvimos hasta ahora de que el regreso, cuando llegue, va a encontrar a alguien preparado de verdad, no solo físicamente.
+— Esa diferencia es más importante de lo que parece —dijo Rusconi—. Y probablemente la señal más clara que tuvimos hasta ahora de que el regreso, ahora que por fin tiene camino abierto, va a encontrar a alguien preparado de verdad, no solo físicamente.
 
 ---
 
@@ -226,6 +228,6 @@ Hernando, esa misma noche, escribió en el cuaderno, con una letra que reflejaba
 
 *20 de julio de 2025. Un año exacto desde el Tourmalet. Santi en la piedra del abuelo esta mañana, en calma, de una forma que no veía desde antes del accidente. Restrepo, los niños de la fundación, Mariana documentando sin invadir. Una cena tranquila, sin invitados, solo los cuatro. No hay número que anotar de este año. Pero hay algo más importante: mi hijo está bien, de verdad, por primera vez desde julio pasado.*
 
-*Quedan, según los médicos, varios meses más antes de pensar en cualquier regreso real a la competencia. Pero por primera vez en un año, esa espera ya no se siente como una condena. Se siente, simplemente, como el siguiente paso de un camino que, contra todo lo que parecía esa tarde en los Pirineos, sigue abierto.*
+*El alta llegó hace dos semanas. Rusconi todavía no dice fechas en voz alta, pero llevo cuarenta años leyendo entrenadores: ya está armando un calendario en la cabeza. Por primera vez en un año, la espera ya no se siente como una condena. Se siente, simplemente, como el siguiente paso de un camino que, contra todo lo que parecía esa tarde en los Pirineos, sigue abierto.*
 
 ---

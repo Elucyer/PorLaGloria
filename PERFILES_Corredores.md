@@ -156,15 +156,54 @@ Usar este documento como fuente única para características físicas, estilo de
 - **Relación con Santi**: Mentor no declarado. Le enseña a pedalear sobre adoquines (cap. 33). Les une la filosofía del trabajo sobre la gloria. Su mención del Stelvio en cap. 34 tiene peso de ironía dramática (Hernando muere mientras Santi escala el Stelvio).
 - **Frase clave**: "El Stelvio es solo una subida. Larga, alta, difícil. Pero solo una subida."
 - **REGLA**: Clarke es compañero de equipo desde el primer día en Bélgica (enero 2018). En Mallorca (cap. 35) ya se conocen; esa escena debe reflejar una amistad ya establecida, no un primer encuentro.
-- **Retiro**: Se retira de la competencia activa a fines de 2023 (último año documentado en el cap. 192 es 2022). Reaparece por mensaje de texto en el Arco V (cap. 272), felicitando a Santi tras su primera victoria post-Tourmalet, confirmando el retiro de forma explícita y cerrando el hilo.
+- **Retiro (canon revisado, julio 2026)**: Tenía decidido retirarse a fines de 2023, pero cuando el Tourmalet dejó a Santi en el hospital (julio 2024) pospuso el retiro — corrió 2024 y 2025 de fondo, fuera de foco, esperando. En julio de 2025, cuando Santi arranca la preparación del regreso, viaja a verlo junto a Colombo y Rensen y se lo dice en persona: *nos quedamos para verte volver, no para correr otro Tour* (cap. 262). Su última carrera es **Il Lombardia, 11 de octubre de 2025** — el mismo día del regreso de Santi (cap. 264). En la despedida se paga el callback del cap. 120 (Tour 2020): "hoy nadie nos vio" — Santi confiesa que aquella noche lo escuchó desde adelante del bus y nunca dijo nada. Tenía ~39 años al retirarse.
 
 ### Marco Colombo
 - **Nombre**: Marco Colombo (ficticio)
 - **Equipo**: Élan Cycliste, y después MercadoLibre-FCV en sus primeros años — compañero de equipo de Santi y Clarke en los Arcos II-III.
 - **Origen**: Italiano. Rodador/gregario de fondo, mencionado trabajando junto a Clarke en la defensa de la Itzulia 2022 (cap. 192).
-- **Retiro**: Se retira de la competencia activa en 2024. Para el Arco V trabaja como director deportivo de un equipo continental juvenil en Italia. Reaparece por mensaje en el cap. 272, felicitando a Santi en italiano tras su primera victoria post-Tourmalet.
+- **Retiro (canon revisado, julio 2026)**: Igual que Clarke, pospuso el retiro tras el accidente de Santi y corrió 2024-2025 de fondo. Se despide en persona en julio de 2025 (cap. 262) y su última carrera es el Lombardia del 11 de octubre de 2025 (cap. 264). Después trabaja como director deportivo de un equipo continental juvenil en Italia.
 
-**Nota sobre el relevo de gregarios:** Clarke y Colombo, ambos compañeros desde los años de Élan Cycliste, se retiran de la competencia entre 2023 y 2024, sin aparecer en el Arco IV. **Luca Arnheim**, fichado en 2020, pasa a ser el gregario principal y veterano del equipo desde el Arco IV en adelante. Para el Arco V, el equipo ya incorporó una nueva camada de gregarios jóvenes (ver cap. 275: un escalador colombiano de 23 años, dos franceses especialistas en crono por equipos, un español de segundo año) — el mismo ciclo de relevo generacional que, en paralelo, viven los propios rivales de Santi (ver `REFERENCIA_Ciclistas_Contemporaneos.md`, sección XV, sobre la nueva generación de corredores).
+### Rensen
+- **Nombre**: Rensen (ficticio; danés — el nombre de pila casi nunca se usa en el pelotón)
+- **Equipo**: Compañero de Santi desde el Arco III (Tour 2020) — rodador de llano, especialista en echelones y viento junto a Clarke.
+- **Carácter**: Aún más callado que Clarke. En cuatro días del Tour 2020 dijo una sola frase larga (cap. 120) — la única vez que alguien lo oyó explicar por qué hacía un trabajo que nadie notaba.
+- **Escena clave**: Cap. 120 (Tour 2020, bus del equipo, tras 72 km de echelon): Clarke le dice "hoy nadie nos vio". Esa frase es el corazón de la despedida de los veteranos en el cap. 262 — Santi la escuchó esa noche desde adelante del bus y nunca dijo nada, hasta la despedida.
+- **Retiro (canon revisado, julio 2026)**: Se retira junto a Clarke y Colombo — despedida presencial en julio de 2025 (cap. 262), última carrera en el Lombardia del 11 de octubre de 2025 (cap. 264).
+
+**Nota sobre el relevo de gregarios (canon revisado, julio 2026):** Clarke, Colombo y Rensen — los veteranos de los años de Élan Cycliste y del primer ciclo del equipo — pospusieron su retiro cuando el Tourmalet dejó a Santi fuera, corrieron 2024-2025 en segundo plano (por eso no aparecen en los capítulos escritos del Arco IV) y se retiraron juntos en el Lombardia del 11 de octubre de 2025, el día del regreso de Santi. **Luca Arnheim**, fichado en 2020, queda como capitán de ruta y veterano del equipo. El mismo ciclo de relevo generacional lo viven, en paralelo, los rivales de Santi (ver `REFERENCIA_Ciclistas_Contemporaneos.md`, sección XV).
+
+---
+
+## PLANTILLA MERCADOLIBRE-FCV 2026 — EL SUPEREQUIPO (Arco V)
+
+Fichajes del invierno 2025-26, financiados por las renovaciones de patrocinio condicionadas al Tour 2026 (ver `MAPA_Capitulos_Arco_V.md`):
+
+### Filippo Ganna (real)
+- Especialista de crono dominante del pelotón (ver su ficha en `REFERENCIA_Ciclistas_Contemporaneos.md`, sección XIII). Motor de llano, abanicos y crono por equipos.
+- **Giro narrativo**: "el modelo Ganna" era la vara con que Rusconi y Ferretti medían lo que Santi nunca iba a ser contra el reloj. No pudieron fabricarlo — lo compraron.
+
+### Sepp Kuss (real)
+- El mejor gregario de montaña de su generación; ganador de la Vuelta a España 2023. Robado al equipo de Vingegaard — fichaje-declaración de guerra: debilita a un rival directo y anuncia al pelotón que el Tour 2026 va en serio.
+
+### Santiago Buitrago (real)
+- Escalador colombiano de talla mundial. Segundo hombre de montaña tras Kuss y carta de general para el Giro/Vuelta cuando Santi corre el Tour. El fichaje con más carga simbólica para el patrocinador colombiano.
+
+### Antonio Tiberi (real)
+- Italiano, corredor de general en ascenso. Co-líder para los Grand Tours que Santi no corre — un superequipo no vive de una sola general.
+
+### Marc Soler (real)
+- Español, hombre de fugas y montaña. Robado a UAE — espejo del golpe a Visma con Kuss.
+
+### Jan Christen (real)
+- Suizo joven, todoterreno, proyección a futuro.
+
+### Andrés Cano (ficticio — nombre provisional)
+- **Nacimiento**: ~2005 (20 años en 2026). Escalador antioqueño.
+- **Origen**: Salido del programa de la **Fundación Hernando Reyes** — el primer ciclista del programa que llega al WorldTour. La Fundación deja de ser filantropía y empieza a producir corredores.
+- **Rol narrativo**: Espejo del relevo generacional de 2018 — Clarke (32) recibió a Santi (18); ahora Santi (26) recibe a Cano (20). El veterano que sabe, recibiendo al que llega.
+
+*(Se conservan de la camada esbozada en el plan viejo: dos franceses especialistas en crono por equipos y un español de segundo año, sin nombre todavía. Plantilla total ~28 corredores; solo se nombra a quien tiene función narrativa.)*
 
 ---
 

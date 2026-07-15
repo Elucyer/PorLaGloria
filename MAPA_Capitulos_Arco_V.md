@@ -1,18 +1,39 @@
 # POR LA GLORIA
 ## MAPA DE CAPÍTULOS — ARCO V
-### "La Cosecha" (2026–2028) — Capítulos ~266 al ~330 (estimado)
+### "La Cosecha" (2026–2028) — Capítulos 266 al ~330 (estimado)
 
 ---
 
-## CAMBIOS DE CANON RESPECTO A LA BIBLIA ORIGINAL
+## CAMBIOS DE CANON RESPECTO AL PLAN ANTERIOR (versión 2026-06-20, descartada)
 
-La sección del Arco V en `BIBLIA_PorLaGloria.md` quedó desactualizada por decisiones tomadas durante el Arco IV y debe reescribirse. Resumen de lo que cambió:
+Este mapa reemplaza por completo la versión anterior del Arco V. Los caps. 266–279 escritos bajo el plan viejo (Vuelta a España 2026 como Grand Tour del regreso) **fueron eliminados del manuscrito** — el historial queda en git. Resumen de lo que cambió:
 
-- **El arco se corre un año completo:** la Biblia original lo ubicaba en 2025–2028, con 2.º Tour en 2026. Pero el regreso real de Santi no ocurre hasta mediados de 2026 (accidente del Tourmalet en 2024 + año entero sin competir en 2025), así que el arco pasa a **2026–2028**.
-- **Conteo de Grand Tours confirmado al cierre del Arco IV:** 3 Giros ganados (2019, 2021, 2022 — cap. 192) y 2 Tours ganados (2020, 2023). El Giro de 2024 fue 2.º puesto, no victoria. La Vuelta a España nunca fue ganada (5.º en 2020, eliminada del calendario desde 2021 hasta el regreso).
-- **Eliminado del plan: la muerte de Maurizio Ferretti.** La Biblia original la marcaba como "el segundo duelo más importante de la novela", ubicada en este arco. Decisión editorial: nadie muere en el Arco V. Ferretti sigue activo como director deportivo, sin enfermedad planeada. Si en algún momento futuro se reconsidera, sería en un arco posterior, nunca aquí.
-- **La batalla táctica contra Remco** que la Biblia preveía como "4.º Tour" queda abierta — no se fija todavía en qué año cae. Evenepoel puede crecer como amenaza progresiva a lo largo del arco sin que su enfrentamiento decisivo esté atado a un capítulo específico todavía.
-- **Arco IV cerró en el cap. 265** (con Santi y Mariana ya instalados en Girona, junto al equipo, en enero de 2026). El Arco V arranca en el **cap. 266**, retomando exactamente ese punto.
+- **La recuperación se acorta un año entero.** Canon nuevo: alta médica en **junio de 2025** (no noviembre), preparación desde julio, y **regreso a la competencia en octubre de 2025** en las clásicas italianas de otoño. Todo el regreso se narra ahora en el cierre del Arco IV (caps. 261–265 reescritos), no en el Arco V.
+- **Lombardia 2025 (11 de octubre) es la carrera del regreso:** Pogačar 1.º (su 3.ª Lombardia in-novel), Evenepoel 2.º, **Santi 3.º**. La prensa lo vende como "el reencuentro de los dos titanes" (Pogačar–Santi), ignorando a Remco — que lleva años siendo campeón de todo y queda relegado a nota al pie en su propio podio. Ese agravio narrativo es semilla directa para el Tour 2026. Al final de Como: la conversación Santi–Pogačar, **la declaración de guerra del Tour 2026**.
+- **Santi corre el Tour de Francia 2026** — no la Vuelta. Es el eje del primer bloque del arco: "uno de los mejores Tours de todos los tiempos".
+- **Clarke, Colombo y Rensen no se retiraron en 2023-2024** (retcon limpio: el Arco IV escrito nunca los menciona). Pospusieron el retiro cuando el Tourmalet dejó a Santi en el hospital y corrieron 2024-2025 de fondo, esperando. Se despiden de Santi en persona en julio de 2025 y su última carrera es el Lombardia del regreso. Ver `PERFILES_Corredores.md`.
+- **Presión de patrocinadores:** el equipo pasó desde julio de 2024 sin ganar nada relevante. Las renovaciones para 2026 se firmaron condicionadas a resultados, y la contrapartida es la financiación de un **superequipo** (ver plantilla abajo).
+- **Se mantiene del plan anterior:** Ferretti NO muere (nadie muere en el Arco V). Conteo de Grand Tours al cierre del Arco IV: 3 Giros (2019, 2021, 2022) + 2 Tours (2020, 2023); la Vuelta nunca ganada. La batalla táctica decisiva contra Remco sigue sin fijarse a un año concreto.
+
+---
+
+## PLANTILLA MERCADOLIBRE-FCV 2026 (el superequipo)
+
+Financiada por las renovaciones de patrocinio condicionadas al Tour 2026. Solo se nombra a quien tiene función narrativa (~28 corredores en total, el resto es fondo):
+
+| Corredor | Rol | Estado |
+|---|---|---|
+| **Santi Reyes** (26) | Líder | — |
+| **Luca Arnheim** | Capitán de ruta, gregario principal desde 2020 | En canon (Arco IV) |
+| **David Arroyave** | Lugarteniente colombiano, fichado en 2024 (cap. 248) | En canon (Arco IV) |
+| **Filippo Ganna** | Motor de crono y llano — fichado de Ineos. Giro interno: "el modelo Ganna" era la vara con que Rusconi medía lo que Santi nunca iba a ser; no pudieron fabricarlo, así que lo compraron. | Fichaje invierno 2025-26 |
+| **Sepp Kuss** | El mejor gregario de montaña de su generación (ganador de la Vuelta 2023) — robado al equipo de Vingegaard. Fichaje-declaración de guerra. | Fichaje invierno 2025-26 |
+| **Santiago Buitrago** | Escalador colombiano, segundo hombre de montaña, carta de GC para el Giro/Vuelta | Fichaje invierno 2025-26 |
+| **Antonio Tiberi** | Co-líder italiano para los Grand Tours que Santi no corre | Fichaje invierno 2025-26 |
+| **Marc Soler** | Fugas y montaña — robado a UAE (espejo del golpe a Visma con Kuss) | Fichaje invierno 2025-26 |
+| **Jan Christen** | Suizo joven, todoterreno, proyección | Fichaje invierno 2025-26 |
+| **Andrés Cano** (20, nombre provisional) | Escalador antioqueño ficticio salido del programa de la **Fundación Hernando Reyes** — la Fundación deja de ser filantropía y empieza a producir ciclistas. Espejo del relevo Clarke (32) → Santi (18) de 2018: ahora Santi (26) recibe al que llega. | Neoprofesional 2026 |
+| Dos franceses de crono por equipos + un español de segundo año | Gregarios ficticios de la nueva camada | Esbozados plan viejo, se conservan |
 
 ---
 
@@ -20,69 +41,65 @@ La sección del Arco V en `BIBLIA_PorLaGloria.md` quedó desactualizada por deci
 
 Tres temporadas, cada una con su propio color:
 
-1. **2026 — El regreso.** Meses de fortalecimiento y reconstrucción en Girona antes de cualquier carrera. Calendario de bajo riesgo en la primavera. Decisión de saltarse el Tour de Francia (llega tarde a la forma real) y apuntar a la **Vuelta a España** como el Grand Tour de la vuelta. Tres semanas sosteniendo el ritmo de los mejores — hasta la última etapa de alta montaña, donde el cuerpo, todavía no completamente reconstruido, sufre pero aguanta lo suficiente: cierra **3.º** en la general, podio de regreso. No es una victoria, pero es la prueba real de que el cuerpo vuelve a sostener un Grand Tour completo al nivel de los mejores, antes de lo que el propio equipo esperaba.
-2. **2027 — El doble sin gloria.** Más en forma, decide correr **Giro + Tour** en el mismo año: su 4.º Giro y su 3.º Tour, ambos en juego. No gana ninguno, pero hace podio en los dos — el mensaje al mundo (y a sí mismo) de que está de vuelta, sin necesitar todavía una victoria que lo confirme. Año de procesar la frustración de la "casi-victoria" repetida, con la familia y Mariana como ancla emocional.
-3. **2028 — La cosecha parcial.** Corre **Tour + Vuelta**. Por primera vez desde 2023 vuelve a ser el Santi que gana casi todo lo que corre — **excepto** la Vuelta a España, donde Pogačar por fin completa el trébol de los tres Grand Tours de su carrera (su primera Vuelta) y Santi cierra **2.º**. El arco termina en un triunfo real (su 3.º Tour) atravesado por una derrota simbólica (la única corona que se le sigue escapando, esta vez ante el rival de toda la vida).
+1. **2026 — La guerra anunciada.** El superequipo se presenta en enero; la primavera confirma que el Santi de 2023 volvió (victorias, no solo podios). En julio, el Tour de Francia: la guerra a cuatro (Santi–Pogačar–Vingegaard–Evenepoel) declarada en Como. Uno de los mejores Tours de la historia — y Santi lo pierde **por segundos** ante Pogačar en el último fin de semana de montaña. El recorrido pasa por el **Tourmalet**: la primera bajada de esa curva desde el accidente de 2024, con el mundo entero mirando.
+2. **2027 — El año de en medio.** Doble Giro + Tour. Plan base (heredado del mapa anterior, **pendiente de confirmar**): podio en ambos sin victoria — la frustración madura de la casi-victoria repetida. **Decisión abierta:** con la derrota épica del Tour 2026 ya encima, tres temporadas seguidas sin ganar un Grand Tour puede ser demasiado (también para los patrocinadores dentro de la ficción). Alternativa sobre la mesa: **ganar el 4.º Giro en 2027** (primera cosecha, parcial) y perder solo el Tour. Resolver antes de escribir el bloque.
+3. **2028 — La cosecha.** Gana su **3.º Tour de Francia** — el cierre del arco de regreso. Corre también la Vuelta: Pogačar, en su mejor versión, la conquista por fin y completa el trébol de los tres Grand Tours; Santi cierra **2.º**. Triunfo real atravesado por la derrota simbólica: la única corona que se le sigue escapando, ante el rival de toda la vida.
 
-**Tono general del arco:** cada temporada tiene su propio clima emocional — 2026 es alivio y límite físico, 2027 es frustración madura sin desesperación, 2028 es triunfo con una astilla adentro. El título "La Cosecha" se gana al final: después de tanto sembrar (2023–2025), por fin hay fruto, aunque no sea la cosecha completa que se soñó en enero de 2026.
-
----
-
-## BLOQUE 1 — 2026: EL REGRESO
-
-**Estado físico de partida:** vértebra consolidada al 95%+ desde noviembre de 2025 (cap. 264), entrenando en Girona junto al equipo desde enero de 2026 (cap. 265).
-
-| Etapa del año | Mes | Contenido |
-|---|---|---|
-| Fortalecimiento específico | Enero-febrero | Continuación directa del cierre del Arco IV. Rutina con Rusconi y Luca en Girona. Primeras semanas de vida cotidiana europea con Mariana. |
-| Incremento de volumen | Marzo-abril | Primeras pruebas de potencia reales. Decisión: nada de clásicas de un día todavía — demasiado riesgo de caída sin margen de recuperación. |
-| Primeras carreras | Mayo-junio | Calendario de bajo riesgo: una vuelta de una semana, sin presión de resultado. Primer cruce con el pelotón completo desde el Tourmalet — reacciones de Pogačar, Vingegaard y otros corredores al verlo de vuelta. |
-| La decisión del Tour | Junio | Rusconi y Ferretti descartan el Tour de Francia 2026: llega justo, sin margen para un objetivo de máximo nivel. Se fija la Vuelta a España (agosto-septiembre) como el verdadero regreso a un Grand Tour. |
-| Verano de espera | Julio | Sigue el Tour 2026 desde fuera (eco del cap. 264_especial_1 del año anterior, pero esta vez sin la misma oscuridad — ya tiene una fecha concreta esperándolo). |
-| La Vuelta a España | Agosto-septiembre | Tres semanas completas. Sostiene el ritmo de los favoritos durante la mayoría de la carrera. En la última etapa de alta montaña, el cuerpo sufre pero aguanta. Cierra **3.º** en la general — podio de regreso. |
-| Cierre de año | Octubre-diciembre | Balance: primer Grand Tour completo desde el accidente, con derrota pero sin daño. Reunión anual de patrocinios (primera con resultados deportivos reales desde 2024). Navidad — primera en Girona, o regreso a Medellín a definir. |
-
-**Pendiente de decidir en la escritura:** qué carrera específica de una semana usar en mayo-junio (Itzulia, Tour de Suiza u otra ya usada en arcos anteriores — revisar `REFERENCIA_Ciclistas_Contemporaneos.md` y no repetir terreno ya cubierto). Margen exacto de tiempo perdido en la última etapa de la Vuelta — a calcular cuando se escriba el capítulo, usando `REFERENCIA_Puertos_y_Escenarios.md` para el puerto de cierre.
+**Tono general:** 2026 es guerra y herida (la derrota más cara de su carrera, deportiva y comercialmente), 2027 es paciencia y desgaste, 2028 es fruto con una astilla adentro. "La Cosecha" se gana al final.
 
 ---
 
-## BLOQUE 2 — 2027: EL DOBLE SIN GLORIA
+## BLOQUE 1 — 2026: LA GUERRA ANUNCIADA
 
-| Etapa del año | Mes | Contenido |
+**Punto de partida:** cap. 265 (enero 2026, Girona) — regreso ya consumado (3.º en Lombardia), superequipo anunciado, objetivo público: el Tour.
+
+| Caps. (aprox.) | Etapa del año | Contenido |
 |---|---|---|
-| Pretemporada | Enero-abril | Calendario más cargado que 2026 — clásicas de primavera de vuelta, ya sin restricciones de riesgo. |
-| El Giro | Mayo | Va por su **4.º Giro**. Pelea real con los favoritos del momento (a definir: ¿Pogačar repite doble Giro-Tour este año, o se concentra en otra cosa? Decisión pendiente). Termina en el podio, sin ganar. |
-| Transición | Junio | Recuperación entre Grand Tours — eco directo del "plan de los dos picos" de 2024, esta vez con más experiencia y menos incertidumbre médica. |
-| El Tour | Julio | Va por su **3.º Tour**. Misma historia: pelea de igual a igual, podio, sin victoria. Cierre del arco emocional del año — la frustración de la "casi-victoria" repetida dos veces en el mismo verano. |
-| Procesando el año | Agosto-diciembre | Sin la urgencia médica de 2025, pero con una nueva clase de duda: ¿el cuerpo de antes del Tourmalet ya no vuelve del todo, o todavía falta tiempo? Mariana y la familia como ancla. Posible crecimiento de Remco Evenepoel como amenaza específica de cara a 2028 — sembrar el hilo sin resolverlo. |
-
-**Pendiente de decidir en la escritura:** resultados exactos de podio (¿2.º o 3.º en cada uno? ¿ante quién pierde cada vez — Pogačar, Vingegaard, alguien nuevo?). Si Ferretti, Rusconi, Koen y Luca siguen en los mismos roles (recordatorio ya anotado en el cierre del Arco IV, todavía sin resolver).
+| 266–268 | Invierno (ene-feb) | Presentación del superequipo. Primera convivencia con Ganna y Kuss (dos culturas de equipo distintas aterrizando en la estructura de Ferretti). Cano llega de Antioquia — el espejo de 2018 desde el otro lado. Mariana y la vida en Girona. |
+| 269–272 | Primavera (mar-may) | Calendario completo sin restricciones. Victorias que confirman (elegir 2-3 carreras: Strade Bianche, Volta a Catalunya u otras — verificar terreno no repetido en `REFERENCIA_Puertos_y_Escenarios.md`). Color de pelotón: Seixas gana la Itzulia 2026 `[REAL]` — la nueva generación empujando desde abajo. Primer cara a cara de la temporada con Pogačar y con Remco. |
+| 273–274 | Junio | Dauphiné (preparación, ¿victoria?) y la previa del Tour: presentación de la escuadra de 8, el peso del recorrido (el Tourmalet en la tercera semana), presión mediática y comercial máxima. |
+| 275–289 | **Tour de Francia 2026** (~14-16 caps, el tratamiento más extenso de la novela) | La guerra a cuatro. Beats fijados: crono con Ganna de lanzadera; Kuss neutralizando la montaña de Visma; **del Toro gana una etapa pirenaica** con permiso de Pogačar (y le escribe a Santi por primera vez — Pogačar le pasó el contacto); **la etapa del Tourmalet** — Santi baja la curva del accidente (capítulo-pico del bloque); el último fin de semana de montaña decidido por segundos; **Pogačar gana, Santi 2.º**. Margen exacto, suerte de Vingegaard y Remco, y reparto etapa a etapa: a definir al planificar el bloque en detalle. |
+| 290–292 | Agosto-octubre | Digerir la derrota (deportiva y comercial). Cierre de temporada: ¿revancha en el Lombardia 2026, un año después de Como? (abierto). |
+| 293–294 | Cierre de año | Reunión anual de patrocinios: el 2.º más visto de la historia del Tour también factura. Balance con Ferretti y Rusconi. Semillas de 2027. |
 
 ---
 
-## BLOQUE 3 — 2028: LA COSECHA PARCIAL
+## BLOQUE 2 — 2027: EL AÑO DE EN MEDIO
+
+*(Estructura heredada del plan anterior, pendiente de confirmar tras decidir el resultado del Giro — ver eje narrativo.)*
 
 | Etapa del año | Mes | Contenido |
 |---|---|---|
-| Pretemporada | Enero-abril | Año planteado, desde el primer día, como "todo o nada" — eco deliberado de la apuesta de 2023, esta vez con la madurez de haber perdido y vuelto a perder dos años seguidos. |
-| Calendario de primavera | Marzo-abril | Vuelve a ganar casi todo lo que corre — la primera señal real de que el Santi de 2023 está de vuelta, no solo en podio sino en victorias. |
-| El Tour | Julio | Va por su **3.º Tour** (el que se le escapó en 2027) y esta vez **gana**. Cierre triunfal del arco de regreso físico y competitivo. |
-| La Vuelta | Agosto-septiembre | Corre también la Vuelta a España — el único Grand Tour que nunca ganó. Pogačar, en su mejor versión, finalmente la conquista, completando el **trébol** de los tres Grand Tours de su carrera. Santi cierra **2.º**, la corona que se le sigue escapando. |
-| Cierre del arco | Octubre-diciembre | Balance agridulce: 3.º Tour ganado, Vuelta perdida ante el rival de toda una carrera. Cierre simbólico de "La Cosecha" — hubo fruto, pero no la cosecha completa. Posible escena de reflexión con Hernando sobre qué significa "suficiente" después de tres años de espera. |
+| Pretemporada + clásicas | Ene-abr | Calendario cargado, sin restricciones. |
+| El Giro | Mayo | Va por su 4.º Giro. **Resultado por decidir:** podio sin victoria (plan viejo) o primera cosecha. |
+| El Tour | Julio | Pelea de igual a igual, podio, sin victoria. La guerra con Pogačar sigue abierta. |
+| Resto del año | Ago-dic | Procesar. Mariana y la familia como ancla. Remco crece como amenaza específica de cara a 2028 — sembrar sin resolver. |
 
-**Pendiente de decidir en la escritura:** margen de victoria del Tour 2028 (¿ajustado, dominante?). Reacción de Pogačar al ganar su primera Vuelta — ¿hay un gesto recíproco al que tuvo Pogačar con Santi en París 2024 (cap. 228)? Estado de la rivalidad con Vingegaard en este punto del arco, todavía sin desarrollar en este mapa.
+---
+
+## BLOQUE 3 — 2028: LA COSECHA
+
+| Etapa del año | Mes | Contenido |
+|---|---|---|
+| Primavera | Mar-abr | Vuelve a ganar casi todo lo que corre — el Santi de 2023, confirmado. |
+| El Tour | Julio | **GANA su 3.º Tour.** Cierre triunfal del arco de regreso. Margen y rivales por definir. |
+| La Vuelta | Ago-sep | Pogačar conquista su primera Vuelta y completa el **trébol**. Santi 2.º. |
+| Cierre del arco | Oct-dic | Balance agridulce. Posible escena de reflexión con Hernando (cuaderno/memoria) sobre qué significa "suficiente". |
 
 ---
 
 ## HILOS ABIERTOS PARA EL ARCO V (verificar antes de escribir capítulos puntuales)
 
-- **Remco Evenepoel** como amenaza creciente — la Biblia original preveía una "batalla táctica" contra él como hito de cierre de arco; en este plan no está fijada a ningún año específico. Decidir si aparece en 2027, 2028, o se reserva para el Arco VI.
-- **Vida personal de Santi y Mariana en Girona** — matrimonio, convivencia a largo plazo, posible hijo (la bicicleta guardada en el garaje de Laureles, cap. 264, quedó como semilla narrativa explícita para esto). No resuelto en este mapa; a desarrollar capítulo por capítulo.
-- **Fundación Hernando Reyes** — seguía creciendo (11 municipios a cierre del Arco IV). Definir si sigue expandiéndose o se estabiliza durante el Arco V, ahora que Santi gestiona todo a distancia desde Europa.
-- **Rodrigo, Julián, Restrepo** — sin arco propio pendiente identificado; aparecerán en visitas y llamadas como en el Arco IV, salvo que se decida darles desarrollo nuevo.
-- **Hernando y Carmen** — ya viven la novedad de visitar Europa regularmente. Posible hito: que se queden una temporada larga, o que Hernando seguir el cuaderno se vuelva un proyecto editorial propio (libro, blog) — solo si se quiere abrir esa puerta.
-- **Koen y el protocolo mecánico reforzado** — sigue activo desde la Flèche de 2023; no hubo fallos en el Arco IV. Mantener como trasfondo de fiabilidad, no como nueva fuente de drama, salvo decisión explícita en contrario.
+- **El agravio de Remco** — sembrado en el podio de Como (octubre 2025): la prensa cuenta la historia de los titanes sin él. Tiene la misma edad que Santi (ambos nacidos en 2000) y sabe lo que es volver de una lesión grave (pelvis rota *precisamente en el Lombardia* 2020). Su batalla táctica decisiva contra Santi sigue sin año fijo — candidatos: 2028 o Arco VI.
+- **Vida personal de Santi y Mariana en Girona** — matrimonio, convivencia, posible hijo (la bicicleta guardada en el garaje de Laureles, cap. 264 del plan viejo — verificar si la semilla sobrevive a la reescritura del cierre del Arco IV; si no, replantarla).
+- **Andrés Cano y la Fundación** — el primer ciclista del programa que llega al WorldTour. Hilo nuevo: qué le devuelve la Fundación a Santi ahora que produce corredores. Conectar con el crecimiento de los 11 municipios.
+- **Los veteranos retirados** — Clarke, Colombo y Rensen no desaparecen: visitas, mensajes, quizás roles nuevos (Colombo ya era DS de un continental juvenil italiano en el plan viejo — conservable). El callback "hoy nadie nos vio" (cap. 120) quedó pagado en la despedida del Arco IV; no reabrirlo, solo ecos.
+- **Fundación Hernando Reyes** — 11 municipios al cierre del Arco IV. Definir si sigue expandiéndose o se estabiliza, gestionada a distancia.
+- **Rodrigo, Julián, Restrepo** — sin arco propio pendiente; visitas y llamadas como en el Arco IV.
+- **Hernando y Carmen** — visitan Europa regularmente. Posible hito: temporada larga en Girona, o el cuaderno de Hernando como proyecto editorial (solo si se quiere abrir esa puerta).
+- **Koen y el protocolo mecánico** — activo desde la Flèche 2023, sin fallos desde entonces. Trasfondo de fiabilidad, no nueva fuente de drama.
+- **Seixas y del Toro** — la generación que empuja. Del Toro: gregario de lujo de Pogačar en UAE, su rivalidad mayor con Santi se reserva para el Arco VI. Seixas: la advertencia que Rusconi menciona de pasada ("ya viene otro, y este sí sabe rodar contra el crono desde los diecisiete").
 
 ---
 
-*Documento creado: 2026-06-20. Arco V planificado en boceto: caps. 266–~330 (estimado, sin escribir todavía). Año por año confirmado con el usuario: 2026 Vuelta (3.º, podio de regreso — ajustado desde 4.º), 2027 Giro+Tour sin victorias (podio en ambos), 2028 Tour ganado + Vuelta 2.º ante el trébol de Pogačar. Ferretti no muere — beat eliminado del canon. Próximo paso: planificación capítulo por capítulo del Bloque 1 (2026) cuando se decida empezar a escribir.*
+*Documento reescrito: 2026-07-14. Reemplaza al plan del 2026-06-20 (Vuelta 2026 como regreso). Nuevo canon confirmado con el usuario: regreso octubre 2025 (Lombardia 3.º detrás de Pogačar y Evenepoel), Tour 2026 perdido por segundos ante Pogačar, superequipo 2026 (Ganna, Kuss, Buitrago, Tiberi, Soler, Christen), retiro presencial de Clarke/Colombo/Rensen en el cierre del Arco IV. Caps. 266–279 del plan viejo eliminados (historial en git). Próximo paso: reescritura del cierre del Arco IV (caps. 261–265) y luego planificación detallada del Bloque 1.*

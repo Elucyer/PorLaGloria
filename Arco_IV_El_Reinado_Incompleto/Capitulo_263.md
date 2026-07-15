@@ -1,239 +1,113 @@
 # POR LA GLORIA
 ## Arco IV — El Reinado Incompleto
-### Capítulo 263 — El susto de octubre (octubre de 2025)
+### Capítulo 263 — El regreso (4-7 de octubre de 2025)
 
 ---
 
-*Girona, España. Octubre de dos mil veinticinco.*
+*Bolonia y Varese, Italia. Primera semana de octubre de dos mil veinticinco.*
 
 ---
 
-Octubre empezó con una sensación de impulso que Santi no había sentido desde antes del Tourmalet: las sesiones de entrenamiento avanzaban semana tras semana, los números de potencia subían de forma constante, y por primera vez desde el accidente, Rusconi había empezado a hablar, con cautela pero sin evasivas, de un calendario aproximado para los primeros meses de 2026.
+El primer problema del regreso fue un imperdible.
 
-Mariana, que había viajado a Girona junto con Santi para ese bloque de entrenamiento, encontró trabajo freelance con una revista española que le permitía seguir desarrollando su carrera fotográfica incluso lejos de Medellín, documentando, entre otras cosas, algunos aspectos del propio proceso de recuperación de Santi para un reportaje que la revista había propuesto.
+Santi llevaba ocho años prendiéndose dorsales sin pensarlo, un gesto tan automático como abrocharse el casco, y sin embargo la mañana del Giro dell'Emilia, sentado en el bus del equipo con el dorsal sobre las piernas, se dio cuenta de que le temblaban un poco las manos y de que llevaba un minuto entero con el mismo imperdible abierto entre los dedos.
 
-— ¿Te sentís cómoda haciendo esto, fotografiando mi entrenamiento para publicarlo? —le preguntó Santi, una tarde, viendo a Mariana revisar las fotos del día.
+Clarke, sentado enfrente, lo miró por encima de la taza de café. No dijo nada. Se levantó, le quitó el dorsal de las manos, y se lo prendió en la espalda con cuatro movimientos exactos, como se lo había prendido a media docena de líderes a lo largo de veinte años de carrera.
 
-— Sí, esta vez sí —dijo Mariana—. Esto es distinto a documentar tu vida privada. Esto es trabajo, con tu consentimiento explícito, mostrando algo que puede inspirar a otra gente que esté pasando por procesos similares.
+— Cuatrocientos setenta y ocho días —dijo Clarke, volviendo a sentarse—. Ya está. Lo demás es en bicicleta, y eso no se te olvidó nunca.
 
-— Me gusta esa idea —dijo Santi—. Si mi historia puede ayudar a alguien más, vale la pena mostrarla, aunque sea incómodo a veces.
-
----
-
-El progreso constante de agosto y septiembre se interrumpió, de forma abrupta, durante una sesión de entrenamiento a mediados de octubre, cuando Santi sintió un dolor agudo en la zona media de la espalda, distinto a cualquier molestia residual que hubiera experimentado desde el alta médica de agosto.
-
-— Detente ahora mismo —dijo Rusconi, por radio, apenas Santi mencionó el dolor—. No sigas ni un metro más.
-
-Mariana, que había acompañado esa sesión con la cámara, dejando de fotografiar en el instante en que escuchó el tono de la voz de Rusconi, corrió hacia donde Santi se había detenido, encontrándolo apoyado sobre el manillar, con una expresión de dolor que no había visto desde los primeros meses después del accidente.
-
-— ¿Qué pasó? —preguntó Mariana, con el miedo evidente en la voz.
-
-— No sé —dijo Santi, con la respiración entrecortada—. Un dolor fuerte, en la espalda, justo donde estaba la fractura.
+Afuera, Bolonia era un manicomio amable. La organización había calculado el doble de público habitual; se quedó corta. En la rampa del San Luca, donde la carrera subiría cinco veces hasta el santuario, alguien había pintado durante la noche, en letras blancas de dos metros, una sola palabra: *BENTORNATO*.
 
 ---
 
-El susto, aunque breve, fue suficiente para que todo el equipo médico se movilizara con la misma urgencia de los meses posteriores al accidente: una resonancia de control, programada para esa misma tarde, confirmaría si el dolor representaba algo serio o simplemente una sobrecarga muscular relacionada con el aumento reciente de volumen de entrenamiento.
+La víspera, en la presentación de equipos, el aplauso había durado tanto que el presentador desistió de hablar encima y dejó el micrófono abajo, esperando. Santi, en el escenario, con Luca, Arroyave, Clarke, Colombo y Rensen alineados detrás, no supo qué hacer con las manos, así que hizo lo que hacía siempre: nada. Después, en la zona de prensa, un periodista de la RAI le preguntó lo único que todo el mundo quería preguntar.
 
-En el camino hacia el hospital, en el auto que Rusconi manejaba con una urgencia contenida, Mariana, sentada en el asiento de atrás junto a Santi, le sostuvo la mano sin decir mucho, sintiendo que cualquier palabra de consuelo en ese momento podía sonar vacía antes de tener información real.
+— ¿Qué es hoy una victoria para usted?
 
-— Esto no puede estar pasando otra vez —dijo Santi, en un momento del trayecto, con la voz quebrada—. No después de todo lo que costó llegar hasta acá.
+— Terminar —dijo Santi—. Terminar las tres. Todo lo demás que lean esta semana es literatura.
 
-— Todavía no sabemos qué es —dijo Mariana, sosteniendo su mano con más fuerza—. No te adelantes a la peor posibilidad antes de tener la información real.
+La literatura, por supuesto, ya estaba escrita. La Gazzetta llevaba cinco días construyendo el relato con planos de arquitecto: el regreso del Cóndor, el reencuentro con Pogačar, la carrera de las hojas muertas como escenario del duelo de los dos gigantes. Que Santi viniera de más de cuatrocientos días sin competir era el detalle que hacía la historia mejor, no el que la desmentía.
 
-— ¿Y si la vértebra no sanó tan bien como pensábamos? —preguntó Santi, dirigiéndose más a Rusconi que a Mariana.
+— Me están poniendo a pelear un duelo que no puedo pelear —le dijo Santi a Rusconi, la noche antes, mirando los titulares en el teléfono.
 
-— No saquemos conclusiones todavía —dijo Rusconi, aunque su propio rostro reflejaba una preocupación que no podía disimular del todo—. Esperemos los resultados.
-
----
-
-Las horas de espera, en una sala de hospital que le recordaba, de forma incómoda, a la misma sensación de la noche de Tarbes catorce meses atrás, fueron de las más largas que Santi había vivido desde el accidente. Mariana, llamó a Hernando apenas llegaron al hospital, sabiendo que la familia necesitaba estar informada de inmediato, sin importar la diferencia de horario.
-
-— Hubo un susto —dijo Mariana, por teléfono, con la voz todavía temblorosa—. Un dolor fuerte en la espalda. Estamos esperando los resultados de una resonancia.
-
-— ¿Cómo está él? —preguntó Hernando, desde Laureles, con la misma preocupación inmediata que Mariana ya conocía bien.
-
-— Asustado —dijo Mariana—. Como todos nosotros, en realidad.
-
-— Avisame en cuanto sepan algo, sin importar la hora —dijo Hernando—. Voy a estar despierto, esperando.
-
-Carmen, escuchando la conversación desde el otro lado de la sala en Laureles, ya había empezado a rezar en voz baja, con el mismo fervor silencioso de la noche del accidente original.
+— Bienvenido de vuelta —dijo Rusconi—. La prensa no te esperó cuatrocientos días para escribir sobre fisiología.
 
 ---
 
-En la sala de espera del hospital de Girona, Santi, todavía con la tensión del susto en el cuerpo, le habló a Mariana sobre algo que llevaba meses sin nombrar completamente.
+El Giro dell'Emilia se decidió, como casi siempre, en las cinco subidas al San Luca, y Santi lo vivió desde el lugar exacto donde Rusconi le había ordenado vivirlo: dentro del pelotón, sin gastar un vatio de más, sin responder a nada.
 
-— ¿Sabés qué es lo que más me asusta de esto? —dijo Santi—. No es el dolor físico. Es la idea de tener que volver a empezar todo el proceso, después de haber llegado tan lejos. No sé si tengo la fuerza para hacer eso otra vez.
+El examen real no era la subida. Era la bajada.
 
-— Tenés más fuerza de la que crees —dijo Mariana—. Lo demostraste durante catorce meses enteros. Si hace falta empezar otra vez, vamos a empezar otra vez, juntos, como hicimos la primera vez.
+La primera vez que la carrera se lanzó cuesta abajo desde el santuario, en un descenso rápido de curvas encadenadas con el pelotón todavía completo, Santi sintió que el corazón se le iba a la garganta sin permiso, que las manos le apretaban el manillar más de lo necesario, que el cuerpo entero le gritaba una información vieja de quince meses. Dejó abrirse un hueco de cinco metros con la rueda de adelante. Lo supo, lo midió, y durante tres curvas no pudo hacer nada con ese dato.
 
-— ¿Y si esta vez es distinto, peor? —preguntó Santi.
+En la cuarta curva pensó en la sesión del psicólogo, en la voz ordenada con que había aprendido a contar la caída. En la quinta pensó en Clarke prendiéndole el dorsal. En la sexta dejó de pensar, y las manos aflojaron solas, y el hueco se cerró.
 
-— Entonces lo vamos a enfrentar cuando lo sepamos con certeza —dijo Mariana—. No antes. No con miedo anticipado sobre algo que todavía no confirmamos.
+— Ahí —dijo Rusconi por el auricular, que lo había visto todo en la pantalla del carro—. Eso era lo que veníamos a buscar. Lo demás es regalo.
 
-Santi se quedó callado, apoyando la cabeza en el hombro de Mariana, sintiendo, a pesar del miedo, el mismo tipo de consuelo que ella le había ofrecido en cada crisis del año.
+En la última subida, cuando Pogačar hizo lo de siempre —un ataque seco a mil doscientos metros de la meta que nadie pudo seguir—, Santi ya no estaba en el grupo de los diez primeros, y no importaba. Cruzó la línea decimoquinto, a un minuto y medio, vacío hasta un lugar del cuerpo que había olvidado que existía, y levantó apenas la mano derecha al pasar bajo la pancarta, no para el público sino para nadie, para sí mismo, para la línea.
 
----
-
-El especialista en columna, el mismo que había seguido el caso desde Tarbes, viajó especialmente desde Francia hasta Girona para revisar los resultados en persona, llegando con los resultados pasada la medianoche, con una expresión que, esta vez, no tardó en transmitir alivio.
-
-— La vértebra está perfectamente consolidada, exactamente como esperábamos —dijo el médico—. Lo que vemos es una contractura muscular paravertebral, una sobrecarga de los músculos que rodean la zona, probablemente porque el aumento de volumen de entrenamiento fue más rápido de lo que esos músculos, todavía débiles después de un año de inactividad relativa, podían soportar.
-
-— ¿Eso es grave? —preguntó Santi, todavía con la tensión del susto en el cuerpo.
-
-— No es grave en absoluto —dijo el médico—. Pero es una señal clara de que el cuerpo necesita un ritmo de progresión más conservador del que estaban siguiendo. La estructura ósea está bien. Los músculos de soporte todavía no están al nivel que esa estructura necesita para un entrenamiento intenso.
-
-El alivio que siguió a esa explicación fue tan intenso como el miedo de las horas anteriores, con Mariana abrazando a Santi en la sala de espera mientras Rusconi, por teléfono, recibía la misma noticia con una exhalación audible incluso a través de la línea.
+Terminó. Eso era todo. Eso era enorme.
 
 ---
 
-— Esto fue una advertencia, no una catástrofe —dijo Rusconi, al día siguiente, revisando el plan de entrenamiento con una autocrítica que pocas veces mostraba—. Y la responsabilidad es mía, por aumentar el volumen más rápido de lo que el cuerpo, en su estado actual, podía manejar con seguridad.
+Pogačar apareció en el bus del equipo media hora después, todavía con el maillot de ganador puesto, comiendo un pedazo de pizza doblado en dos, como si fuera un aficionado que se hubiera colado en el parking.
 
-— No es tu culpa —dijo Santi—. Los dos queríamos ir más rápido de lo razonable.
+— Decimoquinto —dijo, a modo de saludo.
 
-— Aun así, vamos a corregirlo —dijo Rusconi—. De ahora en adelante, el progreso va a ser todavía más gradual, con más trabajo de fortalecimiento muscular específico antes de cualquier aumento de volumen aeróbico. Prefiero llegar a mediados de 2026 con tres semanas de atraso que arriesgar otro susto como el de ayer.
+— Viniste a burlarte —dijo Santi.
 
-Santi, escuchando esa decisión, sintió una mezcla de frustración por el ritmo más lento y un alivio genuino por la prudencia que reflejaba.
+— Vine a verte la cara —dijo Pogačar—. Las pantallas mienten. La cara no. —Lo estudió dos segundos, masticando, con esa franqueza suya que desarmaba cualquier protocolo—. Estás mejor de lo que decís. Peor de lo que la Gazzetta escribe, mejor de lo que decís.
 
----
+— ¿Y qué cara tengo?
 
-Esa misma mañana, Hernando llamó, ya informado por Mariana de los resultados completos, pero necesitando escuchar la confirmación directamente de su hijo.
-
-— Me asusté más de lo que puedo explicar —admitió Santi—. Por un momento pensé que estaba otra vez en julio del año pasado, en el mismo punto de partida.
-
-— Pero no lo estás —dijo Hernando—. La vértebra está bien. Eso es lo que importa. El resto, los músculos, el ritmo de entrenamiento, eso se ajusta con tiempo, como todo lo demás este año.
-
-— Tenés razón —dijo Santi, sintiendo, a pesar del susto, una calma que reflejaba todo lo aprendido durante los catorce meses anteriores—. Supongo que esto también es parte del camino. Un recordatorio de que la paciencia todavía importa, incluso cuando finalmente empezamos a ver progreso real.
-
-— ¿Cómo está Mariana con todo esto? —preguntó Hernando, con una pregunta que reflejaba su propia preocupación por ella, no solo por Santi.
-
-— Asustada también, pero fuerte, como siempre —dijo Santi—. No sé qué haría sin ella en estos momentos.
+— La de antes —dijo Pogačar, y se fue por donde vino, saludando a Colombo con el pedazo de pizza en alto.
 
 ---
 
-Rodrigo, al enterarse del susto por una llamada de Hernando esa misma semana, llamó a Santi con su humor habitual, aunque esta vez con un tono ligeramente más cuidadoso de lo normal.
+Tre Valli Varesine, tres días después, fue otra cosa desde el kilómetro cero.
 
-— Me contó tu papá lo del susto —dijo Rodrigo—. ¿Cómo estás?
+Las piernas amanecieron distintas —Rusconi lo había anticipado: "el primer esfuerzo despierta cosas que el entrenamiento no alcanza"—, y en el circuito de Varese, con la carrera rompiéndose y rehaciéndose en cada vuelta, Santi se descubrió haciendo algo que no había planeado: leyendo la carrera. Viendo, dos curvas antes de que pasara, dónde iba a atacar quién. El cuerpo iba al sesenta y cinco por ciento; el ojo, al cien.
 
-— Bien, al final —dijo Santi—. Fue solo una contractura muscular, no la vértebra.
+Cuando el grupo definitivo se formó a cuarenta kilómetros del final, Santi estaba adentro. No por potencia: por oficio. Rensen y Clarke habían trabajado toda la segunda hora controlando los cortes con un detalle que ninguna cámara registró, Colombo lo había colocado en cabeza antes del repecho decisivo con la última fuerza de sus treinta y siete años, y cuando la elástica se rompió, los tres se quedaron atrás, mirando cómo el líder se iba con los buenos.
 
-— Qué alivio, hermano —dijo Rodrigo, con una sinceridad que dejaba de lado, por un momento, su tono bromista habitual—. Estuve nervioso todo el día, esperando noticias.
+Al final no pudo seguir el ataque de Isaac del Toro, el mexicano de veintiún años que voló en la última vuelta con una facilidad que hizo doler los ojos, y tampoco pudo disputar el sprint del grupo. Cruzó sexto. En la zona de meta, del Toro lo buscó entre los buses, con la timidez de quien conoce a alguien por los pósters.
 
-— Gracias por preocuparte —dijo Santi.
+— De niño lo veía ganar el Giro —dijo del Toro, en español, tendiéndole la mano—. En Ensenada nos levantábamos de madrugada.
 
-— Siempre me voy a preocupar por vos, sin importar cuántos años pasen —dijo Rodrigo—. Aunque después vuelva a hacerte bromas pesadas sobre eso, que ya sabés que es mi forma de demostrar cariño.
-
----
-
-Julián, al recibir la noticia, decidió no grabar nada al respecto, conscientemente, esperando a que pasara el susto antes de mencionarlo siquiera en una conversación privada con Santi.
-
-— No quiero que esto se sienta como contenido para el podcast —le dijo Julián, cuando finalmente hablaron, días después—. Quiero que sepas, simplemente, como amigo, que estuve pendiente todo ese día, esperando noticias.
-
-— Te lo agradezco —dijo Santi—. Aprecio que no todo en nuestra relación tenga que pasar por un micrófono.
-
-— Nunca todo pasó por un micrófono, en realidad —dijo Julián—. El podcast es una parte de lo que somos. No la única.
+— Ya no madrugués tanto —dijo Santi—. Ahora el que va a tener que madrugar para verte soy yo.
 
 ---
 
-Mariana, esa misma semana, mientras Santi descansaba después de la sesión de fisioterapia de control posterior al susto, llamó a Daniela, necesitando procesar con alguien fuera de la situación inmediata el miedo que había sentido durante esas horas en el hospital.
+Julián transmitió esa semana desde Italia para tres medios colombianos a la vez, durmiendo cuatro horas por noche y feliz como nunca en su vida profesional. Hernando, Carmen y Mariana siguieron las dos carreras desde la zona del equipo, y Mariana fotografió lo que ningún acreditado fotografió: Rensen limpiando la bicicleta de Santi la noche antes de Emilia, sin que nadie se lo pidiera, con una minuciosidad de relojero; Carmen rezando bajito en la última subida del San Luca; Hernando en la valla de meta de Varese, con el cuaderno abierto, anotando el puesto sexto con la misma letra con que veinte años atrás anotaba los tiempos de un niño en el Alto de Minas.
 
-— Pensé que se repetía todo, otra vez —le confesó Mariana a Daniela, con la voz todavía cargada de la tensión de los días anteriores—. El mismo miedo de Tarbes, la misma sala de espera, la misma incertidumbre.
+— Sexto, a los cuatrocientos ochenta y un días —le dijo Rusconi a Ferretti esa noche, mostrándole los datos en la tablet—. Te voy a decir una cosa que no vas a repetir: esto no era posible. Yo hice los cálculos en julio. Esto no estaba en ninguna curva de progresión mía.
 
-— ¿Y cómo lo manejaste, en el momento? —preguntó Daniela.
+— ¿Y entonces? —preguntó Ferretti.
 
-— No sé si lo manejé bien —admitió Mariana—. Por dentro estaba completamente aterrada. Pero aprendí, este último año, a no mostrar ese miedo frente a él, porque sé que mi calma, aunque sea fingida en ese momento, le ayuda más que mi pánico genuino.
-
-— Eso suena agotador, tener que fingir calma constantemente —dijo Daniela.
-
-— Lo es, a veces —admitió Mariana—. Pero también se volvió casi automático, después de tanto tiempo. No sé si eso es bueno o no, en términos de mi propia salud emocional.
+— Entonces los cálculos estaban bien y el corredor es mejor que los cálculos —dijo Rusconi—. Como siempre. Como todos estos años. Yo ya debería saberlo.
 
 ---
 
-— ¿Has pensado en buscar apoyo profesional para vos también, no solo para él? —preguntó Daniela, con una pregunta directa que Mariana no había considerado seriamente hasta ese momento.
+La noche del siete de octubre, en el hotel de Varese, Clarke tocó la puerta del cuarto de Santi con dos cervezas sin alcohol y se sentó en la silla del escritorio sin pedir permiso, como en los viejos campos de concentración de Bélgica.
 
-— No lo había pensado, la verdad —dijo Mariana—. Siempre pensé que mi rol era sostener, no que yo también necesitara sostén de ese tipo.
+— Emilia: terminaste. Tre Valli: corriste —dijo Clarke, pasándole una botella—. El sábado, en Como, falta la tercera.
 
-— Eso es exactamente el tipo de pensamiento que termina agotando a los cuidadores —dijo Daniela, con la experiencia de haber estudiado psicología antes de cambiar de carrera hacia el periodismo—. Cuidar a alguien no te exime de necesitar cuidado vos también.
+— ¿Cuál es la tercera?
 
-Esa conversación quedó resonando en la cabeza de Mariana durante varios días, hasta que finalmente, sin decirle nada a Santi de antemano, buscó ella misma una sesión con el mismo psicólogo deportivo que atendía a Santi, pidiendo, específicamente, hablar sobre su propia experiencia como acompañante en la recuperación.
+— Volver de verdad —dijo Clarke—. Terminar es del cuerpo. Correr es del ojo. Volver es otra cosa: es que el pelotón te mire y sepa que volviste. Eso no pasó todavía. Lo vas a sentir cuando pase.
 
----
+Santi le dio un trago a la cerveza y miró a su amigo, el hombre que le había enseñado a pedalear sobre adoquines cuando tenía dieciocho años y las manos en carne viva.
 
-— No vengo porque crea que algo está mal conmigo —le dijo Mariana al psicólogo, en esa primera sesión, casi disculpándose de antemano—. Vengo porque una amiga me sugirió que quizás también necesito un espacio para procesar todo esto.
+— Es tu última carrera, Simon.
 
-— Tu amiga tiene razón —dijo el psicólogo—. Los acompañantes de pacientes con recuperaciones largas y traumáticas a menudo desarrollan su propia forma de estrés, que rara vez se atiende porque toda la atención se concentra en el paciente principal.
-
-— ¿Y qué se hace con eso? —preguntó Mariana.
-
-— Para empezar, nombrarlo, como estás haciendo ahora —dijo el psicólogo—. Y después, encontrar formas de procesar el miedo que sentís sin necesidad de guardarlo todo para mantener la fachada de calma frente a Santi todo el tiempo.
-
-Mariana salió de esa primera sesión con una sensación de alivio que no esperaba, como si finalmente alguien hubiera validado un peso que llevaba cargando sin nombre durante más de un año.
+— Por eso mismo —dijo Clarke, levantándose para irse, con la botella a medio terminar, porque Clarke nunca terminaba nada que no fuera un trabajo—. No pienso gastarla en verte terminar. El sábado quiero verte volver.
 
 ---
 
-Cuando le contó a Santi, esa misma noche, que había empezado sus propias sesiones con el psicólogo, él reaccionó con una mezcla de sorpresa y gratitud.
+Hernando escribió esa noche, en el hotel, con Varese apagándose al otro lado de la ventana:
 
-— No sabía que también lo necesitabas —dijo Santi—. Me siento mal por no haberlo preguntado antes.
+*7 de octubre de 2025. Emilia: 15.º, terminó. Tre Valli: 6.º, corrió. Los números no dicen lo que vi: en Varese leyó la carrera dos curvas antes que todos, como siempre, como si quince meses no fueran nada. El cuerpo va atrás del ojo, pero el ojo está intacto.*
 
-— No es tu culpa —dijo Mariana—. Yo tampoco lo sabía, hasta que Daniela me lo señaló. Y de cualquier forma, no quería agregarte una preocupación más, en medio de todo lo que ya estabas cargando.
-
-— Pero quiero que sepas que tu bienestar me importa tanto como el mío —dijo Santi—. Si necesitás ese espacio, lo merecés tanto como yo.
-
-— Gracias —dijo Mariana, conmovida—. Eso significa mucho, escucharlo de tu parte.
-
----
-
-De vuelta en Colombia, Carmen, al enterarse de que Mariana también había empezado terapia, la abrazó con una ternura especial durante la cena de bienvenida que organizó para celebrar el regreso de los dos desde Girona.
-
-— Hiciste bien en buscar ese apoyo —le dijo Carmen a Mariana, mientras ayudaba a poner la mesa—. Yo también debería haberlo buscado, en su momento, en lugar de cargar todo sola, rezando en silencio cada noche.
-
-— ¿Todavía no lo hiciste? —preguntó Mariana, sorprendida.
-
-— No —admitió Carmen—. En mi generación, eso no era algo que se hiciera fácilmente. Pero viéndote a ti dar ese paso, me hace pensar que quizás no es tan tarde para intentarlo yo también.
-
-— Nunca es tarde —dijo Mariana—. Y si querés, te puedo recomendar a alguien, o acompañarte si decides intentarlo.
-
-Carmen sonrió, apretando la mano de Mariana con un gesto de gratitud silenciosa, antes de volver a la cocina para terminar de preparar la cena.
-
----
-
-Hernando, durante esa misma cena, levantó una copa con un brindis improvisado que reflejaba el alivio de toda la familia después del susto de octubre.
-
-— Por las contracturas musculares, que duelen pero se curan rápido —dijo Hernando, sonriendo—. Y por toda la gente que se asustó junto con nosotros este mes: Mariana, que llamó apenas pasó, Rodrigo, que estuvo nervioso todo un día sin decirlo del todo, Julián, que respetó el silencio cuando hacía falta silencio.
-
-— Y por los médicos, que esta vez trajeron buenas noticias —agregó Carmen, levantando su copa también.
-
-Santi, mirando alrededor de la mesa, sintió, una vez más, la misma gratitud que había sentido en cada momento difícil del año: la certeza de que, sin importar lo que la recuperación todavía tuviera reservado, no la estaba enfrentando solo.
-
-— Por todos ustedes —dijo Santi, levantando su propia copa—. Por aguantar un susto más, sin que nadie se quebrara del todo.
-
----
-
-Esa noche, ya en la cama, Mariana le hizo una pregunta a Santi que llevaba días dándole vueltas.
-
-— ¿Te preocupa que esto vuelva a pasar? —preguntó—. Otro susto, quiero decir, en los meses que vienen.
-
-— Un poco —admitió Santi—. Pero también aprendí algo de esto: que un susto no es lo mismo que una catástrofe. Que el cuerpo puede dar señales de advertencia sin que eso signifique que todo se perdió otra vez.
-
-— Eso es un cambio importante, en cómo pensás las cosas —dijo Mariana—. Hace un año, cualquier dolor te hacía pensar en lo peor de inmediato.
-
-— Supongo que eso también es parte de la recuperación —dijo Santi—. No solo física. La forma en que mi cabeza procesa el miedo, también cambió este año, gracias a todo lo que aprendimos, juntos y por separado.
-
----
-
-Carmen, cuando finalmente Santi y Mariana volvieron a Colombia semanas después, lo recibió con un abrazo que reflejaba el miedo acumulado durante esas horas de octubre.
-
-— No sabés lo que sentí, esperando esa llamada de Mariana —dijo Carmen—. Por un momento pensé que estábamos otra vez en el mismo lugar de hace un año.
-
-— Lo sé, mamá —dijo Santi—. Lo siento por haberte hecho pasar por eso otra vez.
-
-— No te disculpes —dijo Carmen—. Estas cosas pasan, en una recuperación así. Lo que importa es que la noticia final fue buena, y que seguís acá, con nosotros, peleando por volver.
-
----
-
-Esa noche, en el balcón de Laureles, Hernando volvió a abrir el cuaderno que había guardado desde octubre.
-
-No necesitaba que Santi le repitiera nada — ya lo sabía todo, palabra por palabra, desde la llamada de aquella mañana en Girona. Lo que hizo, mientras Santi y Mariana terminaban de instalar las maletas en el cuarto de siempre, fue releer la línea que había escrito entonces y añadir, debajo, lo que solo se podía escribir con la distancia de las semanas:
-
-*Octubre 2025. Susto en Girona — contractura muscular, no la vértebra. Mariana, otra vez sosteniendo todo en el momento más difícil. Rodrigo y Julián, preocupados de verdad, sin necesidad de que nada se convierta en contenido. Ajuste del ritmo de entrenamiento, más conservador. Un paso atrás que, en realidad, es parte necesaria de los dos pasos adelante que vinieron antes.*
+*El sábado es Lombardia. La carrera de las hojas muertas, la que ya ganó dos veces, la última de Clarke, de Colombo y de Rensen. No sé qué va a pasar el sábado. Sé que hace un año, por estas fechas, yo escribía en este cuaderno que no había nada que anotar. Mírenme ahora: no me alcanzan las páginas.*
 
 ---

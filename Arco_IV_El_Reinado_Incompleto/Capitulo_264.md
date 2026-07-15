@@ -1,295 +1,225 @@
 # POR LA GLORIA
 ## Arco IV — El Reinado Incompleto
-### Capítulo 264 — El cierre de un año sin carreras (20 de diciembre de 2025)
+### Capítulo 264 — Il Lombardia (11 de octubre de 2025)
 
 ---
 
-*Medellín. Noviembre-diciembre de dos mil veinticinco.*
+*Lombardía, Italia. 10-11 de octubre de dos mil veinticinco. 238 km, Bérgamo → Como.*
 
 ---
 
-Noviembre transcurrió con la calma propia de un proceso que finalmente había encontrado su ritmo correcto: después del susto de octubre, Rusconi ajustó el plan de entrenamiento a una progresión todavía más gradual, con sesiones de fortalecimiento muscular específico tres veces por semana, combinadas con el trabajo aeróbico que ya formaba parte de la rutina desde agosto.
+## I. La víspera
 
-— Esto se siente distinto a octubre —le dijo Santi a Rusconi, durante una sesión a mediados de noviembre—. Más lento, pero también más seguro. No siento que estoy corriendo un riesgo cada vez que me subo a la bicicleta.
+La rueda de prensa se hizo el viernes a las cinco de la tarde, en el salón de conferencias del hotel del equipo en Bérgamo, y la organización tuvo que cambiarla dos veces de sala porque las acreditaciones no paraban de llegar: ciento cuarenta periodistas para la previa de una clásica de otoño, una cifra que en la memoria de los veteranos de la sala solo tenía comparación con las vísperas de un Mundial.
 
-— Esa sensación de seguridad es exactamente lo que buscábamos recuperar después del susto —dijo Rusconi—. El cuerpo necesita confiar en el proceso tanto como la cabeza.
+Santi se sentó detrás de la mesa con Ferretti a su izquierda y una botella de agua a la que no le quitó la etiqueta en cuarenta minutos, que era su manera de tener algo que hacer con las manos. La primera pregunta fue la que iba a ser, hecha por la RAI, sin anestesia.
 
-Mariana, mientras tanto, organizó su propio calendario de noviembre alrededor de dos proyectos paralelos: continuar el reportaje fotográfico sobre la recuperación de Santi para la revista española, y empezar a planear, con Daniela y Camilo, una posible exposición conjunta en Bogotá para principios de 2026.
+— Mañana, después de quinientos días, vuelve a encontrarse con Pogačar en una gran carrera. ¿Puede ganarle?
 
----
+— No —dijo Santi.
 
-El veinte de noviembre, en el control médico mensual que ya se había convertido en rutina, el especialista en columna que seguía el caso desde Tarbes entregó, por videollamada desde Francia, el resultado más alegre de todo el año.
+El salón se quedó esperando el resto de la frase. Santi tomó agua. Ferretti, a su lado, disimuló una sonrisa mirando sus papeles: conocía ese silencio, lo había visto crecer durante ocho años, desde el muchacho de dieciocho que respondía monosílabos en flamenco mal aprendido.
 
-— La consolidación ósea está completa, sin ninguna duda —dijo el médico, mostrando las imágenes de la última resonancia—. Los músculos de soporte ya alcanzaron un noventa y cinco por ciento de la fuerza que tenían antes del accidente, según las pruebas de Rusconi. Para cualquier propósito práctico, este cuerpo ya está listo para retomar un entrenamiento de alto rendimiento sin restricciones especiales.
+— ¿No va a desarrollar la respuesta? —preguntó el de la RAI, descolocado.
 
-— ¿Noventa y cinco por ciento? —repitió Santi, necesitando escuchar el número una segunda vez para terminar de creerlo.
+— Corrí dos carreras en quince meses —dijo Santi—. Voy más o menos al setenta por ciento del corredor que era en el Tourmalet. Pogačar está en el mejor año de su vida. Mañana no puedo ganarle, y todos los que están en esta sala lo saben tan bien como yo. Lo que pasa es que ustedes no pueden escribirlo, porque la historia del duelo vende más. No es un reproche. Es solo que a mí me toca decir la verdad, porque el sábado la carretera la va a decir de todas formas.
 
-— El cinco por ciento restante se termina de cerrar con el propio trabajo específico que viene —dijo el médico—. Pero la fractura, la lesión que nos preocupó durante catorce meses, ya no es un factor limitante. Es historia.
+— Entonces, ¿a qué viene mañana? —preguntó una periodista de Marca.
 
-Esa noche, Santi llamó a Hernando antes que a nadie, con una emoción que no había sentido desde la victoria de París en 2023.
+— A terminar la carrera más linda del mundo —dijo Santi—. Y a empezar otra cosa que todavía no sé cómo se llama.
 
-— Noventa y cinco por ciento, papá —dijo Santi, con la voz quebrada—. Casi al cien.
+Hubo un momento, hacia la mitad de la conferencia, en que la sala entera se calló de una forma distinta. Fue cuando un periodista francés, con la cortesía quirúrgica de los que hacen la pregunta que nadie quiere hacer, mencionó la bajada.
 
-— Lo sabía —dijo Hernando, también con la voz temblando—. Lo sentía en cómo hablabas las últimas semanas. Esto era solo la confirmación.
+— El recorrido de mañana tiene tres descensos rápidos en los últimos cincuenta kilómetros. Usted no baja en competencia desde el Tourmalet. ¿Piensa en la caída cuando baja?
 
----
+Ferretti se movió en la silla, listo para intervenir, y Santi lo frenó con un gesto mínimo de la mano.
 
-Rusconi, dos días después, llamó a Santi para una conversación que llevaba semanas posponiendo, esperando justamente ese resultado médico antes de plantearla con seriedad.
+— Pensaba —dijo—. Todos los días, durante un año. Después aprendí, con ayuda profesional, a contar la caída en voz alta, en orden, hasta que dejó de contarse sola cuando quisiera. —Hizo una pausa, y nadie en la sala respiró demasiado fuerte—. En Emilia, la semana pasada, en la primera bajada del San Luca, se me abrieron cinco metros con la rueda de adelante. Los cerré en la sexta curva. Ese hueco de cinco metros fue el kilómetro más importante que corrí en mi vida. Mañana bajo. Es todo lo que puedo prometer de las bajadas.
 
-— Ahora que el cuerpo ya respondió, tenemos que hablar del último tramo antes del regreso —dijo Rusconi—. Y para eso, necesito decirte algo directamente, sin rodeos: entrenar a distancia, con videollamadas semanales y viajes ocasionales a Girona, funcionó para sobrevivir el año más difícil. No va a funcionar para construir la forma específica que vas a necesitar en mayo y junio.
+La última pregunta la hizo un cronista viejo de la Gazzetta, de los que ya no quedaban, uno que había cubierto treinta Lombardias y llevaba el pelo blanco peinado hacia atrás como los directores de los años ochenta. Fue el único de los ciento cuarenta que la hizo.
 
-— ¿Qué estás proponiendo? —preguntó Santi, aunque ya sospechaba la respuesta.
+— Su equipo publicó ayer un comunicado de cuatro líneas anunciando que Clarke, Colombo y Rensen se retiran después de mañana —dijo el viejo—. Ningún medio lo levantó, con todo respeto por mis colegas, porque estaban ocupados con los titanes. Veinte años de carrera entre los tres. ¿Quiere decir algo de ellos?
 
-— Que te instales en Girona, cerca del equipo, de la fisioterapia, del túnel de viento en Ginebra, de todo lo que hace falta para los últimos meses antes de la vuelta —dijo Rusconi—. No un viaje de unas semanas, como los que ya hiciste. Una mudanza real, hasta que estés compitiendo otra vez.
+Santi miró al viejo un momento largo, agradecido de una forma que no podía explicarse delante de ciento cuarenta personas.
 
-Santi se quedó en silencio un momento largo, sintiendo el peso completo de lo que esa propuesta significaba: no solo para él, sino para Mariana, para Hernando y Carmen, para toda la vida que había construido en Laureles durante ese año de recuperación.
+— Mañana se retiran tres corredores que no salieron nunca en una portada —dijo—. Uno me enseñó a pedalear sobre adoquines cuando yo tenía dieciocho años y las manos en carne viva. Otro me llevó al pie de todas las montañas donde gané algo. El tercero tiró de mí setenta y dos kilómetros un día de viento, y en la televisión no lo nombraron ni una vez. —Tomó aire—. Tenían el retiro decidido hace dos años. Se quedaron cuando me rompí la espalda, sin decírmelo, para no colgar la bicicleta mientras yo estuviera en el suelo. Donde sea que yo termine mañana, voy a haber llegado ahí porque ellos me trajeron. Eso vale para mañana y vale para los últimos siete años. —Miró al viejo de la Gazzetta—. Gracias por ser el único que preguntó.
 
-— Necesito hablarlo con Mariana antes de decir cualquier cosa —dijo Santi, finalmente—. Pero en lo que a mí respecta, sé que tenés razón.
+A la misma hora, en el hotel de UAE, la rueda de prensa de Pogačar duró once minutos y produjo el titular esperado. "¿Su rival de mañana es Reyes?", le preguntaron. "Mi rival de mañana es la carrera", dijo Pogačar. "Reyes es el motivo de que la carrera importe." Y en el hotel de Soudal, ante una sala con un tercio de las sillas ocupadas, un periodista belga fue el único que le preguntó a Remco Evenepoel por el relato de los dos titanes.
 
----
+— Los relatos los escriben ustedes —dijo Remco, con una sonrisa que no le llegó a ninguna parte de la cara—. Las carreras las escribimos nosotros. A veces coinciden.
 
-Esa misma noche, en el patio bajo el níspero, Santi le planteó la idea a Mariana con la misma honestidad directa que Rusconi había usado con él.
-
-— Rusconi quiere que me mude a Girona —dijo Santi, sin rodeos—. No un viaje más. Una mudanza real, hasta el regreso a competencia. Probablemente varios meses, quizás más de un año si las cosas se extienden.
-
-Mariana se quedó callada un momento, sopesando la noticia con la misma seriedad con que había enfrentado cada decisión importante de ese año.
-
-— ¿Y qué querés vos, más allá de lo que dice Rusconi? —preguntó Mariana, directamente.
-
-— Quiero volver a competir de la mejor forma posible —dijo Santi—. Y sé, sin ninguna duda, que eso significa estar allá. Pero no quiero pedirte que dejes tu vida acá sin que lo decidamos juntos, de verdad, no que yo asuma que vas a seguirme sin preguntarte.
-
-— Ya lo decidí, en realidad, antes de que terminaras de explicarlo —dijo Mariana, con una sonrisa que sorprendió a Santi por su rapidez—. Hace meses que sabía que este momento iba a llegar, de una forma u otra. La revista española me puede seguir contratando desde cualquier lugar de Europa, probablemente con más facilidad todavía. Y la exposición de Bogotá ya está casi lista; la podemos inaugurar antes de irnos, o yo puedo volver esa semana específica, si hace falta.
-
-— ¿Estás segura? —insistió Santi—. Dejar Medellín, tu familia, todo lo que construiste acá este año.
-
-— Estoy segura —dijo Mariana, sin dudarlo—. Lo que construí este año no fue una ciudad. Fue una vida con vos, con tu familia. Esa vida se puede mudar. Lo único que no se puede mudar es lo que sentimos, y eso ya decidió quedarse, sin importar el código postal.
+Nadie recogió la cita. Esa tarde no había espacio en los diarios para un hombre que solamente había ganado todo.
 
 ---
 
-A mediados de noviembre, Julián propuso grabar finalmente el episodio que habían dejado pendiente desde junio, la conversación completa sobre la noche más oscura del año, ahora que Santi se sentía con la distancia emocional suficiente para compartirla públicamente.
+## II. La mañana
 
-— ¿Estás listo para esto? —preguntó Julián, antes de empezar a grabar.
+Esta vez fue Santi el que prendió los dorsales.
 
-— Creo que sí —dijo Santi—. Si esto le sirve a alguien que esté pasando por algo similar, vale la pena mostrar la parte fea también, no solo la recuperación pulida.
+Clarke estaba de espaldas en el bus, hablando con Koen sobre la presión de las ruedas, y cuando sintió las manos en la espalda no se dio vuelta. Se quedó quieto, como se quedan quietos los hombres que entienden lo que está pasando y saben que mirarlo de frente lo arruinaría. Cuatro imperdibles, cuatro movimientos exactos, los mismos con que Clarke le había prendido el suyo en Bolonia una semana atrás. Después Santi hizo lo mismo con Colombo, que no paró de hablar en italiano de cosas sin importancia para no llorar antes de las diez de la mañana, y por último con Rensen, que se dejó prender el último dorsal de su carrera mirando por la ventana, y al final dijo:
 
-El episodio, publicado a finales de noviembre, resultó ser, según las propias palabras de Julián, "el más crudo y honesto que grabamos en cinco años de podcast", con Santi describiendo, sin ninguna edición que suavizara la intensidad, la desesperación de esa noche de junio, el miedo a no volver a ser el mismo, y la forma en que Mariana, Hernando y el resto de su círculo cercano lo habían sostenido a través de eso.
+— Gracias.
 
-— Recibí mensajes de gente que nunca pensé que escucharía este podcast —le dijo Julián a Santi, días después de la publicación—. Padres de atletas lesionados, psicólogos deportivos, gente que simplemente está pasando por su propia crisis personal, sin ninguna relación con el deporte.
+Y de Rensen, eso era un discurso de despedida completo.
 
-— Eso es exactamente lo que esperaba, sin atreverme a decirlo en voz alta —dijo Santi—. Que esto sirviera para algo más grande que mi propia historia.
+Afuera, Bérgamo estaba irreconocible. La Gazzetta había titulado a toda la portada —*I DUE TITANI*— sobre una foto compuesta: Pogačar a la izquierda, Santi a la derecha, el lago de Como en el medio como un campo de batalla con cisnes. En la página tres, en un recuadro del tamaño de una publicidad de neumáticos, aparecía el resto de los favoritos, y Remco Evenepoel —campeón olímpico doble, campeón del mundo doble, ganador de una Vuelta— figuraba con una línea y media. En la firma del control, cuando los tres coincidieron en la tarima con quince segundos de diferencia, el rugido del público fue para dos. Mariana, desde la zona de prensa, fotografió la cara de Remco en ese instante exacto, y meses después diría que fue la foto más elocuente que tomó en todo el año: un hombre aplaudido por miles y visto por nadie.
 
----
+En la reunión táctica del bus, Ferretti fue breve porque no había nada complicado que decir.
 
-Mariana, mientras tanto, avanzó con los planes para la exposición conjunta en Bogotá, viajando a la capital por una semana a principios de diciembre para reunirse con Daniela y Camilo y definir los detalles finales del proyecto.
+— Rensen: el lago, el viento, los primeros ciento veinte. Clarke: la fuga es tuya, la quiero a menos de cuatro al pie del Ghisallo. Marco: el Ghisallo entero, hasta donde llegues. —Miró a los tres veteranos uno por uno—. Veinte años les pedí lo mismo y nunca me fallaron. Hoy no les pido nada. Hoy les agradezco por adelantado.
 
-— Va a ser raro, exponer en Bogotá después de tanto tiempo viviendo en Medellín —le dijo Mariana a Daniela, durante una de las reuniones de planificación.
-
-— ¿Raro malo o raro bueno? —preguntó Daniela, repitiendo, sin saberlo, la misma pregunta que Mariana le había hecho a Santi meses atrás sobre la mudanza.
-
-— Raro bueno, creo —dijo Mariana—. Es como volver a una parte de mi vida que dejé en pausa, pero sin haber dejado de ser yo en el proceso.
-
-Camilo, revisando las fotos seleccionadas para la exposición —una combinación de la serie de oficios tradicionales de Medellín y algunas imágenes nuevas, más íntimas, de la recuperación de Santi que la revista española había publicado parcialmente—, hizo un comentario que tocó algo profundo en Mariana.
-
-— Tu trabajo cambió mucho este año —dijo Camilo—. Antes fotografiabas desde una distancia más segura, casi periodística. Ahora hay algo más vulnerable en tus fotos, más cercano.
-
-— Supongo que viví algo que me obligó a acercarme más a la vulnerabilidad, en general —dijo Mariana—. Eso se nota en el trabajo, sin que yo lo planeara conscientemente.
+— Pedí igual —dijo Clarke—. Trabajamos mejor con pedidos.
 
 ---
 
-Durante ese mismo viaje a Bogotá, Mariana aprovechó para visitar a sus padres, que habían regresado a Bucaramanga después de su viaje a Medellín en octubre, pero que coincidieron en la capital para verla antes de las fiestas.
+## III. La carrera
 
-— Te ves distinta —le dijo su madre, observándola con atención durante el almuerzo—. Más tranquila, aunque también más cansada.
+*[Cabina de la RAI, kilómetro 85. Bettini y Cassani, los mismos que habían narrado juntos los cierres de temporada de los últimos años.]*
 
-— Las dos cosas son ciertas —admitió Mariana—. Este año me cambió de formas que todavía estoy procesando.
+*— ...y la fuga del día mantiene tres minutos cuarenta, Davide, con el pelotón controlado desde temprano por el tren del MercadoLibre-FCV. Audiencia récord histórica para una clásica, nos confirman: este Lombardia se está viendo en ochenta países. Todos esperando lo mismo: Pogačar contra Reyes, el reencuentro.*
 
-— ¿Para bien? —preguntó su madre.
+*— Sí, Paolo, pero yo quiero que la gente en casa mire otra cosa un momento, si me lo permite. Miren quién tira del pelotón desde hace sesenta kilómetros, junto al lago: el danés Rensen. Cuarenta años casi. Las manos bajas, el gesto quieto. Yo corrí contra los de su clase toda mi vida: son los que nunca ganan nada y sin los cuales nadie gana nada. Hoy es su última carrera, y la de Clarke, y la de Colombo. Lo anunció el equipo con cuatro líneas, sin foto. Quédense con la imagen, señores, aunque sea un momento, porque el ciclismo también es esto que no sale en las portadas.*
 
-— Para bien, en general —dijo Mariana—. Aunque el camino para llegar ahí no fue nada fácil.
+*— Treinta segundos de homenaje, Davide, y volvemos a los titanes, que la carrera no espera...*
 
-Su padre, escuchando la conversación, agregó algo que reflejaba su propia experiencia reciente conociendo a la familia de Santi.
+La carrera fue larga como es larga siempre la última del año, doscientos treinta y ocho kilómetros de otoño lombardo. Rensen tiró del pelotón sesenta kilómetros planos junto al lago con ese estilo suyo de metrónomo que no gastaba un gesto, y cuando terminó su trabajo y se dejó caer hacia atrás, se tocó la visera del casco con dos dedos, mirando a Santi, y desapareció del grupo como había vivido en él: sin ruido. Clarke controló la fuga con la vieja aritmética que ningún potenciómetro le enseñó nunca —tantos hombres, tanto viento, tanta hambre— y entregó la carrera ordenada al pie del Ghisallo, a tres minutos cincuenta y cinco, porque Clarke entregaba las carreras como los relojeros entregan los relojes.
 
-— Lo que vi en esa casa de Laureles, en octubre, fue una familia real, con sus dificultades, pero con un amor genuino sosteniéndolo todo —dijo el padre—. Me alegra que hayas encontrado un lugar así, aunque esté lejos de nosotros.
+Y en el Ghisallo, la subida del santuario de las madonas del ciclismo, le tocó el turno al último: Colombo, treinta y siete años, la cara desencajada y feliz, marcando un ritmo que le dolía en cada pedalada, subiendo de primero el puerto entero como no lo había hecho en toda su carrera, porque los últimos metros de trabajo de una vida se hacen con lo que queda y con lo que no queda también. Cuando terminó de gastarse, a doscientos metros de la cima, se hizo a un lado, buscó a Santi con la mirada, y le dijo lo único que le quedaba por decir en un pelotón:
 
----
+— *Vai.*
 
-De vuelta en Medellín, días antes de Navidad, Restrepo organizó una pequeña ceremonia de cierre de año en el gimnasio de San José de la Montaña, presentando un informe completo del crecimiento del programa durante 2025 a los padres de los niños inscritos, con Santi presente como invitado de honor.
+*[Cabina de la RAI, Muro di Sormano.]*
 
-— Cuarenta y ocho niños ahora —anunció Restrepo, ante el grupo reunido—. El año más grande de crecimiento desde que abrimos el gimnasio.
+*— ¡Se rompe la carrera, se rompe! El Sormano hace la selección de siempre, Davide: Pogačar, Evenepoel, el joven del Toro, Storer, media docena más... ¡y está Reyes! ¡Reyes está en el grupo de los mejores, señores, al Sormano no se sobrevive por marketing!*
 
-Uno de los padres presentes, un hombre que Santi no conocía personalmente, se acercó al final de la ceremonia con un agradecimiento que tomó a Santi por sorpresa.
+*— Está, Paolo, y miralo cómo está: sentado, quieto de hombros. Yo dije esta semana que venir a Lombardia después de quince meses era un riesgo innecesario. Empiezo a pensar que me van a hacer tragarme el micrófono.*
 
-— Mi hijo tenía once años cuando usted tuvo el accidente —dijo el padre—. Lo vio en las noticias, llorando, preocupado por alguien que ni conocía en persona. Le pregunté por qué le importaba tanto, y me dijo: "porque él nos enseñó que las caídas no definen nada, y ahora yo necesito creer eso de verdad."
+En el Civiglio, a catorce kilómetros de la meta, Pogačar hizo lo de Pogačar. Un ataque, seco, sentado, sin mirar a nadie, y la carrera se terminó para efectos del primer puesto. Remco salió detrás, a su ritmo de rodillo, administrando la persecución imposible. Y Santi, que según el plan de Rusconi debía "quedarse en el grupo y llegar", sintió en las piernas una información que no venía de las piernas.
 
-— ¿Y su hijo está bien? —preguntó Santi, conmovido.
+Después no supo explicarlo mejor que así: el cuerpo iba al setenta por ciento, pero la carrera se le abrió adelante como un libro conocido, y en la segunda rampa del Civiglio se levantó del asiento y se fue del grupo sin pedirle permiso a nadie, ni a Rusconi, ni a la fisiología, ni al año entero que llevaba encima.
 
-— Está mejor que bien —dijo el padre—. Ese año aprendió algo sobre la perseverancia que ningún entrenamiento de bicicleta le hubiera enseñado por sí solo. Gracias por eso, aunque haya sido sin querer.
+*[Cabina de la RAI, Civiglio, 13 km a meta.]*
 
----
+*— Atención. Atención, Davide, movimiento atrás... ¡ataca Reyes! ¡ATACA REYES EN EL CIVIGLIO! ¡Se va del grupo, se va solo, nadie lo sigue, NADIE PUEDE SEGUIRLO! ¡Quinientos días, señores! ¡Quinientos días después del Tourmalet, y el colombiano está atacando en el Civiglio como si el tiempo no hubiera pasado! ¡È TORNATO! ¡È TORNATO, SIGNORI, È TORNATO!*
 
-La Nochebuena, celebrada en la casa de Laureles con la tradición de siempre —natilla, buñuelos, la misa de gallo a la que Hernando y Carmen nunca faltaban—, tuvo este año un peso distinto al de cualquier otra: todos sabían, sin necesidad de decirlo en cada frase, que era la última que Santi y Mariana iban a pasar en Laureles antes de instalarse en Girona, una vez que la exposición de Bogotá quedara inaugurada y los preparativos del viaje estuvieran listos, probablemente a mediados de enero.
+*— ...Paolo, yo... miren la cara de los que se quedaron. Del Toro mira alrededor buscando piernas y encuentra a todos mirándose entre sí. Esa mirada, señores, yo la conozco desde adentro. Esa mirada es el pelotón entendiendo algo antes que nosotros: que volvió. No a terminar carreras. Volvió.*
 
-Mariana, ya completamente integrada a cada ritual de la familia, ayudó a Carmen a preparar la natilla desde temprano en la tarde, aprendiendo la receta exacta que se había transmitido en esa familia por generaciones, con una atención todavía más cuidadosa que la de cualquier año anterior, sabiendo que la próxima Navidad la iba a celebrar, probablemente, a miles de kilómetros de esa misma cocina.
+Fue en ese momento —lo contarían después los propios corredores, en declaraciones que la prensa italiana imprimió como partes de guerra— cuando el pelotón supo. No cuando terminó la carrera: ahí, en la rampa del Civiglio, cuando la silueta inconfundible, esa forma de escalar que no se había visto en quince meses, se despegó del grupo de los mejores del mundo y ninguno de los que quedaban pudo o quiso seguirla.
 
-— Tenés que revolver constantemente, sin parar, o se pega en el fondo —le explicó Carmen, mientras las dos trabajaban juntas en la cocina—. Mi mamá me enseñó así, y yo te enseño a vos ahora.
+— Volvió —dijo por radio el director de una escuadra rival, a sus corredores, sin ninguna instrucción táctica adjunta—. Para que lo sepan. Volvió.
 
-— Es un honor que confíes en mí con la receta familiar —dijo Mariana, sonriendo, revolviendo con la dedicación de quien entiende el peso simbólico de ese gesto.
+Como apareció abajo, con el lago gris plata del otoño, y Santi bajó el Civiglio solo —la bajada entera, curva tras curva, con el año encima: el helicóptero, el corsé, la piedra del abuelo, la noche de junio, la voz ordenada del psicólogo, la mesa plástica del café de Las Palmas— y subió San Fermo della Battaglia en tierra de nadie, a cuarenta segundos de Remco, a más de un minuto de Pogačar, sin ver a ninguno de los dos. Viendo solamente la carretera y las hojas.
 
-Esa noche, después de la misa, los cuatro se sentaron en el patio bajo el níspero, con las luces de Navidad que Hernando había colgado esa misma tarde, en una tradición que mantenía desde que Santi era niño.
+Pogačar ganó con los brazos abiertos en el lungolago de Como, su tercera Lombardia, y la celebró apenas, girándose hacia atrás casi de inmediato, buscando en la recta lo que la radio ya le había contado. Remco cruzó segundo a treinta y ocho segundos, con esa cara suya de contabilidad interna: un podio más en un año de podios, en la carrera que una vez casi lo mata. Y cincuenta y nueve segundos después del ganador, tercero, apareció Santi.
 
----
+Lo que hizo el público de Como en esos últimos doscientos metros no fue una ovación. Fue otra cosa, algo que los cronistas viejos compararon con las llegadas de otro siglo: la gente no aplaudía un podio, aplaudía la existencia. Santi cruzó la línea y no levantó los brazos —tercero no se celebra, le había enseñado el padre hacía veinte años—, pero se sentó erguido, soltó el manillar, y se llevó las dos manos a la cara, y la fotografía de ese gesto, tomada desde la moto de frente, con las hojas muertas pegadas al asfalto húmedo, fue portada en cuatro países al día siguiente.
 
-— ¿Te acordás de las navidades de antes del ciclismo? —le preguntó Hernando a Santi, mirando las luces—. Cuando lo único que importaba era si Papá Noel te traía la bicicleta que pedías.
+En el carro del equipo, Rusconi miró la tablet con los datos en vivo, la apagó sin decir nada, y se quedó mirando la calle. Ferretti, a su lado, no le preguntó nada, porque llorar y manejar ya era suficiente trabajo.
 
-— Me acuerdo perfecto —dijo Santi—. La primera bicicleta de verdad que tuve, la que me regalaron a los siete años. Esa noche fue la mejor de mi infancia, sin ninguna duda.
-
-— Esa misma bicicleta sigue guardada en el garaje, ¿sabés? —dijo Hernando—. Nunca tuve el corazón de venderla ni regalarla.
-
-— No sabía eso —dijo Santi, sorprendido—. ¿Por qué la guardaste?
-
-— Porque algún día quiero que tu hijo, si llegás a tenerlo, aprenda a andar en esa misma bicicleta —dijo Hernando, con una ternura que tomó a todos por sorpresa.
-
-Mariana y Santi se miraron, sin decir nada, pero con una sonrisa que comunicaba más que cualquier palabra sobre lo que ese comentario implicaba para el futuro que ambos, sin haberlo discutido todavía explícitamente, ya empezaban a imaginar juntos.
-
-— Esa bicicleta se queda acá, eso sí —dijo Santi, después de un momento—. Aunque nosotros nos vayamos a Girona, este garaje sigue siendo la casa de esa bicicleta. Y la nuestra, cada vez que volvamos.
-
-— Por supuesto que se queda acá —dijo Hernando—. Esta sigue siendo su casa, sin importar cuántos países tengan que cruzar este año para entrenar.
-
-Carmen, escuchando la conversación desde el otro lado de la mesa, no pudo evitar que se le llenaran los ojos de lágrimas, una mezcla de orgullo y de la tristeza anticipada de saber que, por primera vez en la vida adulta de su hijo, la distancia iba a ser permanente, no solo la de un calendario de carreras que siempre terminaba con un regreso a casa.
-
-— Va a estar bien —le dijo Hernando a Carmen, en voz baja, tomándole la mano—. Lo vamos a visitar. Y esta vez, sin necesitar ningún accidente para tener la excusa de ir a verlo correr en persona.
+Dieciocho minutos después, dentro del tiempo pero fuera de todas las cámaras, el gruppetto entró al lungolago, y en la última fila, uno al lado del otro, ocupando el ancho de la calle vacía, cruzaron la meta Clarke, Colombo y Rensen, sin soltarse el manillar, sin gestos, tres obreros fichando la salida por última vez. No hubo transmisión que lo registrara. Hubo una fotógrafa bogotana arrodillada en el asfalto, junto a la valla, que disparó una sola vez.
 
 ---
 
-Antes de la reunión financiera, Ferretti pidió un espacio aparte, solo con Santi, para hablar de algo que no tenía que ver con su recuperación personal sino con el resto del equipo.
+## IV. La rueda de prensa
 
-— Hay un balance del año que te debo, como director, y que no quería mezclar con los números de Duarte —dijo Ferretti—. Cómo le fue al equipo, en las carreras, sin vos.
+El protocolo del podio fue el de siempre: flores, el himno esloveno, los fotógrafos gritando apellidos. Después los sentaron a los tres detrás de la mesa larga de la conferencia de prensa —Pogačar, Remco, Santi, en ese orden— y las primeras once preguntas fueron para el primero y el tercero.
 
-— Decime —dijo Santi, con una curiosidad genuina que no había sentido antes de preguntarlo, ocupado durante meses casi exclusivamente en su propio cuerpo.
+Le preguntaron a Pogačar por su tercera Lombardia y contestó con cortesía de campeón aburrido. Le preguntaron a Santi por el Civiglio y dijo la verdad: que no lo había planeado, que Rusconi probablemente lo iba a regañar esa noche, que las piernas habían decidido solas. Le preguntaron si había llorado al cruzar la meta y dijo que no se acordaba, lo cual era su manera de decir que sí. Le preguntaron a Pogačar si el duelo estaba de vuelta y dijo que esperaba que sí, mirando de reojo a Santi con esa sonrisa de ajedrecista al que le acaban de devolver el rival.
 
-— Mal —dijo Ferretti, sin suavizarlo—. El Giro lo corrimos sin ningún objetivo de clasificación general real. Arroyave terminó vigésimo octavo, su mejor resultado en un Grand Tour en toda su carrera, y lo celebramos como si hubiera sido un podio, porque en términos de lo que el equipo necesitaba demostrar, lo fue. En el Tour, ningún corredor del equipo terminó entre los quince primeros de la general. Luca corrió la Vuelta como gregario de un líder que no existía, ayudando a quien fuera que ese día tuviera mejores piernas, sin ninguna jerarquía clara. Ningún podio de Grand Tour. Dos victorias de etapa en todo el año, las dos de corredores jóvenes en carreras de una semana, nada en Monumentos ni en clásicas grandes.
+La duodécima pregunta también empezó siendo para ellos.
 
-Santi escuchó el resumen completo, sintiendo, por primera vez, el peso específico de lo que su ausencia había significado más allá de su propia vida.
+— Pregunta para Tadej y para Santiago —dijo un periodista italiano—. Este reencuentro de los dos más grandes, ¿es el comienzo de una nueva era del duelo que el Tourmalet interrumpió?
 
-— Nunca pensé en eso con esta claridad —admitió Santi—. Estaba tan metido en mi propia recuperación que no medí lo que le costaba al resto.
+Santi se inclinó hacia el micrófono antes de que Pogačar alcanzara el suyo.
 
-— No tenías que medirlo —dijo Ferretti—. Para eso estoy yo. Pero sí quiero que sepas que el equipo entero corrió este año sabiendo que no tenía, en ningún momento, un candidato real a pelear arriba. Eso desgasta a un grupo, carrera tras carrera, más de lo que cualquier número de presupuesto puede compensar.
+— En esta mesa hay un corredor que ganó dos campeonatos del mundo, dos oros olímpicos y una Vuelta —dijo—, y que hoy nos llegó adelante a mí y atrás solamente del mejor del mundo. Está sentado en el medio y llevan cincuenta minutos preguntando alrededor de él. Si la historia que quieren escribir no le tiene espacio a Remco Evenepoel, la historia está mal escrita.
 
-— ¿Y los patrocinadores del equipo, no de los míos personales, cómo lo tomaron? —preguntó Santi.
+Hubo un silencio incómodo de tres segundos, un par de fotógrafos disparando por reflejo, y Remco, sin girar la cabeza, dijo en voz baja, en español, solo para la mesa:
 
-— Con paciencia, hasta ahora —dijo Ferretti—. MercadoLibre renueva en 2026, y la dirección ya me preguntó, dos veces este semestre, si el plan de tu regreso era realista o si necesitaban empezar a pensar en un proyecto deportivo distinto, con otro corredor como eje. Les dije que sí era realista. Pero te voy a ser honesto: si 2026 vuelve a ser un año sin resultados de Grand Tour, esa pregunta va a volver, y la próxima vez no va a ser tan fácil de responder con paciencia.
+— No necesitaba el favor.
 
-— Entonces 2026 importa más de lo que pensaba, para más gente que solo yo —dijo Santi, pensando en Arroyave, en Luca, en los gregarios jóvenes que habían pasado el año entero corriendo sin ningún resultado que celebrar.
+— No era un favor —dijo Santi, igual de bajo.
 
-— Siempre importó por más gente que solo vos —dijo Ferretti—. Eso nunca cambió. Lo que cambió este año es que, por primera vez, todos lo sintieron al mismo tiempo, sin vos ahí para repartir el peso.
+— Ya lo sé —dijo Remco. Y después, mirando al frente, con la mandíbula quieta—: Por eso lo digo.
 
----
+Fue todo. Pero Mariana, que fotografiaba la conferencia desde el costado, capturó el instante exacto: los tres de perfil, Pogačar divertido como un espectador de lujo, y entre los otros dos algo nuevo, todavía sin nombre, que no era amistad ni enemistad sino la primera página de otra cosa.
 
-La reunión anual con Duarte, Patiño y Salcedo, programada como cada año para el 20 de diciembre, tuvo en 2025 un carácter completamente distinto a cualquiera de las anteriores: sin bonos de carrera, sin clasificaciones generales, sin ningún resultado deportivo que repasar, porque por primera vez en la carrera profesional de Santi, el año entero había transcurrido sin competir.
+La última pregunta fue del cronista viejo de la Gazzetta, que levantó la mano desde el fondo y la sala, esta vez, se calló sola.
 
-— Este es el año más raro que voy a registrar en esta mesa —dijo Duarte, abriendo la carpeta con una sonrisa que reflejaba, sin embargo, un alivio genuino—. Pero también el año donde más aprendí sobre lo que esta carrera de patrocinios realmente representa, más allá de los resultados.
+— Ayer le pregunté por sus tres compañeros —le dijo a Santi—. Hoy cruzaron la meta juntos, en la última fila del gruppetto, y lo vi solamente yo, porque mis colegas estaban acá adentro esperándolos a ustedes. ¿Algo que agregar a lo de ayer?
 
-— ¿Qué pasó con los patrocinadores, finalmente? —preguntó Santi.
-
-— Casi todos se mantuvieron, con ajustes razonables —dijo Patiño—. Bancolombia, Claro, Garmin, redujeron sus pagos durante el año de inactividad, pero ninguno canceló el contrato. IWC y MercadoLibre hicieron lo mismo. Solo Red Bull y la aerolínea, los contratos más nuevos, pidieron una renegociación más significativa, lo cual es comprensible dado lo reciente de esos acuerdos.
+— Sí —dijo Santi—. Que llegaron dentro del tiempo. Veinte años y nunca, ni una sola vez, llegaron fuera del tiempo. Escriba eso, que es la estadística más grande de las que se van a publicar mañana.
 
 ---
 
-— Total del año, en términos brutos —dijo Salcedo, desde la pantalla—: dos millones cien mil euros. Una fracción de lo que generaste en 2023, pero mucho más de lo que cualquier proyección pesimista hubiera anticipado en julio del año pasado, considerando que no corriste ni un solo día de competencia oficial.
+## V. El bus
 
-— ¿Y la Fundación? —preguntó Santi, con un interés genuino que reflejaba la prioridad que había tomado ese proyecto durante el año de recuperación.
+A los tres veteranos los esperó en el parking, ya de noche, una escena sin protocolo. Koen había lavado las tres bicicletas él mismo, sin que nadie se lo pidiera, y las había apoyado contra el bus, alineadas, con los números todavía puestos. Cuando Clarke le preguntó por qué no les había quitado los dorsales, el mecánico belga se encogió de hombros.
 
-— La Fundación tuvo su mejor año, en realidad —dijo Salcedo—. Recibió ochocientos mil euros, entre el aporte habitual y donaciones extraordinarias de solidaridad de varios patrocinadores. El programa llegó a once municipios este año, el mayor crecimiento de su historia.
+— Los dorsales los quita el que decide que la carrera terminó —dijo Koen—. Ese no soy yo.
 
-— Eso es lo que más me importa de todo este informe —dijo Santi, con una satisfacción que no tenía nada que ver con ningún número de su propio ingreso—. Que incluso en el peor año deportivo de mi carrera, la Fundación creció más que nunca.
+Adentro del bus estaba el equipo entero, y Ferretti había autorizado, por primera vez desde una victoria de Grand Tour, prosecco en vasos plásticos. Arroyave los repartió sin derramar casi nada, Luca hizo espacio en los asientos del fondo, y durante un rato el bus fue lo que son los buses en las noches buenas: un vestuario con ruedas, olor a linimento y a espuma de ducha, risas de hombres cansados.
 
-— Eso dice algo importante sobre lo que construiste, más allá de las carreras —dijo Patiño—. Un legado que no depende exclusivamente de tu rendimiento en una bicicleta.
+Ferretti se paró en el pasillo, golpeó el vaso plástico con el anillo, y el bus se calló. Todos sabían que había preparado algo: se le notaba en cómo se había peinado para la conferencia de prensa. Abrió la boca, miró a Clarke, miró a Colombo, miró a Rensen, y las tres frases que traía escritas desde hacía una semana no le salieron. Levantó el vaso.
 
----
+— *Grazie* —dijo. Y después, porque la voz no le daba para más—: *Grazie. Grazie.*
 
-Antes de cerrar la reunión, Duarte mencionó algo que llevaba semanas queriendo plantear.
+Tres veces, una por cabeza. El bus entero se puso de pie con un ruido de vasos plásticos que no sonaba a nada y sonaba a todo.
 
-— El equipo, y varios patrocinadores, preguntaron por un posible regreso público —dijo Duarte—. La gente quiere saber cuándo vas a volver a competir. ¿Querés que demos alguna fecha, o seguimos con el perfil bajo?
+Más tarde, cuando el equipo se fue bajando de a poco hacia el hotel y el parking se quedó en silencio, quedaron los cuatro: las sillas plegables junto al bus, las tres bicicletas limpias, las flores del podio de Santi tiradas en el piso junto a la cuarta silla, porque hay cosas más importantes que las flores. En la explanada, los camiones de la organización desarmaban la meta con ese ruido de fin de fiesta que todos los ciclistas del mundo conocen y ninguno sabe describir.
 
-Santi lo pensó un momento, recordando todo lo que había aprendido durante el año sobre el peligro de las expectativas prematuras.
+— Tercero —dijo Clarke, a modo de saludo, como Pogačar en Bolonia—. Te dije que el sábado había que volver. Exagerado, como siempre.
 
-— Demos una fecha aproximada, sin comprometernos a un resultado —dijo Santi—. Mediados de 2026, según Rusconi. Sin prometer victorias, solo prometiendo que voy a estar de vuelta en una carrera, compitiendo otra vez.
+Santi se sentó en la cuarta silla. Nadie habló durante un rato.
 
-— Hay algo más que quiero que sepan, antes de que lo anuncien de cualquier forma —agregó Santi—. Me voy a instalar en Girona, cerca del equipo, hasta el regreso. Ya no más entrenamiento a distancia desde Medellín.
+— Hoy tampoco nos vio casi nadie —dijo Clarke, por fin, mirando la meta a medio desarmar—. Cinco horas de trabajo los tres, y la transmisión nos regaló medio minuto porque Cassani se puso sentimental. Medio minuto en veinte años. —Hizo una pausa exacta—. Así queríamos irnos. Que el último día fuera igual a todos los demás.
 
-— ¿Cuándo? —preguntó Duarte, ya tomando notas para la logística.
+— Hoy los vi yo —dijo Santi—. El Ghisallo entero. Y el viejo de la Gazzetta los vio cruzar la meta. Y Mariana tiene la foto. —Miró las tres bicicletas—. Para la historia que importa, alcanza y sobra.
 
-— A mediados de enero, después de la exposición de Mariana en Bogotá —dijo Santi—. Necesito coordinar la mudanza, el apartamento, todo lo que haga falta allá.
+Colombo lloró sin esconderse, porque era italiano y estaba en Italia y tenía derecho. Rensen se levantó, arrancó con cuidado el dorsal de su bicicleta —el que Koen no había querido quitar—, y se lo puso a Santi en la mano, doblado en cuatro. No dijo nada. Ya había gastado su palabra del día en la mañana.
 
-— Eso simplifica varias cosas, en realidad —dijo Duarte—. Vamos a comunicarlo junto con la fecha aproximada de regreso: que te instalás en Europa para encarar la última etapa de la preparación con el equipo, de cerca. Es una buena noticia, dicha así. Refleja seriedad, no desesperación.
-
-Rusconi, en la última llamada de seguimiento del año, repasó con Santi el plan completo para los primeros meses de 2026: fortalecimiento muscular específico en enero y febrero, incremento gradual de volumen aeróbico en marzo y abril, y las primeras pruebas de potencia específica en mayo, antes de un posible regreso a competencia de bajo nivel a mediados de año.
-
-— Es un plan conservador, deliberadamente —dijo Rusconi—. Después de octubre, no quiero repetir el error de apurar nada.
-
-— Lo entiendo, y lo acepto completamente —dijo Santi—. Aprendí, este año, que la paciencia no es debilidad. Es la única forma real de construir algo que dure.
-
-— Esa frase suena a algo que tu papá diría —dijo Rusconi.
-
-— Probablemente la aprendí de él, sin darme cuenta —admitió Santi.
+Mariana tomó la última foto de la noche desde lejos, sin flash: cuatro sillas plegables, tres bicicletas limpias, un dorsal cambiando de manos. Después guardó la cámara, porque hay días en que dos fotos son suficientes.
 
 ---
 
-La cena de fin de año, organizada por Carmen con la ayuda de Mariana, se hizo más grande que en años anteriores: además de Hernando, Carmen, Santi y Mariana, se sumaron Rodrigo, Julián, Restrepo, y, por primera vez, los padres de Mariana, que viajaron especialmente desde Bucaramanga para pasar las fiestas en Medellín, en lo que se convirtió en una verdadera celebración de todo lo construido durante ese año tan particular.
+## VI. El lago
 
-— Hace un año, en esta misma mesa, no sabíamos si ibas a volver a competir nunca —dijo Hernando, levantando una copa al inicio de la cena—. Hoy sabemos que sí, aunque todavía falten meses. Eso, comparado con donde estábamos, es un regalo enorme.
+Pogačar lo encontró después, donde Santi sabía que lo iba a encontrar: en el murito del lungolago, lejos de las vallas, donde el lago se pone negro y los últimos tifosi ya no distinguen caras. Se sentó al lado sin saludar, con dos botellas de agua, y le pasó una.
 
-— Por el año que pasó —dijo Carmen, levantando su propia copa—. Por más difícil que haya sido, todos seguimos acá, juntos, más unidos que antes.
+— Quinientos días —dijo Pogačar—. Y me sacás cincuenta y nueve segundos en tu tercera carrera. Yo entrené todo el año, Santiago. Tengo derecho a ofenderme.
 
-Mariana, levantando la suya, agregó algo que reflejaba su propia experiencia del año.
+— Ibas a ganar igual entrenando la mitad —dijo Santi.
 
-— Por encontrar, en el peor año de la carrera de Santi, el mejor año de mi propia vida —dijo Mariana—. Eso no es algo que hubiera podido planear ni en mis mejores sueños.
+— Probablemente —dijo Pogačar, sin falsa modestia, porque nunca la tuvo—. Este año sí. —Le dio un trago al agua y miró el lago—. ¿Sabés qué dicen del recorrido del año que viene? Lo presentan en dos semanas. Dicen que la tercera semana pasa por los Pirineos. Dicen que baja el Tourmalet.
 
----
+Santi no contestó. Una lancha cruzó el lago a lo lejos, con una luz verde parpadeando.
 
-Rodrigo, con su humor característico, levantó su copa también, rompiendo un poco la solemnidad del momento.
+— Te dediqué un Tour una vez —dijo Pogačar—. En París, con el micrófono, delante de todo el mundo. Lo volvería a hacer: fue lo correcto. Pero te voy a decir lo que no dije ese día. —Se dio vuelta y lo miró, y ya no quedaba nada del muchacho de la pizza en Bolonia—. Odié cada segundo de ese Tour. Gané tres semanas contra un fantasma. Los periodistas me preguntaban por vos en cada meta, y yo ganaba etapas y pensaba: no cuenta, no cuenta del todo, él no está. Después gané otro este año, y tampoco contó del todo, porque todos —los periodistas, el público, yo— estábamos mirando el reloj de tu recuperación. Llevo dos Tours ganándole a tu ausencia. Y tu ausencia es el único rival al que no le puedo hacer nada.
 
-— Por las contracturas musculares que no son fracturas, por los zapatos que se atan solos, y por que este hombre finalmente entendió que no necesita ganar el Tour de Francia para que lo quiera la gente que importa —dijo Rodrigo, señalando a Santi—. Aunque obviamente esperamos que vuelva a ganarlo, eso también.
+— ¿Y qué querés que haga yo con eso? —preguntó Santi.
 
-La mesa entera se rió, con la calidez de un grupo que había atravesado, juntos de distintas formas, el año más difícil de la vida de Santi, y que ahora se encontraba celebrando no un resultado deportivo, sino algo más fundamental: la supervivencia, la familia, y la red de afecto que se había construido alrededor de la recuperación.
+— Quiero que vengas en julio —dijo Pogačar—. Entero. Al cien, no al setenta de hoy. Quiero al del Galibier del veintitrés, al que me remontó cincuenta y cinco segundos en tres etapas cuando todo el mundo decía que estaba muerto. Quiero ganarte el Tour a vos, de frente, en la montaña, o que me lo ganes vos a mí y que por lo menos sea verdad. —Hizo una pausa y bajó la voz—. Y si tiene que ser bajando el Tourmalet, mejor. Los fantasmas se matan donde nacieron.
 
-El padre de Mariana, levantando su propia copa con la timidez que lo caracterizaba, agregó algo breve pero significativo.
+Santi miró el lago un rato largo. Pensó en Ferretti y la palabra "fecha", en Duarte y las renovaciones, en Clarke diciendo *el sábado quiero verte volver*, en el dorsal de Rensen doblado en cuatro en el bolsillo de la chaqueta.
 
-— Por las familias que se construyen sin planearlo, uniendo a gente de ciudades distintas, de historias distintas, alrededor de algo importante —dijo—. Gracias por recibirnos como parte de la suya.
+— Hoy me salió gratis —dijo, por fin—. Nadie me exigía nada. En julio va a ser lo contrario: todo el mundo esperando, todo condicionado, todo en juego. —Se dio vuelta y lo miró—. Mejor. Yo tampoco quiero ganarte un Lombardia de regreso, Tadej. Quiero lo mismo que vos: julio, la montaña, los dos al cien. En julio voy a estar en la salida del Tour, y no voy a ir a terminar.
 
----
+Pogačar sonrió en la oscuridad y le tendió la mano, y se la dieron como se dan la mano los que firman algo.
 
-Julián, hacia el final de la cena, propuso algo que nadie había planeado: grabar, sin ningún propósito de publicarlo, un pequeño mensaje de cada persona presente, dirigido al propio Santi, como una especie de cápsula del tiempo del año que terminaba.
+— Julio —dijo Pogačar.
 
-— No tiene que ser nada elaborado —dijo Julián, sosteniendo el teléfono como única grabadora—. Solo algo que quieran que Santi recuerde de este año.
-
-Rodrigo fue el primero, con su humor habitual disfrazando algo más profundo.
-
-— Recordá que siempre vas a tener una ferretería en Itagüí donde nadie te va a preguntar por tu columna —dijo Rodrigo, riendo, antes de agregar, con sinceridad—: Y recordá que sos mi hermano, gane o pierda, ande en bicicleta o no.
-
-Restrepo, más serio, habló de los niños de la fundación, de cómo su recuperación se había convertido, sin que él lo planeara, en una lección viva para todos ellos.
-
-Carmen, con lágrimas en los ojos, simplemente dijo: "Recordá que estuviste vivo todo este año, y eso siempre va a ser suficiente para mí."
-
-Hernando cerró las grabaciones con una frase que resumía, de alguna forma, todo el espíritu del año: "Recordá que un día a la vez se convirtió en un año entero, y que ese año entero, contra todo pronóstico, valió la pena."
+— Julio —dijo Santi.
 
 ---
 
-Mariana, la última en grabar su mensaje, se quedó en silencio un momento antes de hablar, buscando las palabras correctas.
+Hernando escribió esa noche, en el hotel de Como, con la ventana abierta al lago porque a Carmen le gustaba dormirse oyendo el agua:
 
-— Quiero que recuerdes que te elegí este año, no a pesar de la dificultad, sino en medio de ella —dijo Mariana, mirando directamente a la cámara del teléfono—. Y que esa elección no fue un sacrificio. Fue la decisión más fácil que tomé en mi vida, porque vos valés cada día de espera, cada noche de miedo, cada pequeña victoria que celebramos juntos.
+*11 de octubre de 2025. Il Lombardia. Pogačar primero, Evenepoel segundo, mi hijo tercero, a quinientos días del Tourmalet y a cuatrocientos ochenta y tantos de que un médico en Tarbes nos dijera "de doce a dieciocho meses, si todo sale bien". Salió mejor. Tercero no se celebra, le enseñé yo hace veinte años. Hoy me desdigo: hay terceros puestos que valen carreras enteras, y el cuaderno es mío y lo escribo yo.*
 
-Cuando Julián terminó de grabar todos los mensajes, le entregó el archivo completo a Santi, sin que nadie lo escuchara de nuevo esa noche, guardándolo para un momento futuro que todos sabían, sin decirlo, que llegaría: el día en que Santi volviera, finalmente, a una línea de salida.
+*Clarke, Colombo y Rensen colgaron hoy. Veinte años de trabajo entre los tres, medio minuto de televisión —porque Cassani se acordó de qué está hecho este deporte—, y una llegada juntos, en la última fila, que vieron un cronista viejo y mi nuera con su cámara. Es exactamente el funeral que querían: sin flores, con la meta desarmándose atrás. El danés le regaló el dorsal a Santi. Lo vi guardarlo en la chaqueta como se guarda una reliquia.*
 
----
+*No sé qué se dijeron con Pogačar en el lago, porque no me lo va a contar nunca, pero volvió caminando distinto, con los hombros de antes. Yo llevo cuarenta años mirando ciclistas caminar y sé leer los hombros: eso que traía puesto era julio.*
 
-Hernando, esa noche, escribió en el cuaderno la última línea del año, cerrando, simbólicamente, el capítulo más oscuro de toda la historia que había documentado durante años en esas páginas:
-
-*31 de diciembre de 2025. Un año entero sin competir. La vértebra sanó, al noventa y cinco por ciento según los médicos, casi al cien según cómo lo veo yo, que lo conozco mejor que ninguna resonancia. Los músculos se reconstruyen. La Fundación creció más que nunca. Mariana es parte de esta familia, de verdad, desde hace meses, y sus padres también se volvieron parte de algo más grande esta Navidad. Santi está en paz, de una forma que no estaba ni siquiera en sus mejores años de victorias. Rodrigo, Julián, Restrepo: la familia que se construyó, sin planearla, alrededor de este año difícil.*
-
-*Y ahora, una noticia nueva, todavía fresca: a mediados de enero, Santi y Mariana se mudan a Girona. No es un viaje de entrenamiento más. Es la decisión de estar cerca del equipo, de Rusconi, de todo lo que hace falta para volver de la mejor forma posible. Esta va a ser la última Navidad en esta casa por un buen tiempo. Me cuesta escribir esto sin que se me apriete el pecho, pero también sé que es lo correcto. Mediados de 2026: el regreso. No sabemos todavía a qué nivel. Pero sabemos que va a volver, y que esta vez lo va a hacer desde más cerca de donde tiene que estar. Eso, después de este año, es más que suficiente para cerrar el cuaderno de 2025 con gratitud, no con lamento.*
-
-Cerró el cuaderno, pero lo volvió a abrir un minuto después, porque había algo más que necesitaba decir antes de que terminara el año, algo que no le había confesado a nadie en voz alta, ni siquiera a Carmen.
-
-*Otra cosa, antes de dormir: hace un año, en esta misma fecha, no sabía si iba a tener algo que escribir nunca más en estas páginas. Pensé, esa primera noche en el hospital de Tarbes, que el cuaderno se iba a quedar cerrado para siempre, lleno solo de carreras viejas. Hoy lo cerré por última vez en esta casa. La próxima entrada va a estar escrita desde Girona, o desde un avión, o desde donde sea que la vida nos lleve ahora. No me asusta. Después de este año, ya sé que el cuaderno no necesita un país fijo para seguir llenándose.*
+*La carrera de las hojas muertas. Vuelve todo lo que parecía terminado. Lo dije yo primero, que conste.*
 
 ---

@@ -1,211 +1,175 @@
 # POR LA GLORIA
 ## Arco IV — El Reinado Incompleto
-### Capítulo 262 — Los primeros vatios (agosto-septiembre de 2025)
+### Capítulo 262 — Los que se quedaron (julio-septiembre de 2025)
 
 ---
 
-*Medellín y Girona. Agosto-septiembre de dos mil veinticinco.*
+*Girona y Medellín. Julio-septiembre de dos mil veinticinco.*
 
 ---
 
-El control médico de agosto, catorce meses después del accidente, finalmente trajo la noticia que Santi llevaba esperando desde enero: la vértebra estaba completamente consolidada, sin ninguna restricción adicional, y el especialista en columna dio el alta definitiva para iniciar, bajo la supervisión de Rusconi, un programa de entrenamiento progresivo sin las limitaciones extremas de los meses anteriores.
+La primera evaluación física completa desde el accidente se hizo en el laboratorio de Girona, la última semana de julio, con Mariana presente porque insistió en hacer el viaje completo en lugar de esperar noticias por teléfono desde Medellín.
 
-— Esto no significa volver al nivel de antes de inmediato —le advirtió Rusconi, durante la primera sesión de evaluación física completa en más de un año, en un laboratorio de Girona adonde Santi viajó específicamente para esa prueba, esta vez acompañado por Mariana, que insistió en hacer el viaje completo en lugar de quedarse esperando noticias por teléfono desde Medellín—. Significa que ya podemos empezar a medir, con números reales, cuánto quedó del corredor que eras antes del Tourmalet.
-
-— ¿Puedo quedarme a ver la prueba? —preguntó Mariana, antes de que empezara.
+— ¿Puedo quedarme a ver la prueba? —preguntó, antes de que empezara.
 
 — Por supuesto —dijo Rusconi—. De hecho, me gustaría que la vieras. Vas a entender mejor todo lo que viene después si ves los números desde el principio.
 
----
+Los resultados fueron exactamente lo que Rusconi había anticipado: los meses de pedaleo progresivo desde abril habían reconstruido una base real, pero los números de potencia seguían lejos de cualquier referencia de los últimos cinco años.
 
-Los primeros resultados, obtenidos en una prueba de potencia máxima en rodillo, fueron exactamente lo que Rusconi había anticipado: una pérdida significativa de masa muscular y capacidad aeróbica después de catorce meses sin entrenamiento real, con números que se ubicaban muy por debajo de cualquier referencia de los últimos cinco años.
+— Esto es peor de lo que esperaba ver, en números fríos —admitió Santi, mirando la pantalla—. Sabía que iba a estar lejos, pero verlo así, en cifras, es distinto.
 
-Mariana, observando la pantalla con las curvas de potencia sin entender del todo los detalles técnicos, notó de inmediato el cambio en la expresión de Santi cuando aparecieron los números finales.
+— Estás más o menos a un sesenta y cinco por ciento del corredor del Tourmalet —dijo Rusconi, sin suavizar la realidad pero tampoco dramatizándola—. La buena noticia es que ese corredor todavía existe, en la memoria muscular y en la estructura de base. Reconstruir es más rápido que construir. Lo hicimos una vez desde cero; esto es menos que eso.
 
-— Esto es peor de lo que esperaba ver, en números fríos —admitió Santi, mirando la pantalla con los resultados—. Sabía que iba a estar lejos, pero verlo así, en cifras, es distinto.
+— ¿Cuánto tiempo, entonces? —preguntó Santi, con la pregunta que llevaba un año esperando poder hacer con sentido real.
 
-— Es exactamente lo esperado para catorce meses de inactividad casi total —dijo Rusconi, sin suavizar la realidad pero tampoco dramatizándola—. La buena noticia es que el cuerpo que tenías antes del accidente todavía existe, en la memoria muscular y en la estructura fisiológica de base. Reconstruir eso es mucho más rápido que construirlo desde cero, como hicimos en tus primeros años de profesional.
+Rusconi apagó la pantalla antes de responder, y eso, en el idioma de Rusconi, significaba que lo que venía no era un dato sino una decisión.
 
-— ¿Cuánto tiempo, entonces? —preguntó Santi, con la pregunta que llevaba meses esperando poder hacer con sentido real.
+— Podríamos esperar a 2026 —dijo—. Debut en febrero, calendario limpio, sin apuros. Es lo prudente en el papel. Pero llegarías al Tour con seis meses de carreras encima y un año y medio de fantasmas. —Hizo una pausa—. O volvés en octubre. Tres carreras en Italia, diez días: Giro dell'Emilia, Tre Valli Varesine, y Lombardia. Sin presión de resultado. Terminás la temporada con la primera línea ya cruzada, y el invierno entero trabaja para vos en lugar de contra vos.
 
-— Si todo va bien, podríamos hablar de un regreso a competencia de bajo nivel hacia mediados del año que viene —dijo Rusconi—. No al nivel de 2023. Eso podría tomar más tiempo, quizás hasta el año siguiente. Pero un regreso real, a carreras de calendario, sí.
+— Lombardia —repitió Santi.
 
----
+— Emilia y Tre Valli son duras pero cortas. Lombardia es larga —dijo Rusconi—. Es el examen perfecto: si terminás Lombardia, cualquier cosa de 2026 es posible. Y si no la terminás, mejor saberlo en octubre que descubrirlo en julio.
 
-Esa noche, en el hotel de Girona, Mariana, que llevaba toda la tarde procesando en silencio los números que había visto en el laboratorio, le hizo una pregunta a Santi que reflejaba su propia forma de entender la situación.
+Santi miró a Mariana, que había seguido la conversación sin entender del todo los números pero entendiendo perfectamente la cara de Santi, y después miró otra vez a Rusconi.
 
-— ¿Qué te pasa por la cabeza, viendo esos números tan bajos, comparados con los de antes? —preguntó Mariana.
-
-— Triste, al principio —admitió Santi—. Pero también, raramente, motivado. Es la primera vez en catorce meses que tengo algo concreto que mejorar, en lugar de simplemente esperar que la columna sane sin poder hacer nada activo al respecto.
-
-— Eso tiene sentido —dijo Mariana—. Es más fácil pelear contra un número bajo que pelear contra la incertidumbre completa.
-
-— Exactamente —dijo Santi—. Por primera vez desde el accidente, tengo un objetivo claro otra vez, aunque sea un objetivo pequeño: mejorar ese número, semana tras semana.
-
-Esa noticia, la primera fecha concreta que Santi recibía desde el accidente, generó una mezcla de alivio y ansiedad que describió esa noche, por teléfono, a Hernando, mientras Mariana escuchaba desde la cama del hotel.
+— Octubre —dijo.
 
 ---
 
-— Mediados del año que viene —repitió Santi, hablando con su padre—. Es la primera vez que tengo algo parecido a una fecha, después de catorce meses de "no sabemos todavía".
+Esa noche llamó a Hernando desde el hotel, mientras Mariana escuchaba desde la cama.
 
-— ¿Y cómo te sentís con esa fecha? —preguntó Hernando.
+— Octubre —repitió Hernando, del otro lado, y se quedó un momento en silencio—. ¿Cómo te sentís con esa fecha?
 
-— Aliviado, sobre todo —dijo Santi—. Pero también consciente de que todavía falta mucho. No es una fecha de victoria. Es una fecha de empezar a competir otra vez, sin garantía de nada más.
+— Asustado y aliviado al mismo tiempo —dijo Santi—. No sabía que las dos cosas podían caber juntas.
 
-— Eso ya es enorme, comparado con donde estabas hace un año —dijo Hernando—. Aceptalo como lo que es, sin pedirle que sea más de lo que es todavía.
+— Caben —dijo Hernando—. Así se siente la puerta de salida de cualquier túnel. Lo que da miedo no es la luz: es acordarse de cómo era correr antes de entrar.
 
-— Mariana me dijo casi exactamente lo mismo hace un momento —dijo Santi, sonriendo.
+— ¿Vos qué harías?
 
-— Esa mujer entiende las cosas importantes, igual que yo —dijo Hernando, riendo—. No es casualidad que los dos lleguemos a la misma conclusión por caminos distintos.
-
----
-
-El resto de agosto y septiembre se convirtió en un bloque de entrenamiento estructurado, el primero desde el accidente, con Rusconi diseñando una progresión cuidadosa que priorizaba la reconstrucción de base aeróbica sobre cualquier trabajo de potencia específica o de posición aerodinámica, que quedaría para más adelante en el proceso.
-
-Mariana, de vuelta en Medellín después del viaje a Girona, retomó su propia rutina con una energía renovada, organizando una pequeña exposición fotográfica con la serie de oficios tradicionales que había estado desarrollando desde marzo, en una galería pequeña del barrio Provenza.
-
-— ¿Vas a poder venir a la inauguración? —le preguntó a Santi, semanas antes del evento, consciente de que el calendario de entrenamiento empezaba a ocupar cada vez más espacio en los días de Santi.
-
-— Por supuesto que voy a ir —dijo Santi, sin dudarlo—. Esto es importante para vos, y vos estuviste en cada momento importante de mi recuperación. Lo mínimo que puedo hacer es estar ahí.
-
-La inauguración, a finales de agosto, reunió a un grupo pequeño pero significativo: Daniela —la amiga de Bogotá, que viajó especialmente para la ocasión—, Camilo, Julián, Rodrigo, y la familia completa, todos admirando las fotografías de don Aurelio el zapatero, de una señora que vendía flores en la misma esquina desde hacía treinta años, de un afilador de cuchillos que recorría el barrio en bicicleta con una campanita que anunciaba su llegada.
+— Yo era gregario, mijo. Yo nunca tuve el lujo de elegir calendario —dijo Hernando, riendo—. Pero te digo una cosa: Lombardia es tuya dos veces. Si hay una carrera en el mundo para volver, es la carrera de las hojas muertas. Vuelve todo lo que parecía terminado.
 
 ---
 
-— Estas fotos son hermosas, de verdad —le dijo Daniela a Mariana, durante la inauguración—. Se nota que encontraste algo importante en Medellín, más allá de Santi.
+La cena con Ferretti fue dos días después, en el restaurante pequeño cerca del río Onyar donde habían tenido, un año atrás, la primera conversación cara a cara desde el hospital.
 
-— Encontré una ciudad entera que no conocía, en realidad —dijo Mariana—. Y un proyecto que es completamente mío, sin que dependa de nada relacionado con la recuperación de él.
+— Antes de que digas nada, quiero ser honesto con vos sobre algo —dijo Ferretti, cuando trajeron el primer plato—. El equipo no gana una carrera que importe desde Tirreno, en marzo del año pasado. Quince meses. Yo puedo vivir con eso: sé lo que estábamos esperando. Pero Duarte lleva desde enero sosteniendo renovaciones congeladas con la mitad de los patrocinadores, y la palabra que usan ya no es "solidaridad". Es "fecha".
 
-— Eso es importante, mantener algo así —dijo Daniela—. No solo por vos. Por la relación misma. Las relaciones que funcionan necesitan que los dos sigan siendo personas completas, no solo mitades que dependen una de la otra.
+— ¿Qué tan grave es? —preguntó Santi.
 
-Santi, observando la galería desde un costado, con un vaso de vino en la mano, pensó en esa misma idea sin haber escuchado la conversación completa: que el año de recuperación, paradójicamente, había producido también ese proyecto de Mariana, esa exposición, esa identidad propia que ella había construido en paralelo a todo lo demás.
+— No es grave. Es normal —dijo Ferretti—. Lo raro fue el año pasado, cuando nadie apretó. Un accidente compra silencio; una recuperación larga lo gasta. Nadie te va a echar de este equipo, eso lo sabés. Pero el proyecto entero —los mecánicos, los soigneurs, la gente que vos ni conocés y que cobra cada mes porque un día firmaste con nosotros— necesita que el mundo vuelva a creer que esto va a alguna parte.
 
-— Estoy muy orgulloso de vos —le dijo, acercándose, cuando la conversación con Daniela terminó—. Esta exposición es hermosa, y es completamente tuya.
+Santi asintió despacio, sin ofenderse, porque Ferretti era de las pocas personas del ciclismo que le hablaba así, con los números sobre la mesa y el afecto intacto debajo.
 
-— Gracias por estar acá —dijo Mariana—. Sé que el entrenamiento te tiene agotado últimamente.
+— Octubre —dijo Santi—. Emilia, Tre Valli, Lombardia. Lo decidimos con Rusconi esta semana.
 
-— Nada me hubiera impedido venir hoy —dijo Santi.
+Ferretti dejó el tenedor en el plato. Se quedó mirándolo un momento, y cuando habló, la voz le salió más baja.
 
----
+— Il Lombardia —dijo—. La Gazzetta va a perder la cabeza. —Sonrió apenas, y por un segundo pareció más joven—. Y Duarte va a llorar de alivio en una sala de juntas, que es algo que me gustaría ver.
 
-— Esto se parece más a cómo entrenaba a los dieciocho años que a cualquier cosa que hice en los últimos cinco —le comentó Santi a Hernando, después de una sesión particularmente dura de fondo aeróbico, unos días después de la exposición—. Sin números sofisticados, sin túneles de viento. Solo horas de bicicleta, construyendo desde la base.
+— No voy a ir a ganar, Maurizio —dijo Santi—. Voy a ir a terminar.
 
-— Quizás no es casualidad que se sienta así —dijo Hernando—. A veces, para reconstruir algo grande, hay que volver a los principios más simples que lo sostenían al principio.
-
-Luca Arnheim, que había seguido de cerca cada etapa de la recuperación de Santi durante el año, se unió a varias de esas sesiones de entrenamiento en Girona durante un viaje de Santi a Europa a mediados de septiembre, marcando un ritmo deliberadamente suave para acompañar el proceso sin presionarlo.
-
-— Se siente bien tenerte ahí otra vez, aunque sea entrenando despacio —le dijo Luca, durante una de esas sesiones—. El equipo no fue lo mismo en tu ausencia.
-
-— ¿Cómo está el resto del grupo? —preguntó Santi.
-
-— Con ganas de verte de vuelta, de verdad —dijo Luca—. Hay un corredor nuevo, joven, que entró este año, que pregunta constantemente sobre cómo eran los entrenamientos cuando vos estabas. Creo que te idealiza un poco, sin haberte visto correr en persona todavía.
-
-— Espero no decepcionarlo, cuando finalmente nos conozcamos en carrera —dijo Santi, riendo.
-
-Esa misma semana, en Girona, Santi tuvo una cena con Ferretti, la primera conversación cara a cara entre los dos desde el hospital, más de un año atrás, sobre el futuro real del equipo y el lugar de Santi dentro de él.
-
-— Quiero ser honesto con vos sobre algo —dijo Ferretti, durante la cena, en un restaurante pequeño cerca del río Onyar—. El contrato que firmamos en 2023 vence a finales de 2026. Con todo lo que pasó, no sé todavía cómo vamos a manejar la renovación, ni qué expectativas son razonables poner sobre vos para esa fecha.
-
-— Entiendo la complejidad —dijo Santi—. ¿Qué pensás vos, honestamente?
-
-— Pienso que no importa lo que diga el contrato en papel —dijo Ferretti—. Este equipo se construyó alrededor de vos desde el principio. Mientras quieras seguir corriendo, vas a tener un lugar acá, sin importar a qué nivel regreses.
-
-— ¿Y si nunca vuelvo al nivel de 2023? —preguntó Santi, la misma pregunta que llevaba meses haciéndose a sí mismo en distintas formas.
-
-— Entonces vamos a construir algo distinto, juntos, como hicimos cada año desde que empezamos —dijo Ferretti—. Este equipo nunca dependió de un solo resultado. Dependió de la relación de confianza que construimos, y esa relación no se rompió con un accidente, por más grave que haya sido.
+— Ya lo sé —dijo Ferretti—. Ellos no. Y esa diferencia, esta vez, trabaja a tu favor: cualquier cosa que hagas por encima de terminar va a parecer un milagro. —Levantó la copa—. Una cosa más. Si octubre sale bien y 2026 es real, Duarte dice que los patrocinadores no solo renuevan. Quieren construir algo más grande. No te digo más por ahora, porque todavía es humo. Pero volvé, y vas a ver de qué tamaño es el humo.
 
 ---
 
-— ¿Y qué tal te dejó esa cena con Ferretti? —le preguntó Mariana, esa misma noche, por videollamada desde Medellín.
+Volvió a Medellín la primera semana de agosto, con la fecha guardada y todavía sin anunciar, y tres días después Clarke le escribió un mensaje de dos líneas, sin contexto, como eran todos los mensajes de Clarke desde hacía siete años.
 
-— Aliviado —dijo Santi—. Aunque ya sabía, en el fondo, que el equipo no me iba a abandonar, escucharlo de su propia voz, en una cena tranquila, sin ninguna presión de cámaras ni de prensa, fue distinto.
+*Clarke: ¿Estás en Laureles esta semana?*
 
-— ¿Hablaron de fechas concretas?
+*Santi: Sí. ¿Por?*
 
-— No quisimos forzar nada todavía —dijo Santi—. Pero sentí que la conversación dejó claro algo importante: que mi valor para ese equipo nunca fue solo deportivo. Fue construido durante años, con confianza real, y eso resiste cualquier interrupción, incluso una tan grande como la que tuvimos.
+*Clarke: Abrí la puerta el jueves a las siete. Llevá la bicicleta.*
 
----
+El jueves a las siete de la mañana, en la puerta de la casa de Laureles, estaban los tres: Clarke, Colombo y Rensen, con tres bicicletas alquiladas y ropa de entrenamiento sin logos, como tres turistas que se hubieran equivocado de continente. Colombo abrió los brazos primero.
 
-A principios de octubre, antes de que el episodio del susto interrumpiera brevemente la rutina, los padres de Mariana viajaron por primera vez a Medellín, una visita que llevaba meses planeándose y que finalmente se concretó cuando el calendario de entrenamiento de Santi permitió cierta flexibilidad.
+— *Fratello* —dijo—. Nos dijeron que acá el café es mejor que el nuestro. Vinimos a comprobar.
 
-— Estoy nerviosa —admitió Mariana, la noche antes de que llegaran—. Nunca habían visto la casa, ni habían conocido a Hernando y Carmen en persona.
+— Ferretti sabía —dijo Santi, mirando a Clarke, todavía sin terminar de creer lo que estaba viendo.
 
-— Va a salir bien —dijo Santi—. Tu mamá ya me quiere, por lo que escuché en las llamadas. Y tu papá, bueno, espero ganarme su confianza también.
+— Ferretti compró los pasajes —dijo Clarke—. Vamos, que después del amanecer el calor no perdona. Vos conocés el camino.
 
-El encuentro, organizado con una cena especial preparada por Carmen, transcurrió con una calidez que disipó cualquier nerviosismo inicial: el padre de Mariana, un hombre callado que trabajaba como ingeniero civil en Bucaramanga, resultó tener una pasión oculta por el ciclismo que sorprendió a todos, incluyendo a la propia Mariana.
+Subieron Las Palmas al ritmo del que menos, que ya no era Santi, y esa fue la primera noticia del día: que después de un año de reconstrucción todavía silenciosa, Santi subía mejor que tres profesionales en activo. Nadie lo dijo en voz alta. Rensen, en un momento de la subida, lo miró de reojo y movió apenas la cabeza, y viniendo de Rensen eso era un discurso entero.
 
-— Lo seguí durante años, sus carreras, sin que mi hija supiera que me interesaba el ciclismo —confesó el padre, durante la cena, con una sonrisa tímida—. Cuando me dijo que estaba con usted, casi no podía creerlo.
+En el alto pararon en un café de carretera, de mesas plásticas y leche espumada en jarra metálica, con dos ciclistas aficionados en la mesa del fondo que reconocieron a Santi de inmediato y tuvieron la delicadeza antioqueña de no acercarse, solo levantar la mano desde lejos.
 
-— ¿Por qué no le contaste eso nunca? —le preguntó Mariana a su padre, sorprendida.
+Fue Clarke el que habló, después del primer sorbo, con la economía de siempre.
 
-— Porque en mi casa, de joven, el ciclismo era un lujo que no podíamos seguir de cerca —dijo el padre—. Aprendí a guardarme esos gustos, sin compartirlos mucho. Pero los seguí siempre, desde lejos.
+— Yo tenía el retiro decidido desde el Tour del veintitrés —dijo—. Colombo desde el Giro del año pasado. Rensen no lo dice, pero desde antes que los dos. —Dejó la taza en la mesa—. El veinte de julio nos cambió el plan.
 
----
+Santi no dijo nada. Afuera pasó un camión de escalera cargado de plátanos, haciendo sonar el motor en la pendiente, y ninguno de los cuatro lo miró.
 
-Hernando, escuchando esa historia, conectó de inmediato con el padre de Mariana, encontrando en él un interlocutor que entendía, desde una perspectiva distinta a la suya, la misma pasión silenciosa por el deporte que él mismo había cargado durante décadas.
+— Firmamos un año más. Los tres, el mismo día, en el mismo despacho —siguió Clarke—. Ferretti no nos preguntó por qué, porque ya sabía. No íbamos a colgar la bicicleta mientras vos estuvieras en un corsé. Uno no se baja del equipo cuando el líder está en el suelo. Eso fue todo el razonamiento. No hubo más.
 
-— Yo también seguí el ciclismo desde lejos, durante años, antes de que mi propio hijo se convirtiera en parte de la historia —dijo Hernando—. Hay algo en este deporte que conecta a la gente de formas que uno no espera.
+— Nos quedamos para verte volver —dijo Colombo, y por primera vez desde que Santi lo conocía, el italiano no estaba sonriendo—. No para correr otro Tour. Esa parte se terminó hace rato, y las piernas lo saben mejor que nosotros.
 
-Los dos padres, Hernando y el padre de Mariana, se quedaron hablando durante horas, mucho después de que la cena terminara, sobre carreras antiguas, sobre corredores que ambos habían admirado de jóvenes, sobre la forma en que el deporte había marcado, de maneras distintas, la vida de sus respectivas familias.
+— Este es el último año —dijo Clarke—. Y la última carrera la elegimos nosotros: Lombardia, en octubre. —Lo miró—. Ferretti nos contó anoche lo que decidiste con Rusconi. Por eso estamos acá. Tu primera carrera grande de vuelta va a ser la última nuestra. Nos pareció que eso había que decírtelo en la cara, no por teléfono.
 
-— Tu papá es un gran hombre —le dijo Hernando a Mariana, al final de la noche—. Se nota de dónde sacaste esa calidez que tenés.
+Santi miró la taza, el valle allá abajo con su niebla deshaciéndose, las dos bicicletas de los aficionados recostadas contra la baranda. Se dio cuenta de que llevaba un año aprendiendo a hablar de las cosas difíciles y de que nada de eso le servía en ese momento.
 
-— Gracias —dijo Mariana, conmovida—. Significa mucho que se hayan llevado tan bien.
+— ¿Se acuerdan de Sisteron? —dijo, por fin—. Tour del veinte. El día de los abanicos.
 
----
+Clarke miró a Rensen. Rensen no movió un músculo.
 
-La madre de Mariana, por su parte, pasó buena parte de la visita con Carmen, en la cocina, intercambiando recetas y observaciones sobre la vida de tener un hijo o una hija viviendo lejos, en circunstancias que ninguna de las dos había imaginado completamente.
+— Setenta y dos kilómetros al límite —dijo Clarke, despacio—. Y en la transmisión hablaron del viento, de Roglič y de Van Aert.
 
-— Nunca pensé que mi hija terminaría viviendo en Medellín, acompañando a un ciclista en su recuperación —le confesó la madre a Carmen, mientras las dos pelaban papas para el almuerzo del día siguiente—. Pero la veo feliz, de una forma que no la había visto en mucho tiempo.
+— En el bus, esa noche, vos le dijiste a Rensen: "hoy nadie nos vio" —dijo Santi—. Yo estaba dos asientos adelante, con los ojos cerrados. Lo escuché. Y no dije nada, porque tenía veinte años y no supe qué decir. —Hizo una pausa, y el silencio del café hizo el trabajo que las palabras no podían hacer—. Llevo cinco años sin saber qué decir. Así que lo digo ahora: yo sí los vi. Ese día y todos los días, desde Bélgica. Nunca dejé de verlos.
 
-— Su hija es una mujer excepcional —dijo Carmen—. No conozco a nadie que hubiera hecho lo que ella hizo este año, con la entereza con que lo hizo.
+Nadie habló durante un rato largo. Colombo miró hacia el valle con los ojos brillantes y no intentó disimularlo. Y entonces Rensen, que en cuatro días del Tour de 2020 había dicho una sola frase larga, dijo la segunda de su carrera:
 
-— Es bueno escuchar eso, de la madre del propio Santi —dijo la madre de Mariana—. A veces, desde lejos, uno se preocupa de si la familia del otro lado realmente valora lo que uno está haciendo.
+— Por eso nos quedamos.
 
-— La valoramos más de lo que las palabras pueden expresar —dijo Carmen—. Mariana ya es parte de esta familia, sin ninguna duda.
-
----
-
-La visita, que duró cuatro días, terminó con una despedida emotiva en el aeropuerto, donde los padres de Mariana, antes de abordar el vuelo de regreso a Bucaramanga, le dieron a Santi un abrazo que reflejaba algo más profundo que una simple cortesía.
-
-— Cuide bien a nuestra hija —dijo el padre de Mariana, con una seriedad que contrastaba con su timidez habitual—. Y déjese cuidar por ella también, que se nota que lo hace con todo el corazón.
-
-— Lo voy a hacer —prometió Santi—. En las dos direcciones.
-
-Esa noche, de vuelta en Laureles, Mariana le agradeció a Santi por cómo había recibido a sus padres.
-
-— Gracias por hacer que se sintieran tan bienvenidos —dijo Mariana—. Sé que no es fácil, con todo lo que tenés en la cabeza con el entrenamiento.
-
-— Tus padres son parte de mi vida ahora, de la misma forma que los míos son parte de la tuya —dijo Santi—. No hubo ningún esfuerzo especial en eso. Solo quererlos como se quiere a la familia.
+Mariana, que había subido en el carro con las cámaras por si acaso, sin prometer nada, tomó una sola foto desde la puerta del café, sin que ninguno posara: cuatro tazas sobre una mesa plástica, cuatro hombres mirando cada uno una parte distinta del mismo valle. Después guardó la cámara, porque hay días en que una foto es suficiente.
 
 ---
 
-A finales de septiembre, en una sesión de entrenamiento que incluyó, por primera vez desde el accidente, un esfuerzo sostenido de veinte minutos a una intensidad moderada, Santi sintió algo que llevaba más de un año sin sentir: la fatiga específica del esfuerzo competitivo, distinta a la fatiga de la rehabilitación, una señal que Rusconi confirmó como genuinamente positiva.
+El anuncio se hizo el dieciocho de agosto, con un comunicado de tres párrafos que Santi redactó con Duarte y Patiño y que decía, en esencia, lo único que había que decir: que volvía a competir en octubre, en Italia, y que el objetivo era terminar, no ganar.
 
-— Esto es progreso real, medible —dijo Rusconi, revisando los datos de esa sesión—. Todavía lejos de donde tenés que llegar. Pero la dirección, después de catorce meses, finalmente es la correcta.
+El comunicado duró intacto aproximadamente once minutos, que fue lo que tardó el resto del mundo en convertirlo en otra cosa. La Gazzetta abrió su portada digital con "Il ritorno del Cóndor" y una cuenta regresiva para el Giro dell'Emilia. L'Équipe tituló "Reyes revient" sobre una foto a página completa del Tourmalet que Santi había pedido, sin éxito durante un año, que dejaran de usar. En Colombia, los noticieros de las siete abrieron con la noticia antes que con el dólar, y Julián lo llamó desde Bogotá sin poder terminar las frases.
 
-Esa noche, de vuelta en el hotel de Girona, Santi llamó a Mariana, que se había quedado en Medellín por un encargo fotográfico que no podía posponer.
+— Hermano, es que no entendés —decía Julián—. Yo cubro esto hace años y no entendés. No es una noticia deportiva. Medio país paró de hacer lo que estaba haciendo. Mi mamá me llamó a preguntarme si era verdad, y mi mamá no sabe qué es el Lombardia.
 
-— Veinte minutos sostenidos hoy —dijo Santi—. La primera vez desde el accidente que sentí la fatiga de verdad, la competitiva, no la de la rehabilitación.
+— Va a saber en octubre —dijo Santi.
 
-— Eso suena enorme —dijo Mariana—. ¿Cómo te sentiste, durante esos veinte minutos?
+Esa noche le llegó un mensaje de Pogačar, el primero desde el aniversario.
 
-— Vivo —dijo Santi, sin dudarlo—. Completamente vivo, de una forma que no sentía desde antes del Tourmalet.
+*Pogačar: Octubre. Ahora sí cuento los días con fecha.*
+
+*Santi: No voy a estar al nivel. Lo sabés, ¿no?*
+
+*Pogačar: Vos nunca sabés a qué nivel estás. Esa siempre fue la parte divertida.*
 
 ---
 
-Rodrigo, al enterarse de la noticia por una llamada de Hernando esa misma semana, le mandó un mensaje de texto con su humor habitual.
+Lo que la prensa no contó, porque no la dejaron verlo, fue el bloque de agosto y septiembre: las seis horas diarias por las carreteras del norte de Antioquia, los tres viajes cortos a Girona, la progresión que Rusconi ajustaba semana a semana como un relojero que no confía todavía en la cuerda. A finales de septiembre, en una sesión que incluyó por primera vez un esfuerzo sostenido de veinte minutos a intensidad de carrera, Santi sintió algo que llevaba desde el Tourmalet sin sentir: la fatiga específica del esfuerzo competitivo, distinta a la de la rehabilitación.
 
-*Rodrigo: Me dijo tu papá que ya estás sufriendo en serio otra vez en la bicicleta. Bienvenido de vuelta al club de los masoquistas.*
+— Vivo —le dijo a Mariana por teléfono esa noche, cuando ella le preguntó cómo se había sentido—. Completamente vivo, de una forma que no sentía desde antes de la caída.
 
-*Santi: Gracias, supongo. Aunque viéndolo así, no sé si es un cumplido.*
+Luca Arnheim lo acompañó en el último bloque de Girona, marcando un ritmo que ya no era de acompañamiento sino de trabajo real, y una tarde, guardando las bicicletas, dijo lo que venía masticando hacía semanas.
 
-*Rodrigo: Es lo más cercano a un cumplido que vas a recibir de mí, hermano. Disfrutá el sufrimiento, que se nota que lo extrañabas.*
+— Cuando Clarke, Colombo y Rensen cuelguen en octubre, quedo yo de los viejos —dijo Luca—. Cinco años en este equipo y voy a ser el veterano. No sé en qué momento pasó eso.
 
-Santi se rió, leyendo el mensaje, agradecido, una vez más, de tener amigos capaces de poner las cosas en perspectiva con humor, incluso en los momentos más serios del proceso.
+— Pasó en una curva del Tourmalet —dijo Santi—. Ahí cambió la edad de todo el mundo.
 
-Más tarde, ya en el balcón con la ciudad apagándose abajo, Hernando buscó el cuaderno entre los libros del estante y, retomando después de más de un año el tipo de anotación que solía llenar sus páginas antes del Tourmalet, escribió:
+---
 
-*Septiembre 2025. Primer esfuerzo sostenido de veinte minutos desde el accidente. Rusconi confirma progreso real. Mariana inauguró su exposición fotográfica, hermosa, completamente suya. Luca de visita en Girona, el equipo entero esperando. Posible regreso a competencia hacia mediados de 2026, según las proyecciones actuales. Después de catorce meses sin nada que medir, finalmente hay un número que anotar otra vez.*
+Entre los dos bloques de entrenamiento cupieron, apretadas pero intactas, las otras dos cosas importantes del final del verano. La exposición de Mariana se inauguró a finales de agosto en una galería pequeña de Provenza —don Aurelio el zapatero, la señora de las flores, el afilador de cuchillos con su campanita—, con Daniela viajando desde Bogotá y diciéndole a Mariana, delante de las fotos, que se notaba que había encontrado en Medellín algo que era completamente suyo, sin depender de la recuperación de nadie.
+
+Y en la última semana de septiembre, los padres de Mariana viajaron por primera vez a Medellín. El padre, un ingeniero civil callado de Bucaramanga, confesó durante la cena —con una sonrisa tímida que su hija no le conocía— que había seguido las carreras de Santi durante años sin decírselo a nadie, porque en su casa, de joven, el ciclismo era un lujo que se aprendía a guardar. Hernando y él se quedaron hablando hasta la madrugada de corredores que ambos habían admirado de lejos, y en la despedida del aeropuerto el padre le dio a Santi un abrazo serio y una sola instrucción:
+
+— Cuide bien a nuestra hija. Y déjese cuidar, que se nota que ella lo hace con todo el corazón.
+
+— En las dos direcciones —prometió Santi—. Y en octubre, si quiere, lo llamo yo mismo para contarle cómo se ve Italia desde adentro de la carrera.
+
+El padre de Mariana sonrió como un niño al que le acaban de prometer algo imposible, y no dijo nada más en todo el camino al avión.
+
+---
+
+Hernando, la última noche de septiembre, con las maletas de Italia ya medio armadas en el cuarto de al lado, buscó el cuaderno y escribió:
+
+*Septiembre 2025. Veinte minutos sostenidos a ritmo de carrera, confirmados por Rusconi. La exposición de Mariana, hermosa, completamente suya. Sus padres en Medellín por primera vez — el papá sabe más de ciclismo que la mitad de los periodistas que llaman a esta casa.*
+
+*Y lo otro, lo que no sé anotar bien: Clarke, Colombo y Rensen esperaron un año entero para venir a decirle en la cara que se van. La última carrera de ellos va a ser la primera de él. En cuarenta años cerca de este deporte vi de todo, pero no había visto eso: tres gregarios aguantando una temporada de más, en silencio, solo para no bajarse del equipo con el líder en el suelo.*
+
+*Octubre tiene tres nombres: Emilia, Tre Valli, Lombardia. El cuaderno vuelve a tener calendario.*
 
 ---

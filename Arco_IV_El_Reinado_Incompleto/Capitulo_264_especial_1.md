@@ -10,7 +10,7 @@
 
 ---
 
-*Nota de Julián, incluida como introducción al episodio en su publicación final: "Grabamos esto en julio. No lo publicamos hasta noviembre porque Santi me pidió tiempo para decidir si de verdad quería que esta conversación fuera pública. Decidió que sí. Esto es esa conversación, sin ediciones que suavicen nada."*
+*Nota de Julián, incluida como introducción al episodio en su publicación final: "Grabamos esto en julio, cuatro días después de la peor noche del año y cuatro días antes del alta médica que nadie sabía que venía. No lo publicamos hasta noviembre porque Santi me pidió tiempo para decidir si de verdad quería que esta conversación fuera pública. Decidió que sí. Ustedes ya vieron Como, ya vieron el podio, ya saben cómo termina esta historia. Esto es cómo empezó a terminar: la noche en que casi no empieza. Sin ediciones que suavicen nada."*
 
 ---
 
@@ -116,6 +116,6 @@ Santi se quedó en silencio un momento largo, la pausa más extensa de todo el e
 
 ---
 
-*Cierre del episodio 58. Tras su publicación en noviembre, este episodio generó la mayor cantidad de mensajes de apoyo en la historia del podcast, incluyendo cartas de oyentes que describieron sus propias "noches oscuras" en contextos completamente ajenos al deporte: enfermedades crónicas, duelo, pérdida de empleo, divorcios. Julián, en una nota de producción posterior, escribió: "Este fue el episodio que más me costó publicar, y el que más estoy orgulloso de haber publicado."*
+*Cierre del episodio 58. Publicado siete semanas después del podio de Como, el episodio se escuchó en todo el mundo con la ventaja extraña de conocer el final: la noche más oscura, narrada por un hombre al que el planeta entero acababa de ver volver. Generó la mayor cantidad de mensajes de apoyo en la historia del podcast, incluyendo cartas de oyentes que describieron sus propias "noches oscuras" en contextos completamente ajenos al deporte: enfermedades crónicas, duelo, pérdida de empleo, divorcios. Julián, en una nota de producción posterior, escribió: "Este fue el episodio que más me costó publicar, y el que más estoy orgulloso de haber publicado."*
 
 ---
