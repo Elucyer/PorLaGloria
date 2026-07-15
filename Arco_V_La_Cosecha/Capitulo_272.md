@@ -4,7 +4,7 @@
 
 ---
 
-*Suiza. 26 de abril-1 de mayo de dos mil veintiséis. Tour de Romandie.*
+*Suiza. 26 de abril-1 de mayo de dos mil veintiséis. Tour de Romandie, 5 etapas. Etapa 5 (final): Alto de Naye, 8 km al 9% de media.*
 
 ---
 

@@ -4,7 +4,7 @@
 
 ---
 
-*País Vasco, España. 15-17 de agosto de dos mil veintiséis. Vuelta a España, etapas 1-3.*
+*País Vasco, España. 15-17 de agosto de dos mil veintiséis. Vuelta a España, etapas 1-3. Etapa 1: Vitoria-Gasteiz, crono por equipos, 18 km. Etapa 2: final en alto de 3.ª categoría en las estribaciones de los Pirineos vascos. Etapa 3: llana, sprint masivo.*
 
 ---
 

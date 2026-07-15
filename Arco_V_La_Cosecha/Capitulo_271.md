@@ -4,7 +4,7 @@
 
 ---
 
-*País Vasco, España. 6-10 de abril de dos mil veintiséis. Itzulia País Vasco.*
+*País Vasco, España. 6-10 de abril de dos mil veintiséis. Itzulia País Vasco, 5 etapas. Etapa 1: final en alto de Gorla. Etapa 4: final en alto, 14 km con rampas de hasta 15% en los últimos dos kilómetros.*
 
 ---
 

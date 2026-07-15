@@ -4,7 +4,6 @@
 
 *Giro de Italia 2018 — Etapa 20. Susa → Cervinia. 214 km.*
 *Col du Mont Cenis: 16 km, puerto más largo de la etapa. Col de l'Iseran: 2.770 m, el punto más alto del Giro 2018. Piccolo San Bernardo y Cervinia completan el cuarteto de puertos.*
-*Fuga de Mikel Nieve gana la etapa.*
 
 ---
 

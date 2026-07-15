@@ -4,7 +4,6 @@
 
 *Giro de Italia 2018 — Etapa 6. Caltanissetta → Etna.*
 *162 km. Ascenso final al Etna (Osservatorio Astrofisico): 16 km, último tramo de 300 m al 9%.*
-*Ataque decisivo de Simon Yates en el km 8 de la subida.*
 
 ---
 

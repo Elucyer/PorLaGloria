@@ -4,7 +4,7 @@
 
 *Giro de Italia 2018 — Etapa 19. Venaria Reale → Bardonecchia/Jafferau. 185 km.*
 *Sestriere (km 30 de etapa): 16 km al 7%, descenso técnico de 16 km.*
-*Colle delle Finestre: sterrato (grava), cima a 2.178 m. Froome ataca a 80 km de la meta y llega solo a Bardonecchia, +2:13.*
+*Colle delle Finestre: sterrato (grava), cima a 2.178 m.*
 *Jafferau (subida final): 9 km al 9%.*
 
 ---

@@ -4,7 +4,7 @@
 
 ---
 
-*Italia. 24-29 de marzo de dos mil veintiséis. Settimana Internazionale Coppi e Bartali.*
+*Italia. 24-29 de marzo de dos mil veintiséis. Settimana Internazionale Coppi e Bartali, 6 etapas. Etapa decisiva (4): final en alto de 3.ª categoría, 3,4 km al 7,1%.*
 
 ---
 

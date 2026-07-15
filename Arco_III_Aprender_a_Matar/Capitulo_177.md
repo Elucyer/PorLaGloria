@@ -5,7 +5,7 @@
 ---
 
 *Descanso 1 del Tour de France 2021. 5 de julio de dos mil veintiuno. Nîmes.*
-*Etapa 10 — Albertville → Valence. 190,7 kilómetros. Desnivel acumulado: 939 metros. 6 de julio de dos mil veintiuno. Perfil: etapa de transición del Ródano. Llegada al esprint. Ganador: Mark Cavendish (35.ª victoria de etapa en el Tour de France, récord histórico igualado con Eddy Merckx).*
+*Etapa 10 — Albertville → Valence. 190,7 kilómetros. Desnivel acumulado: 939 metros. 6 de julio de dos mil veintiuno. Perfil: etapa de transición del Ródano. Llegada al esprint.*
 *Etapa 11 — Sorgues → Malaucène. 198,9 kilómetros. Desnivel acumulado: 4.526 metros. 7 de julio de dos mil veintiuno.*
 *Puertos E11: Mont Ventoux por Bedoin (versión larga, cat. HC, 21,5 km al 7,5%, 1.615m D+, alt. 1.909m) · descenso completo a Malaucène · Mont Ventoux por Malaucène (versión norte, cat. HC, 21,2 km al 7,3%, 1.537m D+, alt. 1.909m — llegada en alto, segundo ascenso del día).*
 

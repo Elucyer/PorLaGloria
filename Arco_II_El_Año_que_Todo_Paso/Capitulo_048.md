@@ -2,7 +2,7 @@
 ## Arco II — El Año que Todo Pasó
 ### Capítulo 48 — Tránsito (Riva del Garda–Iseo, 23 de mayo de 2018)
 
-*Giro de Italia 2018 — Etapa 17. Riva del Garda → Iseo. 155 km, llano. Sprint masivo (Viviani gana).*
+*Giro de Italia 2018 — Etapa 17. Riva del Garda → Iseo. 155 km, llano. Sprint masivo.*
 
 ---
 

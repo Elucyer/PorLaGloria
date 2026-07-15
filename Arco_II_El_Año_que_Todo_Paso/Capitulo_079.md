@@ -3,7 +3,7 @@
 ### Capítulo 79 — Giro II: Carapaz (Etapas 5–8, 15–18 de mayo de 2019)
 
 *Giro de Italia 2019 — Etapas 5 a 8.*
-*Jornadas de transición y sprint (Ewan gana dos), 140-239 km cada una. La contrarreloj de San Marino, al día siguiente, se narra en el capítulo 80.*
+*Jornadas de transición y sprint, 140-239 km cada una. La contrarreloj de San Marino, al día siguiente, se narra en el capítulo 80.*
 
 ---
 

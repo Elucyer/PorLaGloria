@@ -6,7 +6,6 @@
 
 *Etapa 19 del Tour de France 2021.*
 *Mourenx → Libourne. 207,0 kilómetros. Desnivel acumulado: 1.574 metros. 16 de julio de dos mil veintiuno. Perfil: etapa de transición. Ondulado del piedemonte pirenaico hacia Burdeos. Sin llegada en alto.*
-*Ganador: Matej Mohorič (escapada solitaria de 193 km — la escapada más larga del Tour 2021).*
 
 ---
 

@@ -7,7 +7,7 @@
 *Etapa 8 — Praia a Mare → Santuario de Montevergine. 209 km. Subida final: 11 km al 6%.*
 *Etapa 9 — → Gran Sasso/Campo Imperatore. 225 km. Subida final: 10 km al 5%, cima a 2.135 m, viento cruzado de 40-50 km/h.*
 *Etapas 10-12 — transición, sin incidentes destacados.*
-*Etapa 13 — Ferrara → Nervesa della Battaglia. 180 km, sprint masivo (Viviani gana).*
+*Etapa 13 — Ferrara → Nervesa della Battaglia. 180 km, sprint masivo.*
 
 ---
 

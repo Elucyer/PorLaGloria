@@ -4,7 +4,7 @@
 
 ---
 
-*Andalucía, España. 8 de marzo de dos mil veintiséis. Vuelta a Andalucía / Ruta del Sol, etapa 3.*
+*Andalucía, España. 8 de marzo de dos mil veintiséis. Vuelta a Andalucía / Ruta del Sol, etapa 3. Antequera–Sierra de las Nieves, 166 km. Final en alto: Sierra de las Nieves, 14,8 km al 6,2% (máxima 11% en el km 7).*
 
 ---
 
