@@ -47,20 +47,173 @@ Tres temporadas, cada una con su propio color:
 
 **Tono general:** 2026 es guerra y herida (la derrota más cara de su carrera, deportiva y comercialmente), 2027 es paciencia y desgaste, 2028 es fruto con una astilla adentro. "La Cosecha" se gana al final.
 
+**Caracterización de Santi en este arco (confirmado 27 jul. 2026):** más agresivo y decidido que en arcos anteriores — ya no el corredor reservado de siempre. Haber estado a un paso de morir en el Tourmalet dejó una marca visible en cómo habla y decide: menos cálculo, más "vamos a ir a muerte y ya veremos hasta dónde llegamos". No es imprudencia ni bravuconería — sigue siendo el mismo hombre con Hernando, con Mariana, con los gregarios — pero en las decisiones de carrera y en las declaraciones públicas hay un filo nuevo que antes no tenía. Mantener esta variación de tono en todos los capítulos del Arco V.
+
+---
+
+## TOUR DE FRANCIA 2026 REAL — REFERENCIA COMPLETA (para construir el Bloque 1)
+
+> Carrera real, disputada del 4 al 26 de julio de 2026. Guardado aquí como material de referencia antes de construir la versión ficticia con Santi corriendo. **No es el recorrido ni el resultado que va a tener el Tour de la novela** — ver nota de divergencias al final de esta sección.
+
+### Recorrido y ganadores de etapa
+
+| Etapa | Fecha | Recorrido | Distancia | Tipo | Ganador |
+|---|---|---|---|---|---|
+| 1 | 4 jul | Barcelona (CRE) | 19,6 km | Crono por equipos | Visma–Lease a Bike |
+| 2 | 5 jul | Tarragona → Barcelona | 168,5 km | Ondulada | Isaac del Toro |
+| 3 | 6 jul | Granollers → Les Angles | 195,9 km | Montaña | Tadej Pogačar |
+| 4 | 7 jul | Carcasona → Foix | 181,9 km | Ondulada | Mads Pedersen |
+| 5 | 8 jul | Lannemezan → Pau | 158,3 km | Llana | Olav Kooij |
+| 6 | 9 jul | Pau → Gavarnie-Gèdre | 186,2 km | Montaña (Pirineos) | Tadej Pogačar |
+| 7 | 10 jul | Hagetmau → Burdeos | 175,1 km | Llana | Tim Merlier |
+| 8 | 11 jul | Périgueux → Bergerac | 180,4 km | Llana | Tim Merlier |
+| 9 | 12 jul | Malemort → Ussel | 154,6 km | Ondulada | Mathieu van der Poel |
+| — | 13 jul | Descanso | | | |
+| 10 | 14 jul | Aurillac → Le Lioran | 165,6 km | Montaña | Tadej Pogačar |
+| 11 | 15 jul | Vichy → Nevers | 161,3 km | Llana | Søren Wærenskjold |
+| 12 | 16 jul | Nevers → Chalon-sur-Saône | 179,1 km | Llana | Tim Merlier |
+| 13 | 17 jul | Dole → Belfort | 205,8 km | Ondulada | Mauro Schmid |
+| 14 | 18 jul | Mulhouse → Le Markstein | 155,3 km | Montaña (Vosgos) | Tadej Pogačar |
+| 15 | 19 jul | Champagnole → Plateau de Solaison | 183,9 km | Montaña | Remco Evenepoel — **caída de Vingegaard a 20 km de meta, abandona el Tour** |
+| — | 20 jul | Descanso | | | |
+| 16 | 21 jul | Évian-les-Bains → Thonon-les-Bains | 26,1 km | CRI | Remco Evenepoel |
+| 17 | 22 jul | Chambéry → Voiron | 174,7 km | Llana | Jasper Philipsen |
+| 18 | 23 jul | Voiron → Orcières-Merlette | 185,2 km | Montaña | Richard Carapaz |
+| 19 | 24 jul | Gap → Alpe d'Huez | 127,9 km | Montaña (Alpes) | Tadej Pogačar |
+| 20 | 25 jul | Le Bourg-d'Oisans → Alpe d'Huez | 170,9 km | Montaña (Alpes, doble ascenso) | Richard Carapaz |
+| 21 | 26 jul | París → París (Champs-Élysées) | 88,7 km | Llana/ceremonial | Mathieu van der Poel |
+
+**Nota de recorrido:** el Tour 2026 real NO pasa por los Pirineos altos clásicos ni por el Tourmalet — el bloque pirenaico es Gavarnie-Gèdre (E6); la tercera semana es enteramente alpina, con final doble en el Alpe d'Huez (E19 y E20). **El cap. 265 ya estableció que el Tour de la novela SÍ baja el Tourmalet en su etapa 19** (presentación de recorrido, oct. 2025) — divergencia deliberada entre el Tour real y el de la ficción, ver nota abajo.
+
+### El giro dramático: la caída de Vingegaard (etapa 15)
+
+A ~20 km de meta, en una curva cerrada llena de mobiliario urbano al pie de la subida final, Vingegaard fue el primero en caer — rueda delantera resbala en la curva — arrastrando a otros corredores en el mismo incidente, entre ellos **Sepp Kuss**, y del equipo UAE Isaac del Toro y Brandon McNulty (ambos continúan y terminan la carrera). Vingegaard sufre **fractura de clavícula + múltiples abrasiones**, requiere cirugía, abandona el Tour estando 2.º a 4:30 de Pogačar — su rival más cercano desaparece de un plumazo antes del terreno más duro. Pogačar sugirió después que un control antidopaje a las 2 a.m. pudo afectar la concentración de Vingegaard esa mañana; Vingegaard no lo descartó del todo.
+
+### Clasificación general final (top 10)
+
+| Pos. | Corredor | Equipo | Tiempo/Diferencia |
+|---|---|---|---|
+| 1 | **Tadej Pogačar** | UAE Team Emirates XRG | 73h 56' 26" — **5.º Tour de su carrera**, 5 victorias de etapa |
+| 2 | Remco Evenepoel | Red Bull–Bora–Hansgrohe | +6' 26" |
+| 3 | Isaac del Toro | UAE Team Emirates XRG | +9' 42" |
+| 4 | Paul Seixas | Decathlon CMA CGM | +11' 56" (19 años) |
+| 5 | Lenny Martinez | Bahrain Victorious | +13' 02" |
+| 6 | Mattias Skjelmose | Lidl–Trek | +14' 59" |
+| 7 | Juan Ayuso | Lidl–Trek | +17' 48" |
+| 8 | Richard Carapaz | EF Education–EasyPost | +20' 00" |
+| 9 | Tom Pidcock | Pinarello–Q36.5 | +29' 28" |
+| 10 | Jordan Jegat | TotalEnergies | +33' 21" |
+
+**Otras clasificaciones:** Puntos (verde) — Mads Pedersen. Montaña (lunares) — Richard Carapaz (2 victorias de etapa, ambas en el Alpe d'Huez). Jóvenes (blanco) — Isaac del Toro. Equipos — Lidl-Trek. Combatividad — Richard Carapaz.
+
+### Divergencias — RESUELTAS (20 jul. 2026)
+
+1. **El Tourmalet real está en la etapa 6** (Pau → Gavarnie-Gèdre, el último día de Pirineos), no en la tercera semana. **Decisión: alinear la ficción con la realidad.** La confrontación de Santi con la bajada del Tourmalet pasa a la etapa 6 — dramáticamente más fuerte: obliga a Santi a enfrentar el fantasma al principio de la carrera, con las tres semanas todavía por delante, en vez de guardarlo como clímax final. **Pendiente:** retocar la línea del cap. 265 ("la tercera semana pasa por los Pirineos... baja el Tourmalet") para que diga simplemente que el recorrido incluye el Tourmalet, sin especificar semana.
+2. **La caída de Vingegaard (etapa 15, real) se conserva tal cual** — fractura de clavícula, cirugía, abandona. No le pasa a Santi ni a Remco; es un hecho ajeno a la pelea principal que igual la despeja.
+3. **Evenepoel termina 3.º** (no 2.º como en la realidad) — Santi ocupa el 2.º puesto y todos los demás bajan un lugar. Coherente con el agravio de Como: Remco corre un Tour brillante y sigue sin ser la noticia.
+4. **Del Toro 4.º, Seixas 5.º** — resultados reales sin alterar en su fondo, solo desplazados una posición por la inserción de Santi.
+5. **Construcción etapa por etapa: ver tabla completa abajo.**
+
+---
+
+## TOUR DE FRANCIA 2026 FICTICIO — CONSTRUCCIÓN ETAPA POR ETAPA
+
+> Base: recorrido y corredores reales (ver tabla de arriba). Se conservan intactas todas las etapas llanas/de sprint (ganadores reales sin cambios — Merlier, Pedersen, Kooij, Van der Poel, Wærenskjold, Schmid, Philipsen). Las etapas de montaña, la crono y la evolución del maillot amarillo se reescriben con Santi insertado en la pelea. Mecánica central pedida: Vingegaard lidera solo el día 1 (CRE, real); desde ahí el maillot se lo turnan **únicamente Santi y Pogačar**; el margen varía etapa a etapa; se decide en la crono (Santi pierde 20" por dolor de posición — la vieja T7 del Tourmalet protestando en la posición aerodinámica) y se cierra con **Pogačar ganador por 4 segundos**.
+
+| Etapa | Recorrido | Lo que pasa en la ficción | Maillot amarillo | Gap acumulado (Santi vs. Pogačar) |
+|---|---|---|---|---|
+| 1 | Barcelona (CRE) | Sin cambios — Visma gana la crono por equipos | **Vingegaard** | — |
+| 2 | Tarragona→Barcelona | Sin cambios en cabeza (del Toro gana la etapa, real) | Vingegaard | — |
+| 3 | Granollers→Les Angles | Pogačar ataca en el tramo final como en la realidad — pero esta vez **Santi lo sigue**, no se descuelga. Los dos llegan juntos; Pogačar gana el pique por bonificación. Vingegaard pierde tiempo real (2.º grupo). | **Pogačar** (por segundos sobre Santi) | Pogačar +6" |
+| 4 | Carcasona→Foix | Final en alto corto — Santi ataca a 2 km, gana la etapa y la bonificación | **Santi** | Santi +4" |
+| 5 | Lannemezan→Pau | Llana, sin cambios (Kooij gana) | Santi | Santi +4" |
+| **6** | **Pau→Gavarnie-Gèdre (Tourmalet)** | **La etapa-eje del bloque.** Pogačar ataca en el Tourmalet a 43 km de meta, exactamente donde ataca en la realidad — y esta vez Santi responde en el acto, sin dudar, y baja la bajada del Tourmalet a rueda de Pogačar, a la misma velocidad, en el mismo tipo de curva. Los dos llegan juntos a Gavarnie-Gèdre; Pogačar gana el sprint de dos por un neumático. Capítulo-pico del bloque: la bajada completa, en tiempo real, con el descenso narrado curva por curva. | **Pogačar** (por segundos) | Pogačar +11" |
+| 7-9 | Burdeos, Bergerac, Ussel | Llanas/onduladas, sin cambios (Merlier x2, Van der Poel) | Pogačar | Pogačar +11" |
+| 10 | Aurillac→Le Lioran | Santi ataca en el Massif Central, gana la etapa, recupera tiempo | **Santi** | Santi +3" |
+| 11-13 | Nevers, Chalon, Belfort | Llanas/onduladas, sin cambios (Wærenskjold, Merlier, Schmid) | Santi | Santi +3" |
+| 14 | Mulhouse→Le Markstein (Vosgos) | Pogačar ataca tarde en el Col du Haag, como en la realidad, gana la etapa | **Pogačar** | Pogačar +9" |
+| 15 | Champagnole→Plateau de Solaison | **Caída de Vingegaard a 20 km de meta — fractura de clavícula, abandona** (real, sin cambios). El pelotón de cabeza, Santi y Pogačar incluidos, neutraliza el ritmo un momento por respeto. Remco aprovecha y gana la etapa (real). Sin cambios de GC entre los dos líderes. | Pogačar | Pogačar +9" |
+| 16 | **Évian-les-Bains→Thonon-les-Bains (CRI, 26,1 km)** | **La crono decisiva.** Pogačar hace el mejor tiempo. Santi, en la posición aerodinámica que castiga la vieja fractura de T7, siente el dolor a los 15 km y pierde ritmo — termina perdiendo **20 segundos** frente a Pogačar, más de lo que su nivel real explica. Rusconi lo sabe esa noche: no fue un mal día, fue el cuerpo cobrando la cuenta del Tourmalet 2024. | Pogačar | **Pogačar +29"** |
+| 17 | Chambéry→Voiron | Llana, sin cambios (Philipsen) | Pogačar | Pogačar +29" |
+| 18 | Voiron→Orcières-Merlette | Santi ataca a 6 km de meta, gana la etapa, recorta la mayor parte del daño de la crono | **Santi recorta 19"** | Pogačar +10" |
+| 19 | **Gap→Alpe d'Huez** | **La etapa más grande de la novela hasta ahora.** La fuga del día llega al pie del Alpe con 3:20 de ventaja sobre el grupo de favoritos — el margen real con que Pogačar remontó en la realidad, pero esta vez el que remonta no es solo uno. Santi y Pogačar suben juntos, atacándose el uno al otro curva tras curva de las veintiuna del Alpe (los carteles con los nombres de los ganadores históricos pasando uno a uno), devorando la fuga metro a metro: la ventaja de 3:20 cae a dos minutos en la mitad del puerto, a cincuenta segundos a cuatro kilómetros, y en el último kilómetro solo queda un fugado suelto, ya sin fuerzas, al que los dos rebasan juntos a falta de 300 metros. Ataque de Pogačar. Respuesta de Santi. Contraataque de Pogačar, otra vez respondido. Los dos llegan a la curva final, bajo el arco, sin nada más que dar — y cruzan la línea tan pegados que ni ellos, ni el público, ni las motos de televisión saben decir quién ganó. **Foto finish. La organización tarda cuarenta segundos en resolverlo — cuarenta segundos con el Alpe entero en silencio, dos corredores todavía sobre la bicicleta, esperando** — hasta que el marcador confirma la diferencia real: **Santi le gana a Pogačar por centímetros**, la rueda delantera asomando una fracción antes en el último lanzamiento. Su primera victoria de etapa en un Tour desde 2023. El Alpe entero, la montaña más mítica del ciclismo, estalla por partes iguales para los dos. | **Santi toma el amarillo** | **Santi +6"** |
+| 20 | Le Bourg-d'Oisans→Alpe d'Huez (doble ascenso) | La revancha inmediata, un día después, en la misma montaña. Con el amarillo ahora sobre los hombros de Santi, Pogačar ataca desde la base del segundo ascenso, sin esperar nada, consciente de que no hay mañana. Santi resiste ataque tras ataque durante los primeros quince kilómetros, cediendo segundos con cada uno, hasta que en la Sarenne, a cinco del final, Pogačar encuentra el hueco que necesitaba y no lo vuelve a cerrar del todo. Carapaz gana la etapa desde la fuga (real), ajeno a la pelea de cabeza, que se decide diez minutos después: Pogačar cruza con diez segundos sobre Santi, recuperando el amarillo por el margen mínimo que le queda para defender en París. | **Pogačar recupera el amarillo** | **Pogačar +4"** |
+| 21 | París (ceremonial) | Sin cambios de GC — Van der Poel gana el sprint (real) | — | **Final: Pogačar +4" sobre Santi** |
+
+### Clasificación general final (ficción)
+
+| Pos. | Corredor | Diferencia |
+|---|---|---|
+| 1 | **Tadej Pogačar** | — (su 4.º Tour in-novel) |
+| 2 | **Santi** | +4" |
+| 3 | Remco Evenepoel | (baja un puesto respecto a la realidad) |
+| 4 | Isaac del Toro | (baja un puesto) |
+| 5 | Paul Seixas | (baja un puesto) |
+| 6 | Lenny Martinez | (baja un puesto) |
+| 7 | Mattias Skjelmose | (baja un puesto) |
+| 8 | Juan Ayuso | (baja un puesto) |
+| 9 | Richard Carapaz | (baja un puesto) |
+| 10 | Tom Pidcock | (baja un puesto) |
+
+**Resumen del arco de la pelea:** Vingegaard estrena el amarillo el día 1 y desaparece de la ecuación en la etapa 15 (caída real, ajena a la pelea principal). Desde la etapa 3, el maillot se lo turnan solo Santi y Pogačar, cambiando de manos **siete veces** (etapas 3, 4, 6, 10, 14, 19, 20) en un Tour que no tiene comparación reciente en volatilidad. Hasta la crono de la etapa 16 el margen nunca superó los 11 segundos; ahí Pogačar abre el hueco más grande de la carrera (+29") cuando el cuerpo de Santi cobra la cuenta del Tourmalet 2024 en la posición aerodinámica. Santi recorta casi todo en Orcières-Merlette (18) — y entonces llega la etapa que va a quedar en la historia del deporte: el **Alpe d'Huez de la etapa 19**, donde Santi y Pogačar cazan juntos, ataque tras ataque, una fuga que llegaba con 3:20 de ventaja al pie del puerto, y Santi le gana el sprint a Pogačar por medio neumático — su primera victoria de etapa de Tour desde 2023, y el día en que toma el amarillo. Pogačar responde al día siguiente, en la revancha inmediata del segundo Alpe d'Huez, y recupera la punta por apenas diez segundos. **Pogačar gana el Tour por 4 segundos — el margen final más pequeño de su carrera, en el Tour donde el amarillo cambió más veces de manos en dos décadas, decidido, al final, por una cicatriz y por diez segundos en la montaña más mítica del ciclismo.**
+
 ---
 
 ## BLOQUE 1 — 2026: LA GUERRA ANUNCIADA
 
 **Punto de partida:** cap. 265 (enero 2026, Girona) — regreso ya consumado (3.º en Lombardia), superequipo anunciado, objetivo público: el Tour.
 
-| Caps. (aprox.) | Etapa del año | Contenido |
+### Calendario confirmado 2026 (26 victorias del año, ver sección de palmarés)
+
+| Carrera | Fecha | Resultado |
 |---|---|---|
-| 266–268 | Invierno (ene-feb) | Presentación del superequipo. Primera convivencia con Ganna y Kuss (dos culturas de equipo distintas aterrizando en la estructura de Ferretti). Cano llega de Antioquia — el espejo de 2018 desde el otro lado. Mariana y la vida en Girona. |
-| 269–272 | Primavera (mar-may) | Calendario completo sin restricciones. Victorias que confirman (elegir 2-3 carreras: Strade Bianche, Volta a Catalunya u otras — verificar terreno no repetido en `REFERENCIA_Puertos_y_Escenarios.md`). Color de pelotón: Seixas gana la Itzulia 2026 `[REAL]` — la nueva generación empujando desde abajo. Primer cara a cara de la temporada con Pogačar y con Remco. |
-| 273–274 | Junio | Dauphiné (preparación, ¿victoria?) y la previa del Tour: presentación de la escuadra de 8, el peso del recorrido (el Tourmalet en la tercera semana), presión mediática y comercial máxima. |
-| 275–289 | **Tour de Francia 2026** (~14-16 caps, el tratamiento más extenso de la novela) | La guerra a cuatro. Beats fijados: crono con Ganna de lanzadera; Kuss neutralizando la montaña de Visma; **del Toro gana una etapa pirenaica** con permiso de Pogačar (y le escribe a Santi por primera vez — Pogačar le pasó el contacto); **la etapa del Tourmalet** — Santi baja la curva del accidente (capítulo-pico del bloque); el último fin de semana de montaña decidido por segundos; **Pogačar gana, Santi 2.º**. Margen exacto, suerte de Vingegaard y Remco, y reparto etapa a etapa: a definir al planificar el bloque en detalle. |
-| 290–292 | Agosto-octubre | Digerir la derrota (deportiva y comercial). Cierre de temporada: ¿revancha en el Lombardia 2026, un año después de Como? (abierto). |
-| 293–294 | Cierre de año | Reunión anual de patrocinios: el 2.º más visto de la historia del Tour también factura. Balance con Ferretti y Rusconi. Semillas de 2027. |
+| Vuelta a Andalucía (Ruta del Sol) | Febrero | GC + 2 etapas |
+| Tirreno-Adriático | Marzo | GC + 3 etapas |
+| Itzulia País Vasco | Abril | GC + 2 etapas — **arrolla a Seixas** |
+| Flèche Wallonne | Abril | Victoria aplastante ante Seixas |
+| Tour Auvergne-Rhône-Alpes (ex-Dauphiné) | Junio | GC + 3 etapas — **desplaza a del Toro** |
+| **Tour de Francia** | Julio | 2.º general + 4 etapas (ver construcción etapa por etapa) |
+| Clásica San Sebastián | Agosto | Victoria |
+| Vuelta a Burgos | Agosto | GC + 2 etapas |
+| Giro dell'Emilia + Tre Valli Varesine | Octubre | 2 victorias — ya no el regreso tímido de 2025, esta vez las gana |
+| Il Lombardia | Octubre | Victoria — revancha exacta un año después de Como |
+
+### Planificación capítulo a capítulo (actualizada, 27 jul. 2026 — numeración real conforme se escribe)
+
+| Cap. | Estado | Contenido |
+|---|---|---|
+| 266 | ✅ Escrito | Invierno (ene) — presentación del superequipo (28 corredores), Ganna/Kuss/Soler, Cano llega de Antioquia, reunión técnica de Rusconi, Mariana y la vida en Girona. Bloque de invierno consolidado en un solo capítulo. |
+| 267 | ✅ Escrito | **Vuelta a Andalucía** (15-19 feb) — primera carrera del año, bajo perfil mediático deliberado. GC + crono (mejor tiempo, +14" — 97% del nivel 2023 según Rusconi). |
+| 268 | ✅ Escrito | **POV Cano** — su primera carrera WorldTour en Andalucía, la misma semana, desde su propia cabeza. |
+| 269 | ✅ Escrito | **Tirreno-Adriático** (9-15 mar) — GC + crono (+31" a Ganna, el propio compañero como vara de medir), +1'48" final, el margen más grande de la temporada hasta ese punto. Sin cruce con Pogačar (no corre esta carrera en 2026 real) — la guerra se construye por prensa, integrada como conversación (Mariana, Ferretti, Julián, Rodrigo): dominio paralelo de Pogačar (Monumentos) y Vingegaard (Paris-Niza/Catalunya), mención explícita a los jóvenes y a Remco ("prefiero que hablen de otros hasta julio"). |
+| 270 | ✅ Escrito | **Itzulia, días 1-2** (6-8 abr) — caída masiva de velocistas en el sprint de la E1 (narrada en tiempo real, Santi esquiva por reflejo entrenado desde octubre); duelo de dos ataques con Seixas en Amurrio, gana por 2". |
+| 271 | ✅ Escrito | **Itzulia, días 3-5** (9-11 abr) — etapa de muros vascos (Buitrago cierra el ataque de Seixas), etapa reina en Arrate: Santi contraataca en la niebla y gana en solitario por 22" — el margen individual más grande de la temporada. Cierre de carrera y despedida con Seixas. |
+| 272 | ✅ Escrito | **POV Seixas** — la noche después de la paliza en Arrate, hasta la víspera de la Flèche. |
+| 273 | ✅ Escrito | **Flèche Wallonne** (22 abr) — victoria por 9", cambio de estrategia (ataca primero en vez de esperar). |
+| 274 | ✅ Escrito | **Especial del podcast, ventana del Giro (mayo)** — mini-POV de Pogačar y Vingegaard (columnas/entrevistas reales citadas), Vingegaard completa el trébol el 31 de mayo. |
+| 275–277 | ✅ Escrito | **Tour Auvergne-Rhône-Alpes** (7-14 jun, 8 etapas reales: Vizille→Plateau de Solaison-Brison) — crono por equipos ganada, crisis de del Toro en Albertville (etapa 6), **Santi deja ganar deliberadamente la etapa 8 a del Toro** (su primera victoria como líder absoluto). Quinta victoria de general consecutiva de la primavera. |
+| 278 | ✅ Escrito | **POV del Toro** — Abu Dabi, la presión del contrato, respuesta a los patrocinadores, mensaje de apoyo filtrado de Pogačar, intercambio con Seixas. |
+| 279 | ✅ Escrito | Capítulo tranquilo — cuatro días de descanso: mercado con Mariana, **la conversación del garaje** (deciden que sí quieren hijos, algún día), llamada con Cano, la Fundación pasa los 400 chicos en lista de espera. |
+| 280 | ✅ Escrito | Bloque final de preparación — simulación de tercera semana, túnel de viento (la crono sigue siendo el punto débil por la T7), **escuadra de 8 confirmada: Santi, Arnheim, Arroyave, Ganna, Kuss, Buitrago, Tiberi, Soler** (Cano NO va — demasiado poco rodaje, Ferretti se lo explica en persona; queda sembrado para 2027), revisión final de bicicletas con Koen, cena de despedida del equipo completo. |
+| 281 | ✅ Escrito | Previa del Tour (4 jul) — presentación de equipos en Barcelona, conferencia conjunta Pogačar/Vingegaard/Remco/Santi, la cápsula de audio de Julián escuchada la noche antes de la salida, mensajes cruzados de Seixas/del Toro/Cano. |
+
+**BLOQUE PRE-TOUR COMPLETO (caps. 266-281, ✅ 27 jul. 2026).** Los 16 capítulos del bloque de primavera están escritos, verificados contra el calendario UCI 2026 real, y listos. Arranca el Tour de Francia en el cap. 282.
+
+**Nota de plantilla (confirmada 28 jul. 2026):** la escuadra de 8 del Tour NO incluye a Cano — con solo seis meses de profesional, el riesgo de inexperiencia en el pelotón del Tour es demasiado alto. Marc Soler ocupa el octavo lugar por experiencia (8 temporadas, 3 Tours corridos). Cano queda en Girona/como suplente, con la puerta abierta para 2027. Mantener esto en cualquier capítulo del Tour — Cano NO aparece en la carretera de Francia.
+| 282–302 | Pendiente | **Tour de Francia 2026** (~21 caps, el tratamiento más extenso de la novela) — construcción etapa por etapa ya fijada: Vingegaard amarillo el día 1, siete cambios de maillot entre Santi y Pogačar, el Tourmalet en la etapa 6, la caída de Vingegaard en la 15, la crono decisiva de la 16 (-20" por la vieja T7), el Alpe d'Huez de la etapa 19 (victoria de etapa de Santi por centímetros, foto finish de 40 segundos) y la revancha de la 20. **Pogačar gana por 4 segundos — el margen más pequeño de su carrera.** |
+| 303–305 | Pendiente | Post-Tour (ago) — digerir la derrota más cara de su carrera, deportiva y comercial a la vez. San Sebastián y Burgos como respuesta inmediata. |
+| 306–308 | Pendiente | Octubre — Giro dell'Emilia, Tre Valli Varesine e Il Lombardia — revancha exacta un año después de Como, esta vez ganada. |
+| 309–310 | Pendiente | Cierre de año — reunión anual de patrocinios, balance con Ferretti y Rusconi, semillas de 2027. |
+
+**Nota de estructura confirmada (jul. 2026):** las carreras de una semana o más (Itzulia, Auvergne-Rhône-Alpes) reciben tratamiento multi-capítulo real, con la misma densidad narrativa que los Grand Tours de arcos anteriores — escenas de ataque en tiempo real, caídas, tácticas de equipo, no resúmenes. La presentación oficial del Tour puede caer en el cap. 280 o más adelante si el desarrollo de la primavera lo exige; no hay apuro por llegar a julio rápido. La sustancia del recorrido y de la rivalidad previa importa más que la velocidad de llegar al Tour.
+
+**Nota de caracterización (ver arriba):** desde el cap. 266, Santi habla y decide con más filo — menos cálculo, más "vamos a ir a muerte". Mantener en todos los capítulos siguientes. **Nota de estilo:** no forzar el cierre con el cuaderno de Hernando en cada capítulo — usarlo solo cuando aporte algo nuevo, no como fórmula automática.
+
+**Nota de construcción — dominio creciente y "la guerra a tres bandas" (confirmado 27 jul. 2026):**
+- **Progresión de márgenes:** cada carrera de la primavera debe ganarse con más autoridad que la anterior — el margen sobre el segundo (o sobre la general) crece carrera a carrera, sin excepción, hasta llegar al Tour. Andalucía ya quedó fijada como el piso (+14" en la crono). A partir de Tirreno, cada resultado tiene que superar al anterior.
+- **Corrección real importante:** Pogačar **no corre Tirreno, Itzulia ni Flèche Wallonne en 2026** — su calendario real es solo Monumentos (Strade, Sanremo, Flandes, Roubaix, Lieja) + Romandía + Suiza + Tour. Por lo tanto **Santi y Pogačar no se cruzan en persona en toda la primavera** — la guerra se construye entera por prensa, sin coincidir en una sola salida, hasta Barcelona el 4 de julio. Esto es una ventaja narrativa, no un problema: más tensión acumulada.
+- **Pasajes periodísticos entre capítulos:** insertar, en distintos puntos del bloque (no en cada capítulo, para no volverlo fórmula), fragmentos breves de prensa deportiva/comentaristas de TV construyendo el relato de la "guerra a tres bandas" — Pogačar arrasando los Monumentos, Vingegaard arrasando en paralelo (Paris-Niza, Catalunya, después el Giro), y Santi arrasando su propio calendario, sin haberse visto la cara. Dentro de esos mismos pasajes, algún periodista o comentarista debe señalar explícitamente que no hay que olvidar a los jóvenes (Seixas, del Toro) y a **Remco** — vivo en el relato aunque la prensa siga sin darle el protagonismo que merece (el agravio de Como continúa). Este recurso ya se usó una vez con éxito en el cap. 264 (Bettini/Cassani, RAI) — mismo formato, distintas voces según el país de la carrera (L'Équipe, Marca, Gazzetta, Sporza, Eurosport).
+- **Comentaristas en carreras importantes:** ambientar las etapas grandes (cronos, finales en alto decisivos) con voces de cabina, como ya se hizo en el Lombardia — dupla de comentaristas locales narrando en vivo, con su propio idioma y color.
 
 ---
 

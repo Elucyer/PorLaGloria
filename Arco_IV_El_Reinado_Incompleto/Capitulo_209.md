@@ -8,7 +8,7 @@
 
 ---
 
-El Cauberg, el muro final de la Amstel, era una subida que Santi conocía desde 2021, cuando había llegado tercero, a varios metros de Van der Poel y Van Aert, sintiendo que el sprint corto de la última rampa no era exactamente su terreno —demasiado corto, demasiado explosivo, favoreciendo a corredores con un tipo de potencia distinta a la suya, más sostenida que explosiva.
+El Cauberg, el muro final de la Amstel, era una subida que Santi conocía desde 2021, cuando había llegado segundo, a cuatro metros de Van Aert, sintiendo que el sprint corto de la última rampa no era exactamente su terreno —demasiado corto, demasiado explosivo, favoreciendo a corredores con un tipo de potencia distinta a la suya, más sostenida que explosiva.
 
 Dos años después, volvía a Limburgo con una diferencia que no estaba en las piernas sino en la cabeza: ya no necesitaba ganar el sprint del Cauberg. Necesitaba, simplemente, no llegar a él con nadie más al lado.
 
@@ -48,7 +48,7 @@ No fueron suficientes para relajarse ni un segundo. Van der Poel, el corredor qu
 
 ---
 
-Era la primera vez que Santi ganaba la Amstel, después de un tercer puesto en 2021 que todavía recordaba con la sensación específica de haber hecho casi todo bien y no lo suficiente, una sensación que se había quedado dando vueltas en su cabeza durante meses después de esa carrera.
+Era la primera vez que Santi ganaba la Amstel, después de un segundo puesto en 2021 que todavía recordaba con la sensación específica de haber hecho casi todo bien y no lo suficiente, una sensación que se había quedado dando vueltas en su cabeza durante meses después de esa carrera.
 
 — ¿Qué cambió respecto a 2021? —le preguntó un periodista holandés en la rueda de prensa, en un salón improvisado cerca de la línea de meta, con el ruido de la celebración todavía audible afuera.
 

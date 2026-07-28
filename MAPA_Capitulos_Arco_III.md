@@ -259,7 +259,7 @@ Ajustar caps 176 (E1-E10, incluir E9) y 178 (E17, ya descrito como sprint reduci
 | 192 | Podcast — Santiago Reyes: el año completo | Grabado 20 oct 2022 | ✅ | *Aprender a Matar* Ep. 24. Repaso cronológico completo de la temporada: Strade (2.º, Pogačar 1.º) → Sanremo (1.º) → Itzulia (1.º) → Roubaix (1.º) → Flèche Wallonne (1.º) → Giro (1.º) → **9 jun: caída entrenando en Girona (perro suelto), fractura de clavícula derecha, cirugía con placa** → especulación mediática sobre si llega al Tour → Tour de Suiza cancelado → Tour de France con prep comprimida (19 días): toma el amarillo en Granon (pierde por 2"), lo recupera en Alpe d'Huez, lo pierde en Hautacam, **3.º final a 28" de Vingegaard, detrás de Pogačar** → Mundial Wollongong (3.º, Evenepoel 1.º, pierde el arcoíris) → Lombardia (2.º, Pogačar 1.º). Cierre: "el año en que todo salió bien, excepto lo único que tenía que salir bien." |
 
 **Calendario real 2022 de referencia (para consistencia con menciones de rivales):**
-Strade Bianche: Pogačar (Santi 2.º) / Tirreno: Roglič (sin Santi) / Sanremo: Mohorič (real; en la ficción gana Santi) / Flandes: Van der Poel (sin Santi) / Itzulia: Roglič (real; en la ficción gana Santi) / Roubaix: Van Baarle (real; en la ficción gana Santi) / Amstel: Teunissen (sin Santi) / Flèche: Teuns (real; en la ficción gana Santi) / Lieja: Evenepoel (sin Santi) / Giro: Hindley (real; en la ficción gana Santi, Carapaz 2.º) / **9 jun: caída entrenando en Girona (perro), fractura de clavícula, cirugía** / Dauphiné: Roglič (sin Santi) / Tour de Suiza: Thomas (cancelado para Santi por la clavícula) / Tour de France: Vingegaard, Pogačar 2.º, **Santi 3.º a 28" (ficción)** / San Sebastián: Pogačar (sin Santi) / Vuelta: Evenepoel (sin Santi) / Mundial Wollongong: Evenepoel, Van Aert 2.º, Santi 3.º / Lombardia: Pogačar, Santi 2.º.
+Strade Bianche: Pogačar (Santi 2.º) / Tirreno: Roglič (sin Santi) / Sanremo: Mohorič (real; en la ficción gana Santi) / **Catalunya: Higuita (real; en la ficción gana Santi — GC + etapas de La Molina y Boí Taüll, canonizado jul. 2026)** / Flandes: Van der Poel (sin Santi) / Itzulia: Roglič (real; en la ficción gana Santi — GC + crono de Vitoria) / Roubaix: Van Baarle (real; en la ficción gana Santi) / Amstel: Teunissen (sin Santi) / Flèche: Teuns (real; en la ficción gana Santi) / Lieja: Evenepoel (sin Santi) / Giro: Hindley (real; en la ficción gana Santi con 3 etapas — Blockhaus, Aprica, Fedaia —, Carapaz 2.º) / **9 jun: caída entrenando en Girona (perro), fractura de clavícula, cirugía** / Dauphiné: Roglič (sin Santi) / Tour de Suiza: Thomas (cancelado para Santi por la clavícula) / Tour de France: Vingegaard, Pogačar 2.º, **Santi 3.º a 28" (ficción)** / San Sebastián: Pogačar (sin Santi) / Vuelta: Evenepoel (sin Santi) / Mundial Wollongong: Evenepoel, Van Aert 2.º, Santi 3.º / Lombardia: Pogačar, Santi 2.º.
 
 ---
 
@@ -285,22 +285,25 @@ Strade Bianche: Pogačar (Santi 2.º) / Tirreno: Roglič (sin Santi) / Sanremo: 
 | Año | Carrera | Tipo |
 |-----|---------|------|
 | 2019 | Il Lombardia | Monumento |
+| 2020 | Strade Bianche (1 ago, cap. 116) | Clásica WorldTour |
 | 2020 | Tour de France | Grand Tour (1.ª vez) |
 | 2020 | Etapas Tour ×3 (Marie-Blanque, Grand Colombier, Col de la Loze) | Etapas Grand Tour |
 | 2020 | Tour de Flandes | Monumento |
-| 2020 | Etapa Vuelta E17 Covatilla | Etapa Grand Tour |
+| 2020 | Etapas Vuelta ×2 (E6 Formigal, E17 Covatilla) | Etapas Grand Tour |
 | 2021 | Strade Bianche | Clásica WorldTour |
-| 2021 | Tirreno-Adriatico GC | Carrera por etapas |
-| 2021 | Giro de Italia | Grand Tour (2.ª vez) — **doblete con Tour** |
+| 2021 | Lieja-Bastoña-Lieja (foto finish ante Pogačar, cap. 165) | Monumento (1.ª vez) |
+| 2021 | Giro de Italia | Grand Tour (2.ª vez) — **doblete intentado con Tour** |
+| 2021 | Etapas Giro ×2 (E16 Cortina en solitario, E17 Monte Bondone — cap. 170) | Etapas Grand Tour |
 | 2021 | Etapas Tour ×3 (Andorra E15, Col du Portet E17, Luz-Ardiden E18) | Etapas Grand Tour |
 | 2021 | Juegos Olímpicos Tokio (RR) | Medalla de oro |
 | 2021 | Mundial RR Lovaina | Campeonato del Mundo |
 | 2021 | Il Lombardia | Monumento (2.ª vez) |
 | 2022 | Milano-Sanremo | Monumento (1.ª vez) |
-| 2022 | Itzulia País Vasco GC | Carrera por etapas |
+| 2022 | Volta a Catalunya GC + 2 etapas (La Molina, Boí Taüll) — **canonizado jul. 2026, cap. 192** | Carrera por etapas |
+| 2022 | Itzulia País Vasco GC + etapa (crono de Vitoria, "mejor tiempo del día" — cap. 192) | Carrera por etapas |
 | 2022 | París-Roubaix | Monumento (1.ª vez) |
 | 2022 | La Flèche Wallonne | Clásica WorldTour |
-| 2022 | Giro de Italia | Grand Tour (3.ª vez) |
+| 2022 | Giro de Italia + 3 etapas (Blockhaus, Aprica, Passo Fedaia — cap. 192) | Grand Tour (3.ª vez) |
 
 **Nota:** la Vuelta a España 2021 fue eliminada del arco (ver Notas y Pendientes) — el calendario 2021 de Santi no incluye Vuelta.
 
@@ -313,22 +316,26 @@ Strade Bianche: Pogačar (Santi 2.º) / Tirreno: Roglič (sin Santi) / Sanremo: 
 | 2019 | Giro de Italia (1.ª vez) — Arco II |
 | 2019 | Campeonato del Mundo Yorkshire — Arco II |
 | 2019 | Il Lombardia (1.ª vez) |
+| 2020 | Strade Bianche (edición de agosto) |
 | 2020 | Tour de France (1.ª vez) |
 | 2020 | 3 etapas Tour de France |
 | 2020 | Tour de Flandes |
-| 2020 | Etapa Vuelta E17 Covatilla |
+| 2020 | 2 etapas Vuelta (E6 Formigal, E17 Covatilla) |
 | 2021 | Strade Bianche |
-| 2021 | Tirreno-Adriatico GC |
-| 2021 | Giro de Italia (2.ª vez) — doblete Giro+Tour en mismo año |
+| 2021 | 2.º Tirreno-Adriatico (a 6,8" de Pogačar) — **corrección: no fue victoria, ver cap. 159** |
+| 2021 | 2.º Amstel (a 4 m de Van Aert) — **corrección: no fue 3.º, ver cap. 160** |
+| 2021 | Lieja-Bastoña-Lieja (1.ª vez — foto finish ante Pogačar) |
+| 2021 | Giro de Italia (2.ª vez) + 2 etapas (Cortina, Bondone) — doblete Giro+Tour intentado en mismo año |
 | 2021 | 2.º Tour de France (pierde por 2" en crono final vs. Pogačar) |
-| 2021 | Juegos Olímpicos Tokio (resultado por definir) |
+| 2021 | Juegos Olímpicos Tokio — oro en ruta (ver tabla de victorias arriba) |
 | 2021 | Mundial RR Lovaina |
 | 2021 | Il Lombardia (2.ª vez) |
 | 2022 | Milano-Sanremo (1.ª vez, Monumento nuevo) |
-| 2022 | Itzulia País Vasco GC |
+| 2022 | Volta a Catalunya GC + 2 etapas (La Molina, Boí Taüll) — canonizado jul. 2026 |
+| 2022 | Itzulia País Vasco GC + crono de Vitoria |
 | 2022 | París-Roubaix (1.ª vez, Monumento nuevo) |
 | 2022 | La Flèche Wallonne |
-| 2022 | Giro de Italia (3.ª vez) |
+| 2022 | Giro de Italia (3.ª vez) + 3 etapas (Blockhaus, Aprica, Fedaia) |
 | 2022 | 3.º Tour de France (clavícula rota 9 jun, llega con prep. comprimida, pierde el podio alto por 17"/28" — cap 192) |
 
 ---

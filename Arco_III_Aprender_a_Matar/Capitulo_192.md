@@ -126,6 +126,18 @@ Santi se quedó en silencio un momento — el tipo de silencio que en el podcast
 
 ---
 
+**Volta a Catalunya**
+
+— Dos días después de Sanremo ya estabas corriendo la Volta a Catalunya —dijo Julián—. Siete días de carrera. Casi nadie se acuerda de esa semana cuando repasa tu temporada.
+
+— Porque la corrimos sin ruido —dijo Santi—. Ferretti la había puesto en el calendario como puente de forma entre las clásicas y el País Vasco, y terminó saliendo mejor de lo planeado. Gané en La Molina atacando a dos kilómetros, gané en Boí Taüll al día siguiente porque la etapa se hizo dura sola con el viento, y con esos dos días la general quedó resuelta antes del fin de semana.
+
+— Dos etapas y la general, ¿y lo contás como si fuera un trámite?
+
+— En cualquier otro año habría sido el centro de la temporada —admitió Santi—. Ese año quedó tapado entre Sanremo y Roubaix. Así de raro fue 2022: hubo semanas enteras de las que casi no hablamos nunca.
+
+---
+
 **Itzulia País Vasco**
 
 — Dos semanas y media después, el País Vasco —dijo Julián—. Una carrera por etapas, seis días, terreno duro. ¿Qué cambió, correr una carrera de varios días después de dos clásicas de un día?
@@ -244,7 +256,7 @@ Julián se inclinó hacia adelante en el sofá — el gesto que hacía cuando ll
 
 — Atacó primero, a cuatrocientos metros —dijo Santi—. Respondí en la mitad de la rampa más dura. A doscientos metros de la cima, lo pasé. No fue un margen enorme: cinco segundos. Pero en el Muro de Huy, cinco segundos es una eternidad.
 
-— Cuatro clásicas en cinco semanas —dijo Julián—. Strade segundo, Sanremo primero, País Vasco primero, Roubaix primero, Flèche primero. ¿En algún momento de esas cinco semanas pensaste en lo que estabas construyendo?
+— Seis semanas de locura —dijo Julián—. Strade segundo, Sanremo primero, Catalunya primero con dos etapas, País Vasco primero con la crono de Vitoria, Roubaix primero, Flèche primero. ¿En algún momento de esas semanas pensaste en lo que estabas construyendo?
 
 Santi negó con la cabeza.
 
@@ -298,7 +310,7 @@ Santi se quedó pensando la respuesta.
 
 — ¿Ganaste el Giro por mucho margen?
 
-— Por un minuto cincuenta y tres sobre Carapaz —dijo Santi—. Menos que en 2021 contra Bernal, pero en un Giro con un perfil más parejo, sin un Zoncolan ni un Bondone que rompieran la carrera de manera definitiva.
+— Por un minuto cincuenta y tres sobre Carapaz —dijo Santi—. Con tres etapas: el Blockhaus, la de Aprica, y la del Fedaia. Menos margen que en 2021 contra Bernal, pero en un Giro con un perfil más parejo, sin un Zoncolan ni un Bondone que rompieran la carrera de manera definitiva.
 
 — ¿Hablaste con él después del Fedaia?
 

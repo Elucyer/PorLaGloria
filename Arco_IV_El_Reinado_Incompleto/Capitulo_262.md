@@ -52,7 +52,7 @@ Esa noche llamó a Hernando desde el hotel, mientras Mariana escuchaba desde la 
 
 La cena con Ferretti fue dos días después, en el restaurante pequeño cerca del río Onyar donde habían tenido, un año atrás, la primera conversación cara a cara desde el hospital.
 
-— Antes de que digas nada, quiero ser honesto con vos sobre algo —dijo Ferretti, cuando trajeron el primer plato—. El equipo no gana una carrera que importe desde Tirreno, en marzo del año pasado. Quince meses. Yo puedo vivir con eso: sé lo que estábamos esperando. Pero Duarte lleva desde enero sosteniendo renovaciones congeladas con la mitad de los patrocinadores, y la palabra que usan ya no es "solidaridad". Es "fecha".
+— Antes de que digas nada, quiero ser honesto con vos sobre algo —dijo Ferretti, cuando trajeron el primer plato—. El equipo no gana una carrera que importe desde Tirreno, en marzo del año pasado. Dieciséis meses. Yo puedo vivir con eso: sé lo que estábamos esperando. Pero Duarte lleva desde enero sosteniendo renovaciones congeladas con la mitad de los patrocinadores, y la palabra que usan ya no es "solidaridad". Es "fecha".
 
 — ¿Qué tan grave es? —preguntó Santi.
 
@@ -152,7 +152,7 @@ Luca Arnheim lo acompañó en el último bloque de Girona, marcando un ritmo que
 
 ---
 
-Entre los dos bloques de entrenamiento cupieron, apretadas pero intactas, las otras dos cosas importantes del final del verano. La exposición de Mariana se inauguró a finales de agosto en una galería pequeña de Provenza —don Aurelio el zapatero, la señora de las flores, el afilador de cuchillos con su campanita—, con Daniela viajando desde Bogotá y diciéndole a Mariana, delante de las fotos, que se notaba que había encontrado en Medellín algo que era completamente suyo, sin depender de la recuperación de nadie.
+Entre los dos bloques de entrenamiento cupieron, apretadas pero intactas, las otras dos cosas importantes del final del verano. La exposición de Mariana —la serie de oficios tradicionales: don Aurelio el zapatero, la señora de las flores, el afilador con su campanita— se inauguró a finales de agosto en una galería pequeña de Provenza, y esa misma noche, mirando la sala llena, Daniela y Camilo le propusieron la versión grande: llevarla a Bogotá, ampliada, en una exposición conjunta de los tres, para enero. Mariana dijo que sí antes de que terminaran la frase.
 
 Y en la última semana de septiembre, los padres de Mariana viajaron por primera vez a Medellín. El padre, un ingeniero civil callado de Bucaramanga, confesó durante la cena —con una sonrisa tímida que su hija no le conocía— que había seguido las carreras de Santi durante años sin decírselo a nadie, porque en su casa, de joven, el ciclismo era un lujo que se aprendía a guardar. Hernando y él se quedaron hablando hasta la madrugada de corredores que ambos habían admirado de lejos, y en la despedida del aeropuerto el padre le dio a Santi un abrazo serio y una sola instrucción:
 

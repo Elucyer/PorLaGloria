@@ -39,7 +39,11 @@
       "Bash(git merge *)",
       "Bash(git apply *)",
       "Bash(cd \"c:\\\\Users\\\\Usuario\\\\Documents\\\\Proyectos\\\\PorLaGloria\\\\.claude\\\\worktrees\\\\agent-a28f3f4aa66889b80\" && git diff -- \"Arco_II_El_Año_que_Todo_Paso/Capitulo_043.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_044.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_048.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_050.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_052.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_053.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_062.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_078.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_079.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_082.md\" > \"C:\\\\Users\\\\Usuario\\\\AppData\\\\Local\\\\Temp\\\\claude\\\\spoiler_fix.patch\")",
-      "Bash(cd \"c:/Users/Usuario/Documents/Proyectos/PorLaGloria\" && rm Arco_V_La_Cosecha/Capitulo_2*.md && ls Arco_V_La_Cosecha/ && git status --short -- Arco_V_La_Cosecha/ | head -20)"
+      "Bash(cd \"c:/Users/Usuario/Documents/Proyectos/PorLaGloria\" && rm Arco_V_La_Cosecha/Capitulo_2*.md && ls Arco_V_La_Cosecha/ && git status --short -- Arco_V_La_Cosecha/ | head -20)",
+      "Bash(awk 'NR>129 && /cruzó|meta|ganó|primero/' Arco_III_Aprender_a_Matar/Capitulo_170.md)",
+      "Bash(awk 'NR>31 && NR<53' Arco_IV_El_Reinado_Incompleto/Capitulo_207.md)",
+      "WebFetch(domain:en.wikipedia.org)",
+      "Read(//c/Usuario/Documents/Proyectos/PorLaGloria/**)"
     ],
     "additionalDirectories": [
       "C:\\Users\\Usuario\\AppData\\Local\\Temp\\claude",

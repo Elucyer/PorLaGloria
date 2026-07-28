@@ -16,7 +16,7 @@ La Strade Bianche, el 9 de marzo, sirvió como primer test real de la forma cons
 
 ---
 
-La Tirreno-Adriatico, disputada en la semana siguiente, confirmó la tendencia: Santi ganó la clasificación general gracias a una crono individual donde superó a Pogačar por once segundos en apenas doce kilómetros, una señal que ambos equipos interpretaron como el primer indicio real de cómo se iba a comportar la rivalidad de cara al doble objetivo de ese año.
+La Tirreno-Adriatico, disputada en la semana siguiente, confirmó la tendencia: Santi ganó la clasificación general gracias a una crono individual que ganó con el mejor tiempo del día, superando a Pogačar por once segundos en apenas doce kilómetros, una señal que ambos equipos interpretaron como el primer indicio real de cómo se iba a comportar la rivalidad de cara al doble objetivo de ese año.
 
 — Once segundos en doce kilómetros es mucho —le dijo Pogačar a Santi, en la zona de meta, con una mezcla de respeto y preocupación deportiva—. Si esto se mantiene en mayo, va a ser un Giro distinto a cualquiera de los anteriores.
 

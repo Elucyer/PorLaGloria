@@ -14,7 +14,7 @@ Santi llevaba ocho años prendiéndose dorsales sin pensarlo, un gesto tan autom
 
 Clarke, sentado enfrente, lo miró por encima de la taza de café. No dijo nada. Se levantó, le quitó el dorsal de las manos, y se lo prendió en la espalda con cuatro movimientos exactos, como se lo había prendido a media docena de líderes a lo largo de veinte años de carrera.
 
-— Cuatrocientos setenta y ocho días —dijo Clarke, volviendo a sentarse—. Ya está. Lo demás es en bicicleta, y eso no se te olvidó nunca.
+— Cuatrocientos cuarenta y un días —dijo Clarke, volviendo a sentarse—. Ya está. Lo demás es en bicicleta, y eso no se te olvidó nunca.
 
 Afuera, Bolonia era un manicomio amable. La organización había calculado el doble de público habitual; se quedó corta. En la rampa del San Luca, donde la carrera subiría cinco veces hasta el santuario, alguien había pintado durante la noche, en letras blancas de dos metros, una sola palabra: *BENTORNATO*.
 
@@ -80,7 +80,7 @@ Al final no pudo seguir el ataque de Isaac del Toro, el mexicano de veintiún a�
 
 Julián transmitió esa semana desde Italia para tres medios colombianos a la vez, durmiendo cuatro horas por noche y feliz como nunca en su vida profesional. Hernando, Carmen y Mariana siguieron las dos carreras desde la zona del equipo, y Mariana fotografió lo que ningún acreditado fotografió: Rensen limpiando la bicicleta de Santi la noche antes de Emilia, sin que nadie se lo pidiera, con una minuciosidad de relojero; Carmen rezando bajito en la última subida del San Luca; Hernando en la valla de meta de Varese, con el cuaderno abierto, anotando el puesto sexto con la misma letra con que veinte años atrás anotaba los tiempos de un niño en el Alto de Minas.
 
-— Sexto, a los cuatrocientos ochenta y un días —le dijo Rusconi a Ferretti esa noche, mostrándole los datos en la tablet—. Te voy a decir una cosa que no vas a repetir: esto no era posible. Yo hice los cálculos en julio. Esto no estaba en ninguna curva de progresión mía.
+— Sexto, a los cuatrocientos cuarenta y cuatro días —le dijo Rusconi a Ferretti esa noche, mostrándole los datos en la tablet—. Te voy a decir una cosa que no vas a repetir: esto no era posible. Yo hice los cálculos en julio. Esto no estaba en ninguna curva de progresión mía.
 
 — ¿Y entonces? —preguntó Ferretti.
 

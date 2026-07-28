@@ -58,7 +58,7 @@ La etapa 19, la última verdaderamente montañosa antes de la transición hacia 
 
 Vingegaard respondió, pero esta vez no logró cerrar el hueco por completo: Santi llegó a la cima con veintidós segundos de ventaja, una diferencia que, sumada a la de la Croix de Fer, dejaba la clasificación general en un margen de apenas catorce segundos a favor del danés, antes de que el descenso y los últimos kilómetros llanos hacia la meta definieran el resto de la jornada.
 
-En el tramo final, llano y expuesto al viento, Santi, trabajando junto a dos gregarios que habían esperado exactamente para ese momento, logró sumar trece segundos adicionales, cruzando la meta con un tiempo total que invertía, finalmente, la clasificación general: Santi al frente, por un margen de cuatro segundos sobre Vingegaard.
+En el tramo final, llano y expuesto al viento, Santi, trabajando junto a dos gregarios que habían esperado exactamente para ese momento, logró sumar trece segundos adicionales, cruzando la meta en primer lugar —su tercera victoria de etapa en ese Tour— con un tiempo total que invertía, finalmente, la clasificación general: Santi al frente, por un margen de cuatro segundos sobre Vingegaard.
 
 ---
 

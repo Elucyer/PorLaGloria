@@ -14,7 +14,7 @@ La rueda de prensa se hizo el viernes a las cinco de la tarde, en el salón de c
 
 Santi se sentó detrás de la mesa con Ferretti a su izquierda y una botella de agua a la que no le quitó la etiqueta en cuarenta minutos, que era su manera de tener algo que hacer con las manos. La primera pregunta fue la que iba a ser, hecha por la RAI, sin anestesia.
 
-— Mañana, después de quinientos días, vuelve a encontrarse con Pogačar en una gran carrera. ¿Puede ganarle?
+— El sábado pasado, en Bolonia, usted terminó a un minuto y medio de Pogačar. Mañana el mundo entero espera que peleen la carrera de frente. ¿Puede ganarle?
 
 — No —dijo Santi.
 
@@ -76,7 +76,7 @@ En la reunión táctica del bus, Ferretti fue breve porque no había nada compli
 
 *[Cabina de la RAI, kilómetro 85. Bettini y Cassani, los mismos que habían narrado juntos los cierres de temporada de los últimos años.]*
 
-*— ...y la fuga del día mantiene tres minutos cuarenta, Davide, con el pelotón controlado desde temprano por el tren del MercadoLibre-FCV. Audiencia récord histórica para una clásica, nos confirman: este Lombardia se está viendo en ochenta países. Todos esperando lo mismo: Pogačar contra Reyes, el reencuentro.*
+*— ...y la fuga del día mantiene tres minutos cuarenta, Davide, con el pelotón controlado desde temprano por el tren del MercadoLibre-FCV. Audiencia récord histórica para una clásica, nos confirman: este Lombardia se está viendo en ochenta países. Todos esperando lo mismo: Pogačar contra Reyes, el duelo que Bolonia y Varese apenas insinuaron.*
 
 *— Sí, Paolo, pero yo quiero que la gente en casa mire otra cosa un momento, si me lo permite. Miren quién tira del pelotón desde hace sesenta kilómetros, junto al lago: el danés Rensen. Cuarenta años casi. Las manos bajas, el gesto quieto. Yo corrí contra los de su clase toda mi vida: son los que nunca ganan nada y sin los cuales nadie gana nada. Hoy es su última carrera, y la de Clarke, y la de Colombo. Lo anunció el equipo con cuatro líneas, sin foto. Quédense con la imagen, señores, aunque sea un momento, porque el ciclismo también es esto que no sale en las portadas.*
 
@@ -100,7 +100,7 @@ Después no supo explicarlo mejor que así: el cuerpo iba al setenta por ciento,
 
 *[Cabina de la RAI, Civiglio, 13 km a meta.]*
 
-*— Atención. Atención, Davide, movimiento atrás... ¡ataca Reyes! ¡ATACA REYES EN EL CIVIGLIO! ¡Se va del grupo, se va solo, nadie lo sigue, NADIE PUEDE SEGUIRLO! ¡Quinientos días, señores! ¡Quinientos días después del Tourmalet, y el colombiano está atacando en el Civiglio como si el tiempo no hubiera pasado! ¡È TORNATO! ¡È TORNATO, SIGNORI, È TORNATO!*
+*— Atención. Atención, Davide, movimiento atrás... ¡ataca Reyes! ¡ATACA REYES EN EL CIVIGLIO! ¡Se va del grupo, se va solo, nadie lo sigue, NADIE PUEDE SEGUIRLO! ¡Quince meses, señores! ¡Quince meses después del Tourmalet, y el colombiano está atacando en el Civiglio como si el tiempo no hubiera pasado! ¡È TORNATO! ¡È TORNATO, SIGNORI, È TORNATO!*
 
 *— ...Paolo, yo... miren la cara de los que se quedaron. Del Toro mira alrededor buscando piernas y encuentra a todos mirándose entre sí. Esa mirada, señores, yo la conozco desde adentro. Esa mirada es el pelotón entendiendo algo antes que nosotros: que volvió. No a terminar carreras. Volvió.*
 
@@ -128,7 +128,7 @@ Le preguntaron a Pogačar por su tercera Lombardia y contestó con cortesía de 
 
 La duodécima pregunta también empezó siendo para ellos.
 
-— Pregunta para Tadej y para Santiago —dijo un periodista italiano—. Este reencuentro de los dos más grandes, ¿es el comienzo de una nueva era del duelo que el Tourmalet interrumpió?
+— Pregunta para Tadej y para Santiago —dijo un periodista italiano—. Esta semana italiana los volvió a poner frente a frente después de quince meses. ¿Es el comienzo de una nueva era del duelo que el Tourmalet interrumpió?
 
 Santi se inclinó hacia el micrófono antes de que Pogačar alcanzara el suyo.
 
@@ -186,7 +186,7 @@ Mariana tomó la última foto de la noche desde lejos, sin flash: cuatro sillas 
 
 Pogačar lo encontró después, donde Santi sabía que lo iba a encontrar: en el murito del lungolago, lejos de las vallas, donde el lago se pone negro y los últimos tifosi ya no distinguen caras. Se sentó al lado sin saludar, con dos botellas de agua, y le pasó una.
 
-— Quinientos días —dijo Pogačar—. Y me sacás cincuenta y nueve segundos en tu tercera carrera. Yo entrené todo el año, Santiago. Tengo derecho a ofenderme.
+— Cuatrocientos cuarenta y ocho días —dijo Pogačar—. Sí, los conté. Y en tu tercera carrera de vuelta terminás a cincuenta y nueve segundos míos. Yo entrené todo el año, Santiago. Tengo derecho a ofenderme.
 
 — Ibas a ganar igual entrenando la mitad —dijo Santi.
 
@@ -214,7 +214,7 @@ Pogačar sonrió en la oscuridad y le tendió la mano, y se la dieron como se da
 
 Hernando escribió esa noche, en el hotel de Como, con la ventana abierta al lago porque a Carmen le gustaba dormirse oyendo el agua:
 
-*11 de octubre de 2025. Il Lombardia. Pogačar primero, Evenepoel segundo, mi hijo tercero, a quinientos días del Tourmalet y a cuatrocientos ochenta y tantos de que un médico en Tarbes nos dijera "de doce a dieciocho meses, si todo sale bien". Salió mejor. Tercero no se celebra, le enseñé yo hace veinte años. Hoy me desdigo: hay terceros puestos que valen carreras enteras, y el cuaderno es mío y lo escribo yo.*
+*11 de octubre de 2025. Il Lombardia. Pogačar primero, Evenepoel segundo, mi hijo tercero, a cuatrocientos cuarenta y ocho días del Tourmalet, cuando un médico en Tarbes nos había dicho "de doce a dieciocho meses, si todo sale bien". Salió mejor, y salió antes. Tercero no se celebra, le enseñé yo hace veinte años. Hoy me desdigo: hay terceros puestos que valen carreras enteras, y el cuaderno es mío y lo escribo yo.*
 
 *Clarke, Colombo y Rensen colgaron hoy. Veinte años de trabajo entre los tres, medio minuto de televisión —porque Cassani se acordó de qué está hecho este deporte—, y una llegada juntos, en la última fila, que vieron un cronista viejo y mi nuera con su cámara. Es exactamente el funeral que querían: sin flores, con la meta desarmándose atrás. El danés le regaló el dorsal a Santi. Lo vi guardarlo en la chaqueta como se guarda una reliquia.*
 

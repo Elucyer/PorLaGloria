@@ -234,7 +234,7 @@ Fichajes del invierno 2025-26, financiados por las renovaciones de patrocinio co
 - **Real**: Thomas George "Tao" Geoghegan Hart, nacido 30/08/1995, Londres
 - **Equipo**: Ineos Grenadiers (2016–)
 - **Tipo**: Escalador completo. Fuerte en contrarreloj para ser escalador. Corredor de gran vuelta que emerge en 2020.
-- **Resultado real 2020**: Ganó el Giro de Italia 2020 (en la ficción: pierde ante Santi, termina 2.º).
+- **Resultado real 2020**: Ganó el Giro de Italia 2020. **[CORRECCIÓN de canon]**: Santi NO corrió el Giro 2020 (corrió Tour, Flandes y Vuelta — ver MAPA_Capitulos_Arco_III.md); Geoghegan Hart lo gana también in-novel. La versión anterior de esta ficha ("pierde ante Santi") era de un plan descartado.
 - **Carácter en la novela**: Profesional discreto. No habla mucho. El corredor que en el podio de Milán 2020 estrecha la mano de Santi con el respeto del rival que dio todo.
 - **Rol narrativo**: Antagonista principal del Giro 2020. Después de perder ante Santi, no reaparece como rival central.
 
@@ -242,7 +242,7 @@ Fichajes del invierno 2025-26, financiados por las renovaciones de patrocinio co
 - **Real**: João Pedro Gonçalves Almeida, nacido 05/08/1998, Portugal
 - **Equipo**: Deceuninck-QuickStep / UAE Team Emirates (2020–)
 - **Tipo**: Escalador-rodador completo. Especialista en resistencia en alta montaña y contrarreloj sólida para escalador.
-- **Resultado real 2020 Giro**: Llevó la maglia rosa 15 etapas, terminó 4.º general. En la ficción: cede la rosa a Santi en la etapa 15 (Piancavallo) y termina 4.º.
+- **Resultado real 2020 Giro**: Llevó la maglia rosa 15 etapas, terminó 4.º general. **[CORRECCIÓN de canon]**: Santi NO corrió el Giro 2020 — el resultado real de Almeida vale también in-novel. La mención anterior ("cede la rosa a Santi") era de un plan descartado.
 - **Carácter**: Silencioso, económico. El corredor que Santi reconoce en el Giro 2020 como alguien que habla el mismo idioma de la montaña.
 - **Edad en el Giro 2020**: 22 años (mismo rango generacional que Santi).
 - **Rol narrativo**: Rival del Giro 2020. Puede reaparecer en Arcos posteriores como rival de Grand Tour.

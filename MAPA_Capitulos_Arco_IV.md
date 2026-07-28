@@ -8,7 +8,7 @@
 
 La sección del Arco IV en `BIBLIA_PorLaGloria.md` quedó desactualizada por decisiones tomadas durante el Arco III y debe reescribirse. Resumen de lo que cambió:
 
-- **Los 5 Monumentos ya están completos desde 2022** (Lombardia, Flandes, Lieja, Sanremo, Roubaix) — no quedan pendientes para el Arco IV.
+- **Los 5 Monumentos están completos desde 2022** (Lombardia 2019, Flandes 2020, **Lieja 2021 — foto finish de 43 segundos ante Pogačar, cap. 165**, Sanremo 2022, Roubaix 2022). **Nota de verificación (jul. 2026):** la ficha de Alaphilippe y una versión de la nota de lectura de `REFERENCIA_Ciclistas_Contemporaneos.md` decían que Alaphilippe ganó Lieja 2021 — era de un plan viejo; el capítulo escrito (165) confirma la victoria de Santi con Alaphilippe 3.º a 19". En Lieja 2024 Santi fue 2.º ante Pogačar (cap. 239).
 - **El tercer Giro ya se ganó en 2022** (cap. 192) — no es un hito del Arco IV.
 - **Mariana Castañeda ya entró en la historia en noviembre de 2022** (caps. 197-198) — no en 2026 como decía la Biblia original.
 - El único Grand Tour que le sigue faltando a Santi en su carrera es la **Vuelta a España** (nunca ganada — 5.º en 2020, eliminada del calendario desde 2021).
@@ -38,7 +38,7 @@ Tres vertientes principales:
 | Strade Bianche | Marzo | GANA |
 | Volta a Catalunya (GC) | Marzo | GANA |
 | Itzulia País Vasco (GC) | Abril | GANA (back-to-back con 2022) |
-| Amstel Gold Race | Abril | GANA (redención: 3.º en 2021) |
+| Amstel Gold Race | Abril | GANA (redención: 2.º en 2021 ante Van Aert) |
 | La Flèche Wallonne | Abril | **2.º** — falla mecánica (cadena/cambio) en el Mur de Huy en el momento del ataque decisivo |
 | Critérium du Dauphiné (GC) | Junio | GANA — preparación directa para el Tour, crono decisiva |
 | Tour de Francia | Julio | GANA — único Grand Tour de la temporada |
@@ -127,7 +127,7 @@ Enero-junio sin competir; alta médica en junio; regreso a la competencia en oct
 | 234 | El cierre de año | Reunión anual financiera (estilo cap. 200) |
 | 235 | La conversación | Santi y Mariana — paso adelante, sin oficializar todavía |
 
-**Calendario de carreras 2023 confirmado en los capítulos:** Strade Bianche (1.º), Volta a Catalunya (1.º), Itzulia País Vasco (1.º), Amstel Gold Race (1.º), La Flèche Wallonne (2.º, falla mecánica), Critérium du Dauphiné (1.º), Tour de Francia (1.º), Clásica San Sebastián (1.º), Il Lombardia (1.º). 8 victorias de 9 carreras — exactamente como se planeó.
+**Calendario de carreras 2023 confirmado en los capítulos:** Strade Bianche (1.º), Volta a Catalunya (1.º + etapa: crono de Tossa de Mar, "mejor tiempo del día", cap. 206), Itzulia País Vasco (1.º + etapa reina del Karabieta ante Roglič, cap. 207), Amstel Gold Race (1.º), La Flèche Wallonne (2.º, falla mecánica), Critérium du Dauphiné (1.º + crono E4, "mejor tiempo del día por 31" sobre Vingegaard", cap. 216), Tour de Francia (1.º + **3 etapas**: E15 Luz Ardiden +3", E17 Croix de Fer +15", E19 Petit Ballon — caps. 225 y 227), Clásica San Sebastián (1.º), Il Lombardia (1.º). 8 victorias de 9 carreras + 6 etapas — conteo canonizado jul. 2026.
 
 **Renovación de contrato (cap. 205):** firmada el 10 de marzo de 2023 en Girona. Salario base 3,2M€/año por 3 años. Bonos ampliados a todo el calendario WorldTour (no solo Grand Tours/Monumentos como antes). Cobertura médica ampliada para acompañantes directos (respuesta a lo vivido con Hernando/Carmen en 2022). Se evalúa y descarta el cambio a una marca de bicicletas nueva — el equipo sigue con Specialized este ciclo de contrato, decisión de Rusconi y Koen por el riesgo de readaptar la posición a mitad de la temporada del Tour único. Nuevos patrocinios personales en curso: Red Bull y una aerolínea colombiana.
 
@@ -162,7 +162,7 @@ Enero-junio sin competir; alta médica en junio; regreso a la competencia en oct
 | 254 | París sin él | Pogačar gana el Tour y le dedica la victoria; traslado a Ginebra |
 | 255 | Lo que queda del año | Cirugía, regreso a Colombia, corsé, cierre de 2024 |
 
-**Calendario de carreras 2024:** Strade Bianche (1.º), Tirreno-Adriatico (1.º), Liège-Bastogne-Liège (2.º), Giro de Italia (2.º, a 1:11 de Pogačar), Tour de Francia (abandono por accidente en la etapa 19, Tourmalet — Pogačar campeón, Vingegaard 2.º).
+**Calendario de carreras 2024:** Strade Bianche (1.º), Tirreno-Adriatico (1.º + crono, "mejor tiempo del día", +11" sobre Pogačar — cap. 239), Liège-Bastogne-Liège (2.º), Giro de Italia (2.º, a 1:11 de Pogačar; **+ etapa**: crono E8 Foligno-Perugia, "mejor tiempo del día", +16" sobre Pogačar — cap. 241), Tour de Francia (abandono por accidente en la etapa 19, Tourmalet; **+ etapa**: crono E16 de Gruyère, "mejor tiempo del día", +28" sobre Vingegaard — cap. 250. Pogačar campeón, Vingegaard 2.º).
 
 **El accidente (cap. 252):** 20 de julio de 2024, etapa 19 del Tour, bajada del Tourmalet, durante un mano a mano de los tres (Santi de amarillo, Pogačar y Vingegaard). Caída en una curva con asfalto húmedo. Diagnóstico agravado respecto al plan original: clavícula + costillas + **fractura vertebral T7**, que justifica 12-18 meses fuera de competencia (no solo unas semanas). Mariana, Hernando y Carmen estaban presentes en la subida, viviendo el accidente en persona. Gesto de Pogačar dedicándole la victoria del Tour.
 

@@ -8,7 +8,7 @@
 
 ---
 
-El recorrido del Tour de Francia 2026 se presentó en París el último jueves de octubre, en el Palacio de Congresos, con Santi siguiéndolo por streaming desde la sala de Laureles, y cuando el mapa de la tercera semana apareció en la pantalla gigante, la cámara de la organización hizo exactamente lo que todo el mundo sabía que iba a hacer: buscar en primera fila la cara de Pogačar. La etapa diecinueve subía y bajaba el Col du Tourmalet.
+El recorrido del Tour de Francia 2026 se presentó en París el último jueves de octubre, en el Palacio de Congresos, con Santi siguiéndolo por streaming desde la sala de Laureles, y cuando el mapa de los Pirineos apareció en la pantalla gigante, la cámara de la organización hizo exactamente lo que todo el mundo sabía que iba a hacer: buscar en primera fila la cara de Pogačar. El recorrido subía y bajaba el Col du Tourmalet.
 
 *Pogačar: ¿Viste?*
 
@@ -40,7 +40,7 @@ La contrapartida de todo aquello quedó firmada en los mismos contratos: las ren
 
 La reunión anual del veinte de diciembre, con Duarte, Patiño y Salcedo, fue la primera en dos años con resultados deportivos que repasar, y Duarte abrió la carpeta con una sonrisa que no le cabía en la videollamada.
 
-— Quince meses de silencio y facturamos más en el último trimestre que en todo 2024 —dijo Salcedo, desde la pantalla—. Tres millones seiscientos en el año, casi todo firmado después de Como. Un tercer puesto que valió más que muchas victorias.
+— Año y medio de silencio comercial y facturamos más en el último trimestre que en todo 2024 —dijo Salcedo, desde la pantalla—. Tres millones seiscientos en el año, casi todo firmado después de Como. Un tercer puesto que valió más que muchas victorias.
 
 — ¿Y la Fundación? —preguntó Santi, como cada año, antes de cualquier otra cifra.
 
@@ -82,7 +82,7 @@ El primero de enero, Santi se despertó con una sensación que no había tenido 
 
 La reunión de planificación de 2026, con Rusconi por videollamada desde Ginebra y Hernando escuchando desde el sillón de siempre, fue la primera en dos años que se pareció a las de antes: un calendario real sobre la mesa, carrera por carrera, construido entero hacia atrás desde una sola fecha.
 
-— Todo se lee desde julio —dijo Rusconi—. Enero y febrero, pretemporada completa con el equipo nuevo: hay que aprender a correr con Ganna y con Kuss antes de necesitarlos. Primavera de carreras por etapas, sin clásicas de un día todavía: no voy a arriesgar quince meses de trabajo en una caída de Roubaix. Dauphiné en junio. Y el Tour. Del setenta por ciento de Como al cien de julio hay ocho meses. Es justo, pero alcanza.
+— Todo se lee desde julio —dijo Rusconi—. Enero y febrero, pretemporada completa con el equipo nuevo: hay que aprender a correr con Ganna y con Kuss antes de necesitarlos. Primavera de carreras por etapas, sin clásicas de un día todavía: no voy a arriesgar quince meses de trabajo en una caída de Roubaix. Dauphiné en junio. Y el Tour. Del setenta por ciento de Como al cien de julio hay nueve meses. Es justo, pero alcanza.
 
 — ¿Y si no alcanza? —preguntó Hernando, desde el sillón, porque alguien tenía que preguntarlo.
 
@@ -144,11 +144,11 @@ Cuando Santi llegó, dos días después, encontró que Rodrigo había colgado, e
 
 — Gracias, hermano —dijo Santi, abrazándolo—. De verdad.
 
-Esa misma semana, la exposición conjunta que Mariana, Daniela y Camilo habían planeado durante meses finalmente se inauguró en una galería pequeña de Bogotá, con Santi viajando especialmente para acompañarla, a pesar de que el calendario de entrenamiento ya empezaba a exigir más estructura.
+Esa misma semana, la exposición conjunta que Daniela y Camilo le habían propuesto a Mariana la noche de la inauguración de Provenza, en agosto, finalmente se abrió en Bogotá: la serie de oficios ampliada, más las imágenes nuevas de los tres, en una galería más grande que todo lo que Mariana había expuesto antes. Santi viajó especialmente para acompañarla, a pesar de que el calendario de entrenamiento ya empezaba a exigir más estructura.
 
 — No tenías que venir, con todo lo que tenés que entrenar esta semana —le dijo Mariana, la noche antes del viaje.
 
-— No hay entrenamiento que valga más que estar en tu primera exposición grande en tres años —dijo Santi—. Rusconi entiende eso. Ya hablé con él.
+— No hay entrenamiento que valga más que ver la versión grande de lo que empezó en esa galería de Provenza —dijo Santi—. Rusconi entiende eso. Ya hablé con él.
 
 La inauguración, mucho más concurrida de lo que Mariana había anticipado, reunió a antiguos compañeros de la universidad, colegas del mundo de la fotografía documental, y, para sorpresa de Mariana, varios periodistas que habían seguido de cerca, a través del podcast y las publicaciones de la revista española, la historia de su acompañamiento a Santi durante la recuperación.
 
