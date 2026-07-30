@@ -36,7 +36,7 @@ La reunión con los patrocinadores, al día siguiente, transcurrió con la cordi
 
 Del Toro sintió que todos los ojos de la sala se posaban en él, esperando la respuesta calculada que cualquier corredor de veintidós años, entrenado en relaciones públicas desde la adolescencia, hubiera dado sin dudar.
 
-— Veo mi futuro corriendo por mis propias victorias, no por las que hereda de otro —dijo, en cambio, con una honestidad que sorprendió incluso a su propio director deportivo, sentado dos sillas más allá—. Esta semana gané una carrera entera, solo, sin que nadie me la regalara. Quiero más semanas así. Si esta estructura me las puede dar, sigo acá. Si no, voy a tener que buscarlas en otro lado.
+— Veo mi futuro corriendo por mis propias victorias, no por las que hereda de otro —dijo, en cambio, con una honestidad que sorprendió incluso a su propio director deportivo, sentado dos sillas más allá—. Esta semana ataqué solo, contra el mejor del mundo, en su día más fuerte, y perdí por dos minutos. Y aun así fue la semana que más orgulloso me sintió de mí mismo en toda mi carrera. Quiero más semanas así, gane o pierda. Si esta estructura me las puede dar, sigo acá. Si no, voy a tener que buscarlas en otro lado.
 
 El silencio que siguió a esa respuesta duró varios segundos, hasta que el mismo directivo, con una sonrisa que del Toro no supo interpretar del todo, anotó algo en su carpeta y cambió de tema.
 
@@ -130,13 +130,13 @@ Esa noche, antes de dormir, del Toro abrió una carpeta en su teléfono donde gu
 
 Debajo, escribió una nota corta, la primera de lo que terminaría siendo, sin que él lo supiera todavía, una costumbre que mantendría el resto de su carrera.
 
-*14 de junio de 2026. Primera victoria como líder absoluto. Reyes me dejó pelearla, sin quitarme mérito. Algún día voy a estar del otro lado, como me dijo él. Cuando llegue ese día, quiero acordarme de esto exactamente.*
+*14 de junio de 2026. Primera derrota que se siente como una victoria. Ataqué solo contra Reyes, en su día más fuerte, y me cazó a ocho kilómetros de meta sin ninguna piedad. Algún día voy a estar del otro lado, como me dijo él. Cuando llegue ese día, quiero acordarme de esto exactamente: de lo que se siente perder peleando de verdad.*
 
 Cerró el teléfono, apagó la luz, y pensó, antes de dormirse, en julio, en el Tour, en la posibilidad, todavía lejana pero ya no imposible, de escribirle a Santi durante la carrera más grande del mundo — no como rival derrotado, sino como alguien que finalmente entendía, de cerca, qué significaba correr con nombre propio.
 
 A la mañana siguiente, antes del primer entrenamiento del nuevo bloque de preparación, del Toro le mandó un último mensaje a Santi, distinto a los intercambios rápidos de la semana anterior — más largo, más pensado, escrito y borrado varias veces antes de decidirse a enviarlo.
 
-*Del Toro: No sé si esto suena raro, viniendo de alguien que corre para otro equipo. Pero quería agradecerte, de nuevo, con más calma que en la línea de meta. Esta semana cambió algo en mí que todavía estoy tratando de entender del todo. Gracias por dejarme pelearla, y gracias por la frase de estar algún día del otro lado. La voy a guardar mucho tiempo.*
+*Del Toro: No sé si esto suena raro, viniendo de alguien que corre para otro equipo. Pero quería agradecerte, de nuevo, con más calma que en la línea de meta. Esta semana cambió algo en mí que todavía estoy tratando de entender del todo. Gracias por no dejarme ganar, y gracias por la frase de estar algún día del otro lado. La voy a guardar mucho tiempo.*
 
 Santi respondió pocos minutos después, ya en Girona, con el sol de la mañana entrando por la ventana del apartamento.
 

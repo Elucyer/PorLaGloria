@@ -114,19 +114,25 @@ En la radio del equipo, la voz de Ferretti seguía sonando tensa, todavía sin l
 
 — Seguí, seguí —dijo Ferretti, con la voz todavía quebrada de alivio—. No pares a mirar. El motociclista médico ya está ahí, no hay nada que puedas hacer vos desde la bicicleta.
 
-Detrás, en el amontonamiento, el danés se quedó tendido en el asfalto más tiempo del que cualquiera hubiera querido ver, con la ambulancia llegando dos minutos después entre el silencio del público apostado en la meta, que había pasado del grito eufórico de la llegada al silencio absoluto de quien presencia algo que no debería haber pasado. La etapa la ganó, finalmente, un corredor belga que se había escapado del amontonamiento en el último segundo, sin que a nadie, esa tarde, le importara demasiado quién había cruzado primero.
+Detrás, en el amontonamiento, el danés se quedó tendido en el asfalto más tiempo del que cualquiera hubiera querido ver, con la ambulancia llegando dos minutos después entre el silencio del público apostado en la meta, que había pasado del grito eufórico de la llegada al silencio absoluto de quien presencia algo que no debería haber pasado.
+
+La etapa la ganó, finalmente, David Arroyave, que había esquivado la caída por el mismo lado que Santi, un poco más adelante en el grupo, y que cruzó la línea casi sin darse cuenta, todavía procesando el susto, con el resto de los favoritos demasiado ocupados reorganizándose como para pensar en disputarle el sprint a nadie.
+
+— Ni siquiera tuve ganas de festejar —dijo Arroyave, esa noche, todavía con la adrenalina del susto en el cuerpo—. Todo pasó tan rápido que ni entendí que había ganado hasta que a los diez minutos alguien me lo confirmó por radio.
+— Cruzar la línea vos, hoy, ya de por sí es un motivo para festejar, aunque sea así —dijo Santi, abrazándolo en el bus—. Hoy nadie se merecía festejar nada muy grande, con lo que pasó al lado tuyo. Pero igual, felicitaciones, hermano. Ganaste una etapa de WorldTour más difícil de leer que cualquier ataque en solitario.
+
+
+Arroyave asintió, todavía sacudido, sin poder borrar del todo la imagen de la caída de su cabeza.
 
 Esa noche, en la reunión técnica, Ferretti pidió un minuto de silencio antes de empezar, algo que nunca había hecho en años de carreras.
 
 — El danés va a estar bien —dijo, finalmente—. Clavícula rota, nada más grave. Pero quiero que todos entiendan algo, sin excepción: ese tipo de caída no discrimina entre el que va primero y el que va vigésimo. Santiago pasó a veinte centímetros de estar en esa ambulancia en lugar de acá, contándolo. La suerte no es una estrategia. Pero el reflejo de mirar la carretera antes que a la gente sí lo es. Practicalo. Todos.
 
-Santi, esa noche, llamó a Mariana antes de dormir, con una voz que ella reconoció de inmediato como distinta a la de cualquier otra llamada de la temporada.
+Santi, esa noche, buscó a Mariana antes de dormir, con una voz que ella reconoció de inmediato como distinta a la de cualquier otra conversación de la temporada.
 
-— ¿Qué pasó? —preguntó Mariana, notando el silencio del otro lado.
+— Vi las fotos que sacaste —dijo Santi—. Se te nota el susto en el pulso. Están movidas.
 
-— Una caída grande, cerca de meta —dijo Santi—. Pasé cerca. Muy cerca.
-
-— ¿Estás bien?
+— No me importa que estén movidas —dijo Mariana—. Las saqué sin pensar. Vi el amontonamiento por el parabrisas antes de que lo mostraran en la transmisión, y lo único que pensé fue en encontrarte a vos entre los cuerpos. Cuando te vi salir del otro lado casi me pongo a llorar en el asiento del coche.
 
 — Estoy bien —dijo Santi—. Pero por primera vez desde octubre sentí, otra vez, esa sensación exacta de la curva del Tourmalet. Un segundo, nada más. Después se fue.
 

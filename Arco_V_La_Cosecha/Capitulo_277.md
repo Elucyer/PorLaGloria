@@ -10,87 +10,105 @@
 
 La octava y última etapa, entre Beaufort y el alto de Plateau de Solaison-Brison, era la etapa que toda la semana había estado esperando: la última oportunidad para cualquiera que todavía quisiera pelear algo antes de que el pelotón entero se dispersara hacia sus respectivos objetivos de julio.
 
-— Del Toro va a atacar temprano —le dijo Rusconi a Santi, en la salida de Beaufort, con el perfil del día proyectado en la tablet—. Conoce el terreno, tiene equipo trabajando para él desde el kilómetro cero, y no tiene nada que perder. Nosotros tenemos la general resuelta. Nuestro trabajo hoy es dejarlo intentarlo, sin regalarle nada, pero sin quitarle tampoco la oportunidad que se ganó con la semana que tuvo.
+— Del Toro va a atacar temprano —le dijo Rusconi a Santi, en la salida de Beaufort, con el perfil del día proyectado en la tablet—. Conoce el terreno, tiene equipo trabajando para él desde el kilómetro cero, y no tiene nada que perder. Nosotros tenemos la general resuelta, pero no vamos a regalarle un solo metro. Lo dejamos gastar energía en la fuga y lo cazamos en la subida final, cuando ya no tenga nada más para responder.
 
-— Ya hablamos de esto anoche —dijo Santi—. Estoy de acuerdo.
+— Ya hablamos de esto anoche —dijo Santi—. Estoy de acuerdo. Que se gane la carrera solo, si puede. Yo también.
 
 Cano, escuchando la conversación desde el asiento de al lado en el bus, todavía no terminaba de entender del todo la lógica de la decisión.
 
-— ¿No es raro planear con tanta anticipación dejar ganar a un rival? —le preguntó a Buitrago, en voz baja.
+— ¿No es raro dejarlo salir en fuga sabiendo que lo van a cazar igual? —le preguntó a Buitrago, en voz baja.
 
-— No es dejarlo ganar —corrigió Buitrago—. Es no gastar energía innecesaria disputando algo que ya no cambia nada importante. En este deporte, a veces, la sabiduría está en saber qué batallas pelear y cuáles dejar pasar. Vas a aprender eso con los años, si tenés suerte de tener un capitán como el que tenemos nosotros.
+— No es raro, es paciencia —corrigió Buitrago—. Perseguir de entrada gasta a todo el equipo por nada. Dejás que se desgaste solo, y guardás la pólvora para el momento en que duele de verdad, en el último kilómetro de subida, donde ya no tiene a dónde esconderse. Vas a aprender eso con los años, si tenés suerte de tener un capitán como el que tenemos nosotros.
 
 — ¿Vos harías lo mismo, si estuvieras en su lugar? —preguntó Cano.
 
 Buitrago lo pensó un momento, mirando por la ventanilla del bus las montañas todavía cubiertas de nubes bajas.
 
-— No sé si lo haría con la misma naturalidad —admitió—. Se necesita mucha seguridad en uno mismo para regalar una victoria sin sentir que se pierde algo. Santi tiene esa seguridad este año de una forma que no tenía antes del Tourmalet, según cuentan los que lo conocen desde hace más tiempo que yo.
+— No sé si tendría la frialdad de esperar tanto —admitió—. Se necesita mucha seguridad en uno mismo para dejar crecer una ventaja de tres minutos y confiar en que la vas a borrar entera en un solo puerto. Santi tiene esa seguridad este año de una forma que no tenía antes del Tourmalet, según cuentan los que lo conocen desde hace más tiempo que yo.
 
 ---
 
-El ataque llegó exactamente donde Rusconi lo había anticipado: a cuarenta kilómetros de meta, en el primer repecho serio del día, con del Toro saliendo del grupo principal acompañado por dos compañeros de UAE que habían guardado energía toda la semana específicamente para ese momento.
+Seixas, fiel a su palabra de la noche anterior, se presentó en la línea de salida con los raspones de la caída todavía cubiertos por vendas, decidido a terminar la semana que había empezado tres días atrás. Pero el cuerpo, esta vez, no respondió al mismo nivel que el coraje: en el Col du Pré, la primera subida seria del día, Seixas empezó a perder posiciones sin poder hacer nada para evitarlo, hasta quedar completamente descolgado del grupo de favoritos.
 
-Santi, en el grupo de favoritos, no respondió, dejando que la diferencia creciera de manera controlada — un minuto a los treinta kilómetros, dos minutos a los veinte, con Rusconi calculando en voz alta, por radio, la evolución exacta de la ventaja.
+— No va a poder seguir —dijo Rusconi, observando la escena por radio, con una mezcla de respeto y preocupación genuina—. Ayer el cuerpo aguantó por pura voluntad. Hoy la voluntad ya no alcanza.
 
-— Esto es distinto a dejarlo ganar —le explicó Rusconi a Ferretti, en el coche del equipo—. Es dejar que la carrera se desarrolle de forma natural, sin intervención innecesaria de nuestra parte. Si alguien más quisiera perseguirlo, no se lo vamos a impedir. Pero nosotros no vamos a ser los que inicien la persecución.
+En la bajada del Col du Pré, con la diferencia ya irrecuperable, Seixas se hizo a un lado de la carretera y subió al coche de su equipo, poniendo fin a la que era, según confirmó su director deportivo esa misma tarde, la primera vez en toda su carrera profesional que abandonaba una carrera a mitad de etapa.
 
-Ningún otro equipo, sin embargo, tenía interés real en perseguir: la general ya estaba resuelta a favor de Santi por un margen que ninguna etapa suelta podía revertir, y el resto de los favoritos, exactamente como el equipo de Santi, prefería guardar energía para julio antes que gastarla en una batalla sin sentido real.
+Santi, enterado del abandono por radio, sintió una punzada de preocupación genuina que no tenía nada que ver con la clasificación general.
+
+— Avisen si saben algo más de su estado —le pidió a Ferretti—. Ayer hizo algo que pocos hacen. Que hoy el cuerpo dijera basta no le saca nada de lo de ayer.
+
+Esa noche, ya en el hotel, Santi le escribió de nuevo, sin esperar respuesta inmediata.
+
+*Santi: Me enteré del abandono. Nadie te va a recordar por hoy. Te van a recordar por la remontada de ayer, con el cuerpo entero raspado. Descansá lo que haga falta. La Vuelta o el año que viene van a estar ahí.*
+
+Seixas respondió recién dos horas después, con un mensaje corto que decía más de lo que sus palabras alcanzaban a expresar.
+
+*Seixas: Gracias. Primera vez que me bajo de una bici en plena carrera. No sé todavía qué hacer con eso. Pero lo de ayer, al menos, lo tengo.*
 
 ---
 
-Del Toro llegó al pie del alto de Plateau de Solaison-Brison con una ventaja de tres minutos y veinte segundos sobre el grupo de favoritos, y a partir de ahí, subió solo, sin ayuda de sus dos compañeros de fuga que ya habían cumplido su función y se habían quedado atrás, con una autoridad que contrastaba completamente con la crisis de Albertville, apenas tres días atrás.
+El ataque de del Toro llegó exactamente donde Rusconi lo había anticipado: a cuarenta kilómetros de meta, en un repecho serio más adelante en el recorrido, con del Toro saliendo del grupo principal acompañado por dos compañeros de UAE que habían guardado energía toda la semana específicamente para ese momento.
+
+Santi dejó que la diferencia creciera un momento, midiendo, sin gastar nada — treinta segundos a los treinta kilómetros, un minuto a los veinte, con Rusconi calculando en voz alta, por radio, la evolución exacta de la ventaja y la pendiente que faltaba.
+
+— Todavía no —dijo Rusconi, por radio, cuando Santi preguntó, sin palabras, solo con la mirada hacia el coche—. Guardalo para el alto final. Ahí no hay excusa posible para nadie.
+
+Al pie de Plateau de Solaison-Brison, con del Toro todavía con casi un minuto y medio de ventaja pero ya sin sus dos compañeros de fuga, que habían cumplido su función y se habían quedado atrás, Santi se puso de pie sobre los pedales y arrancó del grupo de favoritos sin previo aviso, sin mirar atrás, sin bonificación ni segundo puesto que lo esperaran: solo la pendiente y la figura de del Toro, cada vez más cerca, delante.
 
 *Cabina de France Télévisions, subida final.*
 
-*— Del Toro está solo, con toda la ventaja intacta. Después del mal día del miércoles, este muchacho está respondiendo de la única forma que sabe: atacando.*
+*— ¡Reyes ataca! Y esto no tiene nada que ver con perseguir una etapa cualquiera, esto es Reyes cazando a del Toro en su propio terreno.*
 
-*— Y hay que decirlo: el pelotón de favoritos, con Reyes a la cabeza, no está haciendo ningún esfuerzo real por perseguirlo. Parece una decisión deliberada, más que una imposibilidad física.*
+*— La diferencia se está desplomando kilómetro a kilómetro. Del Toro, después del mal día del miércoles, respondió atacando, y durante un rato pareció que iba a aguantar. Pero esto ya no es una fuga, esto es una persecución con final anunciado.*
 
-*— Sea lo que sea, del Toro va a cruzar la meta con una ventaja enorme. Va a ser su primera victoria de etapa como líder absoluto de su propio equipo, sin la sombra de Pogačar sobre él.*
+*— Reyes lo alcanza a ocho kilómetros de meta. Y no se conforma con alcanzarlo — lo pasa, sin mirarlo, como si del Toro no estuviera ahí.*
 
-Del Toro cruzó la meta con los brazos abiertos, la misma pose que Seixas usaba, la misma que Santi había usado años atrás a esa misma edad, con una ventaja de cuatro minutos completos sobre el grupo de favoritos que llegó bastante después, ya sin ninguna pelea real por los puestos de honor del día.
+Santi no se detuvo a compartir rueda ni a negociar ningún tipo de tregua: pasó junto a del Toro sin una palabra, sin una mirada, con el ritmo de quien tiene una cuenta pendiente distinta a la de esa etapa — la cuenta de toda una primavera construida carrera a carrera, margen sobre margen, para llegar a julio sin ninguna duda posible sobre quién era el más fuerte del pelotón. Del Toro, ya vaciado por el esfuerzo de la fuga y por tres días de crisis y remontada, no tuvo respuesta.
+
+Santi cruzó la meta solo, con los brazos abajo, sin ningún gesto de celebración, con una ventaja final de dos minutos y cuatro segundos sobre del Toro, que llegó agotado, sin fuerzas ni siquiera para levantar la cabeza al cruzar la línea, y casi tres minutos sobre el resto del grupo de favoritos.
 
 ---
 
-En la zona de meta, todavía con la respiración entrecortada por el esfuerzo final, del Toro buscó a Santi entre la multitud de periodistas y cámaras, y lo encontró bajando de la bicicleta, con el sudor todavía fresco.
+En la zona de meta, todavía con la respiración entrecortada por el esfuerzo final, del Toro buscó a Santi entre la multitud de periodistas y cámaras, y lo encontró apoyado contra el bus del equipo, con el sudor todavía fresco.
 
-— Gracias —dijo del Toro, simplemente, sin necesitar explicar por qué.
+— Pensé que me ibas a dejar el día —dijo del Toro, con una sonrisa cansada que no lograba esconder del todo la decepción.
 
-— No hiciste nada que no te merecieras —dijo Santi—. Peleaste toda la semana como un líder de verdad. Esta victoria es tuya, no un regalo de nadie.
+— No corro así —dijo Santi—. Ni con vos ni con nadie. Si algún día ganás una etapa mía, va a ser porque me la sacaste de las piernas, no porque te la regalé.
 
-— Sé lo que hicieron ustedes hoy, aunque nunca lo digan en público —dijo del Toro, bajando la voz—. Y lo voy a recordar. No sé cuándo ni cómo, pero lo voy a recordar.
+— Es duro de escuchar —dijo del Toro—, pero lo prefiero así. El día que gane de verdad, va a ser de verdad.
 
-— No lo hagas por deuda —dijo Santi—. Hacelo porque algún día vas a estar del otro lado, viendo a alguien más joven pelear como peleaste vos esta semana. Ahí es cuando vas a entender de verdad por qué hoy dejamos que la carrera fuera tuya.
+— Peleaste bien toda la semana, con una crisis en el medio que a muchos los hubiera hecho bajar los brazos —dijo Santi—. Eso no lo cambia lo de hoy. Pero hoy yo tenía otra cuenta que saldar, y no era con vos. Era conmigo mismo, de cara a julio.
 
 El director deportivo de UAE, que había escuchado el final de ese intercambio sin querer interrumpir, se acercó después, cuando Santi ya se alejaba hacia su propio equipo.
 
-— Gracias, de mi parte también —le dijo el director a Santi, dándole la mano—. Ese muchacho necesitaba esto más de lo que ustedes probablemente imaginan. Llevaba semanas cargando una presión de renovación de contrato que nadie, en el equipo, sabía cómo aliviarle del todo.
+— No esperábamos menos, la verdad —le dijo el director a Santi, dándole la mano de todos modos—. Pero les va a servir a todos ver esto antes de julio. Nadie puede decir que no supo a qué se enfrentaba.
 
-— No lo sabíamos con detalle —dijo Santi—. Pero se notaba, en cómo corría. Cada ataque suyo esta semana tenía algo urgente adentro, como si estuviera corriendo contra algo más que contra nosotros.
+— No corrí para mandar ningún mensaje —dijo Santi—. Corrí porque quedaba carrera, y del Toro todavía tenía ventaja. Lo demás lo van a leer ustedes como quieran.
 
-— Corría contra su propio futuro, básicamente —dijo el director—. Hoy, por primera vez en meses, lo vi correr solo contra la carretera. Eso también es mérito de ustedes, aunque no lo digan en ninguna rueda de prensa.
+— Corría contra su propio futuro, básicamente, esta semana entera —dijo el director, mirando hacia donde del Toro seguía sentado en el pasto, todavía recuperando el aliento—. Y hoy, además, corrió contra el mejor del mundo en su día más fuerte. No hay mucho más que pedirle.
 
-Del Toro, esa misma noche, llamó a su familia en México antes de que terminara de asentarse del todo la victoria, con la voz todavía quebrada por la emoción acumulada de una semana entera.
+Del Toro, esa misma noche, llamó a su familia en México antes de que se asentara del todo el cansancio del día, con la voz todavía quebrada, pero no de alegría.
 
-— Gané, mamá —dijo, apenas atendió la llamada—. Gané de verdad, solo, sin la sombra de nadie más.
+— Perdí, mamá —dijo, apenas atendió la llamada—. Ataqué bien, aguanté bien, y aun así perdí por dos minutos.
 
-— Lo vi completo, hijo —dijo su madre, del otro lado, con la voz igual de quebrada—. Todo Ensenada lo vio. Tu papá organizó una proyección en la plaza, como cuando eras chico y veíamos las carreras del Tour de l'Avenir juntos.
+— Te vi completo, hijo —dijo su madre, del otro lado, con la voz firme—. Todo Ensenada te vio pelear. Tu papá organizó una proyección en la plaza, como cuando eras chico y veíamos las carreras del Tour de l'Avenir juntos, y nadie se fue antes de que cruzaras la meta.
 
-— ¿Toda la plaza? —preguntó del Toro, sorprendido.
+— ¿Toda la plaza, para verme perder? —preguntó del Toro, con una risa amarga.
 
-— Toda la plaza —confirmó su madre—. Ya sos de acá, hijo, para siempre, ganes lo que ganes de ahora en adelante. Pero hoy ganaste algo distinto, se notó hasta en la pantalla. Ganaste como el hombre que sos, no como la sombra de nadie.
+— Toda la plaza, para verte pelear contra el mejor del mundo sin esconderte —confirmó su madre—. Eso no se ve todos los días, hijo. Perder así también enseña. Ya vas a tener tu día.
 
 ---
 
-En la rueda de prensa final de la general, con Santi confirmado como ganador del Tour Auvergne-Rhône-Alpes por un margen que Rusconi describió, esa noche, como "el más cómodo de toda la temporada", un periodista francés preguntó directamente sobre la decisión táctica de la última etapa.
+En la rueda de prensa final de la general, con Santi confirmado como ganador del Tour Auvergne-Rhône-Alpes por un margen que Rusconi describió, esa noche, como "el mensaje más claro que hemos mandado en toda la temporada", un periodista francés preguntó directamente sobre la decisión táctica de la última etapa.
 
-— ¿Fue una decisión deliberada dejar ganar a del Toro hoy?
+— ¿Por qué perseguir tan a fondo una fuga que no amenazaba tu general?
 
-— Fue una decisión de no perseguir algo que no necesitábamos perseguir —dijo Santi, eligiendo las palabras con cuidado—. Del Toro corrió la mejor semana de su carrera, con una crisis en el medio que cualquiera podría haber usado de excusa para bajar los brazos. No lo hizo. Se merecía esa victoria más que nosotros necesitábamos negársela.
+— Porque quedaba carrera, y porque en julio no van a preguntarme si perseguí lo necesario o lo justo —dijo Santi, eligiendo las palabras con cuidado—. Del Toro corrió la mejor semana de su carrera, con una crisis en el medio que cualquiera podría haber usado de excusa. No lo hizo, y por eso mismo no le iba a regalar nada. Se merecía que yo corriera contra él como corro contra cualquiera que me pueda ganar de verdad.
 
-— ¿Eso no le resta mérito deportivo al resultado?
+— ¿Es un mensaje pensado para julio?
 
-— Le suma mérito, en realidad —dijo Santi—. Ganar una etapa así, contra rivales que decidieron no perseguirte, todavía requiere que vos ataques primero, que aguantes tres minutos de ventaja durante cuarenta kilómetros, que subas solo el puerto final sin que nadie te empuje. Eso lo hizo él, no se lo regaló nadie.
+— No pienso en mensajes, pienso en piernas —dijo Santi—. Pero si alguien lo quiere leer así, que lo lea. Hoy tenía delante al ganador de Tirreno, atacando en su terreno, y decidí no dejarle esa ventaja. Eso es todo lo que pasó.
 
 ---
 

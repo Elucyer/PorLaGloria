@@ -84,15 +84,29 @@ La segunda etapa, un recorrido ondulado entre Camaiore y San Gimignano con vario
 
 ---
 
-El resto de la carrera fue, otra vez, una demostración de control: Santi defendió la general en las etapas llanas hacia Magliano de' Marsi y Martinsicuro sin necesitar atacar ni una sola vez, dejando que Buitrago, Tiberi y Christen se turnaran en el trabajo de proteger el liderato, mientras Cano y Arroyave se ocupaban del llano.
+La etapa hacia Magliano de' Marsi, completamente llana, transcurrió con una fuga de seis corredores que el pelotón dejó rodar sin mayor control, con la general ya resuelta para los favoritos, y Marc Soler, que llevaba toda la primavera trabajando sin ningún resultado propio que mostrar, pidió permiso para meterse en el corte.
 
-En la etapa reina, con final en alto hacia Camerino, en las Marcas, un ciclista italiano de un equipo local, empujado por el público de casa, intentó un ataque a tres kilómetros de meta que por un momento pareció serio. Tiberi, que conocía esa carretera de sus años juveniles en la región, fue el primero en reaccionar, cerrando el primer tramo del hueco antes de que el propio Santi tuviera que moverse del grupo.
+— Andá —le dijo Ferretti, por radio, sin dudar—. Vatios de sobra hay. Aprovechalos en algo tuyo, para variar.
+
+Soler se metió en la fuga a los treinta kilómetros, y en el sprint final de los seis escapados, con la experiencia de ocho temporadas en el pelotón europeo pesando más que la juventud de sus compañeros de escapada, ganó la etapa con un remate que ni él mismo esperaba tener todavía en las piernas después de tres semanas de trabajo puro para otros.
+
+— Primera victoria del año, y con el equipo entero mirando desde el pelotón principal sin necesitar perseguirme —le dijo Soler a Santi, esa noche, todavía con la sonrisa pegada a la cara—. Nunca pensé que iba a agradecerte una victoria sin que vos estuvieras ni cerca de la meta.
+
+— No hacía falta que yo estuviera cerca —dijo Santi—. Hacía falta que alguien del equipo se llevara algo de esta semana, además de mí. Te lo ganaste corriendo, no te lo regaló nadie.
+
+El resto de la carrera fue, otra vez, una demostración de control: Santi defendió la general en la etapa llana hacia Martinsicuro sin necesitar atacar ni una sola vez, dejando que Buitrago, Tiberi y Christen se turnaran en el trabajo de proteger el liderato, mientras Cano y Arroyave se ocupaban del llano.
+
+En la etapa reina, con final en alto hacia Camerino, en las Marcas, fue Isaac del Toro quien intentó romper la carrera con un ataque a tres kilómetros de meta — el primer cruce directo de la temporada entre los dos, con del Toro llegando a esa etapa como el corredor más en forma del pelotón después de haber ganado ya el UAE Tour ese mismo invierno. Tiberi, que conocía esa carretera de sus años juveniles en la región, fue el primero en reaccionar, cerrando el primer tramo del hueco antes de que el propio Santi tuviera que moverse del grupo.
 
 — Esa carretera la subí mil veces de junior —le dijo Tiberi a Ferretti, por radio—. Sé exactamente dónde pica más fuerte. Denme doscientos metros más y se lo entrego cerrado del todo.
 
 Cumplió la promesa: doscientos metros después, el hueco estaba cerrado, y Santi ni siquiera había necesitado salir del pelotón principal. Solo entonces, a un kilómetro de meta, con la carretera empinándose otra vez, Santi decidió responder por cuenta propia — no por necesidad táctica, sino, según le confesó esa noche a Mariana, "porque tenía ganas de sentir las piernas una vez en la semana, no solo de administrarlas".
 
-Atacó a ochocientos metros, sin que nadie del pelotón lograra siquiera intentar seguirlo, y cruzó la meta con doce segundos de ventaja sobre el italiano local, que terminó aplaudido por su propia gente a pesar de perder, simplemente por haber sido el único capaz de intentarlo.
+Atacó a ochocientos metros, sin que del Toro, todavía recuperándose de su propio esfuerzo, lograra siquiera intentar seguirlo, y cruzó la meta con doce segundos de ventaja. Del Toro, en la línea de meta, le tendió la mano sin rencor, con la misma curiosidad profesional que después, en junio, se convertiría en una relación más cercana.
+
+— Primera vez que corremos juntos este año, y ya sé lo que se siente —dijo del Toro—. Tres kilómetros no me alcanzaron. Voy a necesitar más para la próxima.
+
+— Va a haber próximas, seguro —dijo Santi—. Recién estamos empezando la temporada.
 
 — Ese fue el mensaje más silencioso que le vi mandar a nadie en toda la temporada —le dijo Ferretti a Rusconi esa noche, revisando la etapa completa en la tablet—. Dejó que Tiberi cerrara el peligro real, y después atacó solo por gusto, en la única etapa donde no tenía ninguna necesidad de hacerlo. Eso no es estrategia. Eso es un hombre que ya no tiene miedo de mostrar lo que tiene.
 

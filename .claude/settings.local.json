@@ -43,7 +43,8 @@
       "Bash(awk 'NR>129 && /cruzó|meta|ganó|primero/' Arco_III_Aprender_a_Matar/Capitulo_170.md)",
       "Bash(awk 'NR>31 && NR<53' Arco_IV_El_Reinado_Incompleto/Capitulo_207.md)",
       "WebFetch(domain:en.wikipedia.org)",
-      "Read(//c/Usuario/Documents/Proyectos/PorLaGloria/**)"
+      "Read(//c/Usuario/Documents/Proyectos/PorLaGloria/**)",
+      "Bash(python3)"
     ],
     "additionalDirectories": [
       "C:\\Users\\Usuario\\AppData\\Local\\Temp\\claude",

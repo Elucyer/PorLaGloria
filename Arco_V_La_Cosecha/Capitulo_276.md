@@ -94,7 +94,25 @@ Del Toro tardó casi una hora en responder, y cuando lo hizo, el mensaje refleja
 
 ---
 
-La séptima etapa, un recorrido de transición hacia el pie de los Alpes altos, se corrió a un ritmo controlado por todos los equipos favoritos, cada uno guardando energía para la última y decisiva jornada del día siguiente. Del Toro, recuperado parcialmente del golpe del día anterior, terminó en el pelotón principal, sin sobresaltos, con la mirada ya puesta en la etapa reina.
+La séptima etapa, un recorrido de transición hacia el pie de los Alpes altos, prometía ser un día tranquilo, con todos los equipos favoritos guardando energía para la jornada decisiva del día siguiente — hasta que, en una curva rápida y seca a mitad de etapa, Seixas tomó una curva a más velocidad de la que el asfalto le permitía, y la rueda delantera se le escapó de golpe.
+
+Cayó de costado, deslizándose varios metros sobre el pavimento reseco, con el pelotón entero conteniendo el aliento por radio mientras las motos médicas se acercaban al lugar.
+
+— Seixas está en el piso —dijo Rusconi, con la voz tensa, viendo la repetición en la pantalla del coche—. Se ve mal, pero se está levantando solo.
+
+Contra todo pronóstico, Seixas se puso de pie, revisó la bicicleta con la ayuda de un mecánico de su equipo, y volvió a subirse, con la ropa rasgada y raspones visibles en el brazo y la cadera, para lanzar una persecución que el pelotón entero terminó comentando esa noche como uno de los gestos más valientes de toda la temporada.
+
+Remontó, kilómetro a kilómetro, hasta reconectar con el grupo principal antes de la meta, cruzando la línea con el rostro descompuesto por el dolor pero decidido, delante de las cámaras, a no mostrar ni un segundo de duda.
+
+— No sé cómo hizo eso —le dijo Santi a Rusconi, esa noche, todavía impresionado—. Yo he visto caídas fuertes. Esa recuperación, en el mismo día, es de otro nivel de carácter.
+
+Esa misma noche, Santi le escribió un mensaje corto, sin esperar demasiado a cambio.
+
+*Santi: Vi la caída y la remontada. Eso que hiciste hoy vale más que cualquier etapa que puedas ganar esta semana. Cuidate.*
+
+*Seixas: Gracias. Mañana igual voy a estar en la salida. No pienso bajarme así como así.*
+
+Del Toro, recuperado parcialmente del golpe de Albertville, terminó esa misma séptima etapa en el pelotón principal, sin sobresaltos, con la mirada ya puesta en la etapa reina del día siguiente.
 
 Esa tarde, en la reunión técnica, Ferretti repasó con todo el equipo el plan completo para la última jornada, con un detalle específico que no era habitual en sus instrucciones.
 

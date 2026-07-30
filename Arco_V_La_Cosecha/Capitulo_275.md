@@ -18,6 +18,10 @@ El Tour Auvergne-Rhône-Alpes —la carrera que hasta el año anterior se había
 
 — No lo subestimes por eso —dijo Ferretti—. Vi sus números de mayo, después del Giro que no corrió. Entrenó como si tuviera algo que demostrar, no como alguien cómodo con su lugar de siempre.
 
+— Y no es el único que llega con algo que demostrar —agregó Rusconi—. Seixas también está en la lista de salida. Después de Arrate y de la Flèche, va a venir con hambre de revancha otra vez, en su tercer intento del año contra vos.
+
+— Mejor —dijo Santi—. Prefiero que venga con hambre a que venga resignado. Los rivales resignados no enseñan nada.
+
 Duarte, que había viajado a Francia esa semana para cerrar en persona dos de los nuevos acuerdos comerciales, se sumó a la conversación desde la puerta de la habitación del hotel, con la carpeta de contratos todavía bajo el brazo.
 
 — Antes de que empiece la carrera, les cuento algo que va a interesarles —dijo Duarte—. UAE ya empezó a mover fichas para la renovación de del Toro, para después de este año. Ofertas de otros equipos, rumores de que quieren un rol de liderazgo garantizado, no una promesa vaga. Esta semana, para él, no es solo deportiva. Es una negociación en vivo, aunque nadie lo diga en voz alta.
@@ -45,6 +49,12 @@ Fue en el tramo final de esa segunda etapa, sin embargo, cuando del Toro dio su 
 — No fue un ataque para ganar la etapa —le dijo Rusconi a Santi por radio, viendo la maniobra en la pantalla—. Fue un ataque para ver quién respondía y con qué facilidad. Está construyendo un mapa de rivales, exactamente como hacemos nosotros.
 
 Santi respondió sin apuro, cerrando el hueco con la calma de quien no necesita demostrar nada todavía, y del Toro, al verlo llegar sin esfuerzo aparente, no insistió más allá de esos ochocientos metros iniciales.
+
+Seixas, que había seguido el intercambio desde un par de puestos atrás, se sumó al grupo de cabeza en cuanto se rehízo, sin decir nada todavía, solo observando, con la misma atención con que Santi lo había visto estudiar cada rival esa primavera.
+
+— Vos también estás mirando —le dijo Santi, notando su presencia.
+
+— Siempre estoy mirando —dijo Seixas—. Esta semana, más que nunca. Es mi tercera oportunidad este año, y ya se me están acabando las excusas.
 
 — Gracias por el dato gratis —le dijo del Toro, sonriendo, cuando el grupo se rehízo—. Ya sé que hoy no era el día.
 

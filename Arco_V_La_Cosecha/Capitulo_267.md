@@ -102,7 +102,25 @@ La tercera etapa, con final ondulado hacia Lopera, fue la única jornada donde a
 
 — No hoy —dijo Rusconi—. Hoy solo tenía que sobrevivir el ataque. Lo hizo, y de sobra.
 
-La cuarta etapa, de Montoro a Pozoblanco, transcurrió sin ninguna consecuencia para la general, y la quinta y última, de La Roda de Andalucía a Lucena, se corrió con el pelotón completo entendiendo, sin que nadie lo dijera en voz alta, que la general ya estaba decidida — el único sobresalto real fue la victoria de etapa de Tom Pidcock, que atacó a cinco kilómetros de meta sin ninguna intención de tocar la clasificación general, solo por sumar una victoria propia antes de la primavera grande.
+La cuarta etapa, de Montoro a Pozoblanco, transcurrió sin ninguna consecuencia para la general, pero dejó la escena más celebrada de toda la semana dentro del propio bus del equipo: a tres kilómetros de meta, con un grupo reducido de veinte corredores llegando junto y la general ya completamente asegurada, Santi le hizo una seña a Christen, que rodaba a su lado, sin necesitar palabras.
+
+— Andá —le dijo Santi, simplemente—. Yo te llevo hasta los cuatrocientos, después es tuyo.
+
+Christen no entendió del todo hasta que Santi se puso al frente del grupo y empezó a subir el ritmo, cerrando cualquier posibilidad de que otro equipo organizara un remate propio, y a cuatrocientos metros, exactamente como había prometido, se apartó hacia un costado, dejando a Christen solo en la punta para el sprint final.
+
+El suizo ganó por medio cuerpo de ventaja, con los brazos en alto por primera vez en su carrera profesional en una etapa de nivel WorldTour, y cuando cruzó la línea, todavía sin poder creerlo, buscó a Santi con la mirada entre el resto de corredores que llegaban detrás.
+
+— Nunca gané así una etapa —le dijo Christen, todavía sin aire, cuando Santi lo alcanzó—. Con alguien más fuerte que yo llevándome hasta la puerta.
+
+— Así es un equipo de verdad —dijo Santi, repitiendo casi sin darse cuenta las mismas palabras que Buitrago le diría, meses después, a Cano en otra carrera—. La general ya la tenía asegurada. Esta victoria era tuya, si alguien te ponía en el lugar correcto para buscarla.
+
+Esa noche, en la cena, Ferretti levantó su copa por Christen antes de que nadie más lo hiciera.
+
+— Primera victoria WorldTour de la carrera de este muchacho —dijo Ferretti—. Y se la ganó él, con las piernas. Santi solo abrió la puerta.
+
+— Abrir la puerta también cuenta —dijo Christen, sonriendo, todavía con la sonrisa que no se le borraba desde la meta—. Se lo voy a agradecer el resto del año, aunque él diga que no hace falta.
+
+La quinta y última etapa, de La Roda de Andalucía a Lucena, se corrió con el pelotón completo entendiendo, sin que nadie lo dijera en voz alta, que la general ya estaba decidida — el único sobresalto real fue la victoria de etapa de Tom Pidcock, que atacó a cinco kilómetros de meta sin ninguna intención de tocar la clasificación general, solo por sumar una victoria propia antes de la primavera grande.
 
 Fue en esa última etapa, rodando tranquilo en mitad del pelotón, cuando Santi tuvo su primer cruce real de la temporada con un corredor de otro equipo top: Juan Ayuso, todavía adaptándose a los colores de Lidl-Trek después de su salida de UAE, se acercó a su rueda durante un tramo neutralizado por un incidente menor más adelante.
 

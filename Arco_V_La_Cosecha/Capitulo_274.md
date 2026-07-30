@@ -86,9 +86,13 @@ Esa misma tarde, en el hotel de Girona donde el equipo entrenaba antes de viajar
 
 Santi escuchó el análisis completo, pensando en la frase de Vingegaard, en la seguridad tranquila con la que la había dicho, sin la necesidad de gritarla ni de venderla a la prensa.
 
-— Nunca hablé con él en persona —dijo Santi, de pronto—. En cuatro años de carrera, nunca compartimos más que un saludo en un podio o un mensaje genérico después de una carrera. No sé cómo piensa, más allá de lo que dice en las entrevistas.
+— Con él sí hablé, en cambio, más de una vez, en serio —dijo Santi, de pronto—. Croix de Fer, 2023. Me dio la mano en la meta, sin esconder que le dolía perder, y me dijo algo que no me olvido: que había subestimado cuánto podía recuperar en la montaña. Ese tipo de honestidad no la tengo con Pogačar de la misma forma. Con Jonas siempre hubo un respeto distinto, más callado, pero real.
 
-— Vas a tener julio entero para averiguarlo —dijo Ferretti.
+— ¿Eso te preocupa, entonces? ¿Que la relación sea buena? —preguntó Ferretti, medio en broma.
+
+— Al revés —dijo Santi—. Me tranquiliza. Pelear contra alguien a quien respetás de verdad es distinto a pelear contra un desconocido. Sé que en la montaña no me va a regalar nada, pero también sé que si algún día hace falta un gesto de los que este deporte todavía permite, él es de los que lo hacen.
+
+— Aun así, vas a tener julio entero para confirmarlo de nuevo —dijo Ferretti.
 
 ---
 
