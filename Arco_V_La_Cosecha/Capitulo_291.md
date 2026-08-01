@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar todavía de amarillo tras el Tourmalet y el descanso —Santi segundo a once segundos, Vingegaard tercero a treinta y nueve, Remco cuarto a cuarenta y dos—, la décima etapa, disputada además en el día nacional de Francia, ofrecía el terreno que Rusconi llevaba meses señalando como la primera oportunidad real de la segunda semana.
+Con Pogačar todavía de amarillo tras el Tourmalet y el descanso —Santi segundo a once segundos, Vingegaard tercero a un minuto treinta y nueve, Remco cuarto a un minuto cuarenta y dos—, la décima etapa, disputada además en el día nacional de Francia, ofrecía el terreno que Rusconi llevaba meses señalando como la primera oportunidad real de la segunda semana.
 
 La reunión matutina, con las piernas del equipo completo ya recuperadas después del día de descanso, tuvo la intensidad táctica que había faltado en la charla más relajada de dos días atrás.
 

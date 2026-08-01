@@ -88,19 +88,23 @@ Santi luchó por mantener el ritmo, cediendo terreno de manera progresiva pero c
 
 Los últimos cinco kilómetros, con Pogačar ampliando la diferencia de manera constante pero sin lograr una ventaja demoledora, vieron a Santi administrar el desgaste con la misma inteligencia que había mostrado durante todo el Tour, minimizando la pérdida sin arriesgar una crisis mayor que pudiera comprometer el resultado final de la carrera.
 
-Carapaz, mientras tanto, cruzó la línea de meta en soledad, ganando la etapa desde la fuga con una ventaja cómoda sobre el resto de sus compañeros de escapada, ajeno por completo, en el momento de su celebración, a la definición que se estaba produciendo minutos después en la pelea principal.
+Carapaz, líder de la fuga del día durante buena parte de la etapa, todavía sostenía una ventaja de casi un minuto a dos kilómetros de meta, con el resto de sus compañeros de escapada ya descolgados, cuando Pogačar, tirando de Santi en la persecución final de su propio duelo, terminó de devorar esa diferencia sin siquiera proponérselo como objetivo separado.
 
-*— ¡Carapaz gana la etapa! Una victoria merecida, después de un día entero liderando la fuga con inteligencia y constancia.*
+*— ¡Pogačar atrapa a Carapaz! No estaba persiguiendo la etapa, estaba persiguiendo a Reyes, pero el resultado es el mismo: la fuga se cierra a metros de la meta.*
 
-Carapaz, levantando los brazos con una alegría genuina, dedicó la victoria a su equipo en la zona de meta, todavía sin saber con exactitud cómo se estaba definiendo la pelea principal a sus espaldas.
+Pogačar, con las piernas todavía cargadas de la persecución completa a Santi, encontró un último resto de energía para superar a Carapaz en un sprint corto y desparejo, cruzando la línea con los brazos apenas levantados, más por inercia que por celebración real.
 
-— Llevaba toda la temporada esperando una oportunidad así —dijo Carapaz, en la breve entrevista de pie de podio—. Aproveché que todos los ojos estaban puestos en otro lado. A veces esa es la mejor estrategia posible.
+*— ¡Y gana Pogačar! Una victoria de etapa que ni siquiera buscaba, subproducto de una persecución que tenía un objetivo completamente distinto.*
 
-Un periodista le preguntó si había seguido, de alguna forma, el desarrollo de la pelea entre Santi y Pogačar durante su propia fuga.
+Carapaz, segundo, todavía tratando de procesar cómo el corredor que perseguía a otro rival lo había alcanzado y superado en los últimos metros, se acercó a saludar a Pogačar con una mezcla de frustración deportiva y respeto genuino.
 
-— Escuché algo por radio, fragmentado —admitió Carapaz—. Pero estaba tan concentrado en mi propio esfuerzo que no pude prestarle demasiada atención. Ya me voy a poner al día con calma, esta noche.
+— Tenía la etapa ganada, hasta que decidiste que también la querías vos —le dijo Carapaz, medio en broma, medio en serio.
 
-Pogačar cruzó la línea diez segundos después, recuperando el maillot amarillo por el margen mínimo posible, con Santi entrando pocos segundos más tarde, visiblemente agotado pero con la clasificación general todavía completamente abierta.
+— No la buscaba, te lo juro —dijo Pogačar, todavía recuperando el aliento—. Estaba persiguiendo otra cosa. Vos apareciste en el camino.
+
+— Llevaba toda la temporada esperando una oportunidad así —dijo Carapaz, en la breve entrevista de pie de podio, ya con humor sobre lo ocurrido—. Y la tuve, hasta que el líder del Tour decidió que también la quería.
+
+Santi cruzó la línea pocos segundos después de Pogačar, visiblemente agotado pero con la clasificación general todavía completamente abierta.
 
 ---
 

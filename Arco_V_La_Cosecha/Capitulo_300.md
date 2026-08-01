@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar de amarillo —Santi segundo a diez segundos, Remco tercero a más de dos minutos y medio—, la decimonovena etapa, la más corta de todo el recorrido pero la más esperada por toda Europa desde la presentación del Tour en octubre, subía por primera vez en esta edición la montaña más mítica del ciclismo mundial.
+Con Pogačar de amarillo —Santi segundo a diez segundos, Remco tercero a más de cinco minutos—, la decimonovena etapa, la más corta de todo el recorrido pero la más esperada por toda Europa desde la presentación del Tour en octubre, subía por primera vez en esta edición la montaña más mítica del ciclismo mundial.
 
 La reunión matutina tuvo una densidad distinta a la de cualquier otro día del Tour, con el comedor del hotel en completo silencio mientras Rusconi proyectaba, por última vez, el perfil de las veintiuna curvas numeradas que separaban el pie de la montaña de la línea de meta.
 

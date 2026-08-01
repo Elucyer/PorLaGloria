@@ -8,7 +8,7 @@
 
 ---
 
-Con Santi de amarillo —Pogačar segundo a tres segundos, Vingegaard tercero a un minuto treinta y siete, Remco cuarto a un minuto cuarenta y uno—, la decimotercera etapa, la más larga del Tour hasta ese momento, ofrecía un recorrido ondulado por el Jura y el sur de los Vosgos, última prueba antes de que el recorrido se adentrara de lleno en las montañas al día siguiente.
+Con Santi de amarillo —Pogačar segundo a tres segundos, Vingegaard tercero a tres minutos treinta y seis, Remco cuarto a cuatro minutos seis—, la decimotercera etapa, la más larga del Tour hasta ese momento, ofrecía un recorrido ondulado por el Jura y el sur de los Vosgos, última prueba antes de que el recorrido se adentrara de lleno en las montañas al día siguiente.
 
 La reunión matutina tuvo un tono expectante, con Rusconi dedicando buena parte del tiempo a repasar el perfil del día siguiente, el Col du Haag y Le Markstein, más que el recorrido del día en curso.
 
@@ -50,7 +50,7 @@ La salida de Dole, bajo un cielo mixto que amenazaba lluvia sin llegar a concret
 
 En el pelotón principal, Vingegaard, todavía procesando la diferencia acumulada desde el Macizo Central, aprovechó un tramo tranquilo para conversar con su director deportivo sobre la estrategia de los días siguientes.
 
-— Necesito hacer algo distinto mañana, no simplemente seguir y perder tiempo cada etapa —dijo Vingegaard, con una determinación renovada—. Un minuto treinta y siete es mucho, pero todavía hay margen si ataco primero, en vez de esperar.
+— Necesito hacer algo distinto mañana, no simplemente seguir y perder tiempo cada etapa —dijo Vingegaard, con una determinación renovada—. Tres minutos treinta y seis es mucho, pero todavía hay margen si ataco primero, en vez de esperar.
 
 — De acuerdo —confirmó el director—. Mañana, si el terreno lo permite, atacamos nosotros primero. Que sean ellos los que tengan que responder, para variar.
 

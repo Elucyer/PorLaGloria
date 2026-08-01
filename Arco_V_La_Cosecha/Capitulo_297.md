@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar de amarillo —Santi segundo a nueve segundos, Remco tercero a un minuto cincuenta y ocho—, la decimosexta etapa, la crono decisiva de la tercera semana, representaba el examen que Santi llevaba meses temiendo enfrentar: veintiséis kilómetros contrarreloj, en la posición aerodinámica exacta que la vieja fractura de T7 castigaba sin excepción, a partir de los primeros veinte minutos de esfuerzo sostenido.
+Con Pogačar de amarillo —Santi segundo a nueve segundos, Remco tercero a cinco minutos—, la decimosexta etapa, la crono decisiva de la tercera semana, representaba el examen que Santi llevaba meses temiendo enfrentar: veintiséis kilómetros contrarreloj, en la posición aerodinámica exacta que la vieja fractura de T7 castigaba sin excepción, a partir de los primeros veinte minutos de esfuerzo sostenido.
 
 La reunión matutina tuvo un tono distinto a cualquier otra del Tour: sin ninguna instrucción táctica sobre rivales ni sobre el pelotón, sino una conversación centrada exclusivamente en la gestión del propio cuerpo de Santi.
 
@@ -40,13 +40,13 @@ Mariana, que había pedido permiso especial para acompañar parte del recorrido 
 
 Los corredores salieron en orden inverso a la clasificación general, con los favoritos completando el recorrido en las últimas posiciones de la tarde, bajo un sol que empezaba a calentar el asfalto sin llegar a ser excesivo.
 
-Remco, saliendo antes que los dos líderes principales, completó el recorrido con un tiempo que confirmó, una vez más, su nivel excepcional contra el crono, aunque sin amenazar realmente la pelea por el podio principal.
+Remco, saliendo antes que los dos líderes principales, completó el recorrido con el mejor tiempo provisional de la jornada, confirmando, una vez más, su nivel excepcional contra el crono.
 
-— Buen tiempo, aunque sospecho que no va a ser suficiente para acercarme a esos dos —le dijo Remco a su director deportivo, bajando de la bicicleta con la respiración todavía entrecortada—. Este Tour se sigue decidiendo entre ellos, no importa lo que yo haga.
+— Buen tiempo, el mejor de la jornada hasta ahora —le dijo Remco a su director deportivo, bajando de la bicicleta con la respiración todavía entrecortada—. Pero dudo que alcance para acercarme del todo a esos dos en la general. Ya perdí demasiado en la montaña.
 
-— Todavía quedan los Alpes —le recordó el director—. No te resignes tan rápido.
+— Todavía quedan los Alpes, y hoy le sacaste tiempo a los dos —le recordó el director—. No te resignes tan rápido.
 
-— No me resigno —dijo Remco—. Solo soy realista sobre el nivel que están mostrando esos dos, día tras día.
+— No me resigno —dijo Remco—. Solo soy realista sobre el nivel que están mostrando esos dos en la montaña, día tras día. Acá, al menos, hoy mande yo.
 
 Del Toro, completando también su propia crono con un resultado sólido dentro del contexto de su rol de apoyo, observó desde la zona de meta la salida de Santi con un interés genuino que superaba cualquier obligación táctica de su equipo.
 
@@ -94,13 +94,13 @@ En el último tramo, con el dolor ya en su punto más intenso, Santi encontró e
 
 Santi cruzó la línea en Thonon-les-Bains con un tiempo que, comparado con el de Pogačar, confirmó una pérdida de veinte segundos, más de lo que su nivel físico general hubiera sugerido en cualquier otra circunstancia, pero exactamente dentro del rango que Rusconi había proyectado meses atrás para ese escenario específico.
 
-*— ¡Y el tiempo final confirma lo que todos temían! Pogačar completa la mejor crono del día, con Reyes perdiendo veinte segundos, el hueco más grande entre ambos en todo lo que va de Tour.*
+*— ¡Y el tiempo final confirma lo que todos temían, en la pelea que de verdad importa! Evenepoel se lleva la mejor crono del día, pero entre Pogačar y Reyes, es Pogačar quien manda: Reyes pierde veinte segundos, el hueco más grande entre ambos en todo lo que va de Tour.*
 
 ---
 
 En la zona de meta, Pogačar, consciente de la naturaleza específica de esa diferencia, se acercó a Santi con una actitud que combinaba la satisfacción deportiva con un respeto genuino por lo que acababa de presenciar.
 
-— Veinte segundos —dijo Pogačar—. Sé exactamente por qué, y no lo voy a festejar como festejaría cualquier otra ventaja.
+— Veinte segundos —dijo Pogačar—. Ni siquiera fue el mejor tiempo del día, Remco nos pasó a los dos. Pero sé exactamente por qué te gané a vos específicamente, y no lo voy a festejar como festejaría cualquier otra ventaja.
 
 — Festejalo igual —dijo Santi, todavía recuperando el aliento, con el dolor de la espalda todavía punzante—. Ganaste limpio. La fractura es mía, no es un problema tuyo. Correr inteligente contra las limitaciones del rival es parte de este deporte.
 
@@ -116,11 +116,11 @@ Ganna, llegando también a la zona de meta después de completar su propia crono
 
 ---
 
-Los tiempos oficiales confirmaron la nueva clasificación general: Pogačar líder, con veintinueve segundos de ventaja sobre Santi, el margen más amplio entre ambos en todo el Tour, con Remco tercero a más de dos minutos.
+Los tiempos oficiales confirmaron la nueva clasificación general: Pogačar líder, con veintinueve segundos de ventaja sobre Santi, el margen más amplio entre ambos en todo el Tour. Remco, dueño del mejor tiempo del día, recortó terreno a los dos y se acercó a cuatro minutos y medio del liderato, tercero pero de nuevo dentro de la conversación.
 
 *Cabina de RTVE, análisis post-etapa.*
 
-*— Veintinueve segundos. El hueco más grande de todo el Tour entre estos dos corredores, y probablemente el más significativo de cara a lo que queda de carrera.*
+*— Veintinueve segundos entre Pogačar y Reyes, el hueco más grande de todo el Tour entre estos dos corredores. Pero no nos olvidemos de Evenepoel, que se llevó la crono y recortó terreno a los dos: a cuatro minutos y medio del amarillo, lejos ya de la pelea por el podio, pero todavía corriendo el Tour más sólido de su carrera reciente.*
 
 *— Pero hay que ser justos con la lectura: esto no fue una crisis de forma. Fue el costo físico de una lesión conocida, gestionada con una inteligencia que merece reconocimiento, más allá del resultado numérico.*
 

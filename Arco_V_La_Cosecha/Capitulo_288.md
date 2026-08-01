@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar de amarillo tras el Tourmalet —Santi segundo a once segundos, Vingegaard tercero a treinta y nueve, Remco cuarto a cuarenta y dos—, la séptima etapa ofrecía, por fin, un día completamente llano, sin ninguna dificultad capaz de alterar una clasificación general que llevaba seis etapas cambiando de manos casi a diario.
+Con Pogačar de amarillo tras el Tourmalet —Santi segundo a once segundos, Vingegaard tercero a un minuto treinta y nueve, Remco cuarto a un minuto cuarenta y dos—, la séptima etapa ofrecía, por fin, un día completamente llano, sin ninguna dificultad capaz de alterar una clasificación general que llevaba seis etapas cambiando de manos casi a diario.
 
 La reunión matutina tuvo un tono distinto a todas las anteriores: más relajado, casi festivo, con el peso simbólico del Tourmalet ya superado y el equipo entero, incluido Ferretti, con una energía que no habían mostrado en varios días.
 
@@ -124,7 +124,7 @@ Ganna, llegando también con el grupo principal, se sumó a la conversación con
 
 *— Día tranquilo en la general, como se esperaba. Pero hay que destacar la actitud del equipo de Reyes, que incluso en una etapa sin ninguna consecuencia real, decidió pelear en vez de simplemente administrar.*
 
-*— Y no hay que olvidarse tampoco de Remco Evenepoel, que sigue ahí, cuarto en la general, a apenas cuarenta y dos segundos, corriendo un Tour sólido que la prensa sigue sin destacar como merece, demasiado ocupada mirando el duelo entre los otros dos.*
+*— Y no hay que olvidarse tampoco de Remco Evenepoel, que sigue ahí, cuarto en la general, a un minuto cuarenta y dos, corriendo un Tour sólido que la prensa sigue sin destacar como merece, demasiado ocupada mirando el duelo entre los otros dos.*
 
 *— Es curioso, porque si repasamos los números fríos, Evenepoel está corriendo uno de los Tours más consistentes de su carrera. Ninguna crisis, ninguna etapa mala, siempre ahí, a la expectativa. Pero la narrativa de esta edición ya se escribió, en la cabeza de la mayoría, como una historia de dos protagonistas. A veces el deporte es injusto con los números y generoso con la historia que decide contar.*
 

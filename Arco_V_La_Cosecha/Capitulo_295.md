@@ -88,7 +88,7 @@ Santi resistió el ataque sin poder cerrar la diferencia por completo, cediendo 
 
 ---
 
-Los tiempos oficiales, con la bonificación de la victoria sumada a los seis segundos cedidos en meta, devolvieron el maillot amarillo a Pogačar: nueve segundos de ventaja sobre Santi, con Remco tercero a casi dos minutos y Vingegaard cuarto, cada vez más lejos de la pelea principal.
+Los tiempos oficiales, con la bonificación de la victoria sumada a los seis segundos cedidos en meta, devolvieron el maillot amarillo a Pogačar: nueve segundos de ventaja sobre Santi, con Remco tercero a cinco minutos y Vingegaard cuarto, cada vez más lejos de la pelea principal.
 
 En la zona de meta, Pogačar buscó a Santi con el respeto habitual entre los dos.
 
@@ -96,7 +96,7 @@ En la zona de meta, Pogačar buscó a Santi con el respeto habitual entre los do
 
 — Once, seis, nueve —dijo Santi, repasando mentalmente los márgenes de las últimas confrontaciones—. Nunca más de once segundos entre nosotros dos, en todo el Tour. Esto se va a decidir por muy poco, al final.
 
-Remco, llegando a la zona de meta casi dos minutos después junto a un grupo reducido, se acercó también a saludar a ambos, con una expresión que mezclaba frustración contenida y determinación renovada.
+Remco, llegando a la zona de meta varios minutos después junto a un grupo reducido, se acercó también a saludar a ambos, con una expresión que mezclaba frustración contenida y determinación renovada.
 
 — Ustedes dos están jugando otro partido —dijo Remco, con una sonrisa que no ocultaba del todo la incomodidad—. Yo sigo acá, tratando de no perder más terreno del que ya perdí.
 

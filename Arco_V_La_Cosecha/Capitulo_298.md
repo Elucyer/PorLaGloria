@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar de amarillo —Santi segundo a veintinueve segundos, Remco tercero a más de dos minutos—, la decimoséptima etapa ofrecía el último respiro llano antes de que el Tour se adentrara definitivamente en los Alpes, con Chambéry como puerta simbólica de entrada al terreno donde, según todas las proyecciones de Rusconi, se iba a decidir el resultado final de la carrera.
+Con Pogačar de amarillo —Santi segundo a veintinueve segundos, Remco tercero a cuatro minutos y medio—, la decimoséptima etapa ofrecía el último respiro llano antes de que el Tour se adentrara definitivamente en los Alpes, con Chambéry como puerta simbólica de entrada al terreno donde, según todas las proyecciones de Rusconi, se iba a decidir el resultado final de la carrera.
 
 La reunión matutina tuvo un tono distinto al de la crono del día anterior: más liviano, con el equipo completo aliviado de que la prueba más temida ya hubiera quedado atrás.
 
@@ -126,7 +126,7 @@ Un periodista belga, compatriota del ganador, le preguntó por su opinión sobre
 
 *— Y ahora sí, toda la atención se dirige hacia los próximos cuatro días. Galibier, Alpe d'Huez dos veces consecutivas. El tramo más exigente de todo el recorrido, con solo veintinueve segundos separando a los dos favoritos principales.*
 
-*— Y no hay que olvidar a Remco, tercero, a más de dos minutos, pero todavía con posibilidades matemáticas de meterse en la pelea por el podio si alguno de los dos líderes tiene un mal día. Este tipo de terreno puede generar sorpresas que nadie anticipa del todo.*
+*— Y no hay que olvidar a Remco, tercero, a cuatro minutos y medio, aunque a esta altura ya corre más por consolidar el podio que por soñar con el amarillo. Este tipo de terreno puede generar sorpresas que nadie anticipa del todo.*
 
 ---
 

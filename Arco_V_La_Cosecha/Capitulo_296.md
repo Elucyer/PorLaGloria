@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar de amarillo —Santi segundo a nueve segundos, Remco tercero a un minuto cincuenta y ocho, Vingegaard cuarto a más de tres minutos tras el fallido ataque de los Vosgos—, la decimoquinta etapa cerraba la segunda semana con un final en alto exigente antes del último día de descanso del Tour.
+Con Pogačar de amarillo —Santi segundo a nueve segundos, Remco tercero a cinco minutos, Vingegaard cuarto a más de cinco minutos tras el fallido ataque de los Vosgos—, la decimoquinta etapa cerraba la segunda semana con un final en alto exigente antes del último día de descanso del Tour.
 
 La reunión matutina tuvo el tono habitual de los días de montaña, con Rusconi repasando el perfil final hacia Plateau de Solaison, un ascenso constante de dificultad media que, según sus proyecciones, no debería alterar dramáticamente la pelea entre Santi y Pogačar.
 
@@ -70,7 +70,7 @@ Kuss, escuchando la respuesta incompleta, sintió una angustia que no tenía nad
 
 ---
 
-Remco, que se encontraba en un grupo ligeramente adelantado en el momento de la caída, aprovechó la neutralización táctica del pelotón principal para sumarse a una fuga que, con el desarrollo de los acontecimientos, terminó definiendo la etapa.
+Remco, que se encontraba en un grupo ligeramente adelantado en el momento de la caída, aprovechó la neutralización táctica del pelotón principal para sumarse a una fuga reducida que, con el desarrollo de los acontecimientos, terminó definiendo la etapa.
 
 *Cabina de RTVE, tramo final.*
 
@@ -78,11 +78,19 @@ Remco, que se encontraba en un grupo ligeramente adelantado en el momento de la 
 
 *— No hay que juzgarlo por eso. Simplemente no tenía la información completa en el momento, y la carrera, técnicamente, sigue en marcha.*
 
-Remco atacó a sus compañeros de fuga en el tramo final del ascenso hacia Plateau de Solaison, ganando la etapa con una autoridad que, en cualquier otro contexto, hubiera generado una celebración mucho más efusiva de la que finalmente mostró, consciente ya, para entonces, de la gravedad de lo ocurrido más atrás en la carretera.
+Pogačar, que había escuchado por radio la confirmación de que Vingegaard ya estaba consciente y en manos del equipo médico, decidió, en los últimos cinco kilómetros, romper también la neutralización tácita del grupo principal, bridging solo hacia la fuga reducida con un esfuerzo que sorprendió incluso a su propio equipo.
+
+— No lo vamos a perseguir —confirmó Santi por radio, sin ninguna duda—. Que vaya. Si tiene ganas de correr después de lo que acabamos de ver, que corra.
+
+Pogačar alcanzó al grupo de cabeza a dos kilómetros de meta, y en el sprint final superó a Remco por medio cuerpo, ganando la etapa con una autoridad que, en cualquier otro contexto, hubiera generado una celebración mucho más efusiva de la que finalmente mostró, consciente ya, para entonces, de la gravedad de lo ocurrido más atrás en la carretera.
 
 Cruzó la línea sin levantar los brazos, con una expresión seria que contrastaba con la victoria conseguida, mirando hacia atrás en la carretera antes incluso de que el cronómetro terminara de confirmar su tiempo.
 
-— No es el momento de festejar esto como cualquier otra victoria —dijo Remco, apenas bajó de la bicicleta, dirigiéndose a los primeros periodistas que se acercaron—. Ganamos la etapa, sí. Pero un compañero del pelotón está camino al hospital. Eso pesa más que cualquier celebración.
+— No es el momento de festejar esto como cualquier otra victoria —dijo Pogačar, apenas bajó de la bicicleta, dirigiéndose a los primeros periodistas que se acercaron—. Gané la etapa, sí. Pero un compañero del pelotón está camino al hospital. Eso pesa más que cualquier celebración.
+
+Remco, segundo en el sprint, se acercó a Pogačar un momento después, sin ningún rencor deportivo por la derrota.
+
+— Hiciste bien en ir —le dijo Remco—. Yo también sentí que quedarme quieto, después de lo de Jonas, no tenía sentido. Mejor correr con eso adentro que rodar pensando en otra cosa.
 
 ---
 

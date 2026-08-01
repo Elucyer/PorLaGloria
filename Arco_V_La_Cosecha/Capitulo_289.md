@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar todavía de amarillo —Santi segundo a once segundos, Vingegaard tercero a treinta y nueve, Remco cuarto a cuarenta y dos—, la octava etapa repetía casi al pie de la letra el guion de la anterior: un recorrido llano por el Perigord, sin ninguna dificultad capaz de alterar la clasificación general, y todo el pelotón ya mirando, aunque nadie lo dijera en voz alta, hacia el día de descanso que se aproximaba.
+Con Pogačar todavía de amarillo —Santi segundo a once segundos, Vingegaard tercero a un minuto treinta y nueve, Remco cuarto a un minuto cuarenta y dos—, la octava etapa repetía casi al pie de la letra el guion de la anterior: un recorrido llano por el Perigord, sin ninguna dificultad capaz de alterar la clasificación general, y todo el pelotón ya mirando, aunque nadie lo dijera en voz alta, hacia el día de descanso que se aproximaba.
 
 La reunión matutina, breve y sin demasiada tensión, tuvo un único tema central: la logística del cambio de región, con la caravana completa del Tour desplazándose hacia el centro de Francia esa misma noche, después de la etapa, en preparación para el tramo del Macizo Central que se aproximaba.
 

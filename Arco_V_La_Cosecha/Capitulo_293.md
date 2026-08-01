@@ -8,7 +8,7 @@
 
 ---
 
-Con Santi de amarillo —Pogačar segundo a tres segundos, Vingegaard tercero a un minuto treinta y siete, Remco cuarto a un minuto cuarenta y uno—, la duodécima etapa ofrecía otro día llano de transición hacia Borgoña, con Merlier, ya recuperado del desgaste del Macizo Central, apuntando a una tercera victoria que lo consolidaría como el velocista dominante de la edición.
+Con Santi de amarillo —Pogačar segundo a tres segundos, Vingegaard tercero a tres minutos treinta y seis, Remco cuarto a cuatro minutos seis—, la duodécima etapa ofrecía otro día llano de transición hacia Borgoña, con Merlier, ya recuperado del desgaste del Macizo Central, apuntando a una tercera victoria que lo consolidaría como el velocista dominante de la edición.
 
 La reunión matutina, más relajada que las de días de montaña, se centró en la logística del día, con Rusconi repasando brevemente el perfil antes de ceder la palabra a Ferretti para los temas de protección y posicionamiento.
 

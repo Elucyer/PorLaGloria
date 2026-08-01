@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar de amarillo —Santi segundo a veintinueve segundos, Remco tercero a más de dos minutos—, la decimoctava etapa marcaba el verdadero inicio del tramo alpino decisivo, con un final en alto donde Santi llevaba días planeando el primer intento serio de recortar la diferencia acumulada en la crono.
+Con Pogačar de amarillo —Santi segundo a veintinueve segundos, Remco tercero a cuatro minutos y medio—, la decimoctava etapa marcaba el verdadero inicio del tramo alpino decisivo, con un final en alto donde Santi llevaba días planeando el primer intento serio de recortar la diferencia acumulada en la crono.
 
 La reunión matutina tuvo la intensidad de los días más importantes del Tour, con Rusconi repasando el perfil final con un detalle que no dejaba nada librado al azar.
 
@@ -88,7 +88,7 @@ Santi mantuvo el ritmo hasta el kilómetro final, con una ventaja que se estabil
 
 ---
 
-Los tiempos oficiales, sumados a la bonificación de la victoria, redujeron la diferencia general a diez segundos, recortando diecinueve de los veintinueve que separaban a ambos corredores desde la crono, con Remco tercero a más de dos minutos y medio, cada vez más lejos de la pelea principal.
+Los tiempos oficiales, sumados a la bonificación de la victoria, redujeron la diferencia general a diez segundos, recortando diecinueve de los veintinueve que separaban a ambos corredores desde la crono, con Remco tercero a más de cinco minutos, cada vez más lejos de la pelea principal.
 
 En la zona de meta, Pogačar buscó a Santi con una expresión que mezclaba el cansancio del esfuerzo y un respeto renovado.
 

@@ -40,43 +40,29 @@ En la cabina de Radiotelevisión Española, montada sobre una grúa con vista pr
 
 *— Y hay que decirlo: todas las miradas de hoy, en teoría, deberían estar en Visma-Lease a Bike, que llega como una de las máquinas de crono por equipos más completas del pelotón. Pero yo tengo un ojo puesto en el equipo de Reyes. Fichar a Ganna en invierno no fue una decisión de imagen. Fue pensando exactamente en una mañana como esta.*
 
-Equipo por equipo, con intervalos de tres minutos, los veintidós conjuntos del pelotón fueron saliendo de la rampa, cada uno con su propia coreografía de casco bajo y postura aerodinámica, sus propios colores multiplicados por ocho hombres pedaleando en fila perfecta contra el crono.
+Equipo por equipo, con intervalos de tres minutos, los veintidós conjuntos del pelotón fueron saliendo de la rampa en orden inverso al ranking UCI por equipos — los conjuntos más modestos abriendo la jornada, los de mayor puntaje acumulado cerrándola en la última hora de la tarde—, cada uno con su propia coreografía de casco bajo y postura aerodinámica, sus propios colores multiplicados por ocho hombres pedaleando en fila perfecta contra el crono. El sistema de esa disciplina, además, tomaba el tiempo del primer corredor de cada formación en cruzar la línea, no el del grupo completo: bastaba un solo hombre cruzando antes que el resto para que el cronómetro se detuviera oficialmente ahí.
 
-Red Bull–Bora–Hansgrohe, con Remco Evenepoel al frente de una formación que llevaba años entrenada específicamente para este tipo de prueba, salió a media mañana con la reputación de ser, junto a Visma, el otro gran candidato a llevarse el mejor tiempo del día.
+El equipo de Santi, armado recién en enero alrededor de un núcleo de fichajes nuevos, todavía no había acumulado ni medio año de puntos UCI como estructura — muy por debajo del historial de tres temporadas que arrastraban Visma, UAE o Red Bull—, así que le tocó salir temprano, apenas un puesto después de Decathlon, lejos todavía de la tanda reservada a los grandes favoritos.
 
-*— Y ahí sale el equipo de Evenepoel, que no hay que olvidar en ningún momento de esta conversación, aunque la prensa de las últimas semanas se haya concentrado en los otros tres nombres —dijo el comentarista veterano de RTVE, con una media sonrisa cómplice hacia su compañero—. Contra el crono, específicamente, este belga sigue siendo de los más peligrosos del pelotón mundial.*
-
-Terminaron la prueba con el tercer mejor tiempo provisional del mediodía, apenas dos segundos por delante del resultado que, un rato más tarde, terminaría firmando el equipo de Santi — un dato que, sin decirlo abiertamente ninguno de los dos bandos, ya empezaba a sumar una cuarta pieza silenciosa a una pelea que toda Europa insistía en imaginar como un duelo de solo tres nombres.
-
----
-
-Visma-Lease a Bike salió a las once y cuarto, con Vingegaard en el centro de la formación, protegido del viento por sus propios compañeros con la disciplina quirúrgica que había convertido a ese equipo, durante años, en el patrón de referencia de la disciplina.
-
-— Están volando —dijo Rusconi, por el pinganillo del coche del equipo, mientras revisaba los tiempos intermedios de Visma en la tablet—. Mejor tiempo en el primer intermedio por seis segundos sobre el segundo mejor de la mañana. Nadie se sorprenda si se llevan la etapa.
-
-En el bus del equipo, esperando su propio turno de salida, Santi escuchó el dato sin reaccionar visiblemente, guardando la energía nerviosa para el momento en que realmente iba a necesitarla.
-
-— No corremos contra ellos hoy —le dijo Ferretti, sentado a su lado, con la mano apoyada un momento en el hombro de Santi—. Corremos contra el crono, y contra nosotros mismos. Lo de Visma lo vemos después.
-
----
-
-Decathlon CMA CGM, con Seixas corriendo su primera crono por equipos de Tour, salió media hora antes que la formación de Santi, con el joven francés todavía procesando, en cada relevo, la diferencia brutal entre correr contra el reloj en una carrera de una semana y hacerlo en la apertura de la carrera más grande del calendario, con las gradas del Fòrum llenas hasta la última fila.
+Decathlon CMA CGM, con Seixas corriendo su primera crono por equipos de Tour, abrió la mañana entre los primeros equipos en tomar la rampa, con el joven francés todavía procesando, en cada relevo, la diferencia brutal entre correr contra el reloj en una carrera de una semana y hacerlo en la apertura de la carrera más grande del calendario, con las gradas del Fòrum llenas hasta la última fila.
 
 — Sentí las piernas distinto hoy, más pesadas de lo normal, con toda la gente gritando —le confesó Seixas a su director deportivo, ya en la zona de meta, todavía recuperando el aliento—. No sé si fueron los nervios o el nivel real de lo que se viene.
 
 — Fueron los nervios —dijo el director, con una sonrisa tranquilizadora—. Se te van a pasar en la segunda etapa. A todos les pasa la primera vez.
 
-Del Toro, que había cruzado la meta minutos antes con el resto de la formación de UAE, se acercó a saludar a Seixas antes de que cada uno volviera a su propio bus, con la complicidad que los dos habían construido durante toda la primavera.
+Del Toro, que todavía esperaba su propio turno de salida con el resto de la formación de UAE, varias horas más tarde en el orden del día, le mandó un mensaje breve apenas vio el resultado de Decathlon en la pantalla del bus, con la complicidad que los dos habían construido durante toda la primavera.
 
-— Segundo lugar, nada mal para empezar —le dijo del Toro.
+*Del Toro: Vi tu tiempo. Nada mal para empezar. A nosotros todavía nos queda un buen rato de espera.*
 
-— Todavía no vi el tiempo de Reyes —dijo Seixas, revisando el teléfono—. Ese es el que de verdad me interesa hoy.
+*Seixas: Ni idea de cómo le va a ir al equipo de Reyes, salen enseguida. Un equipo tan nuevo, en la rampa tan temprano, va a ser una buena referencia para todos.*
 
 ---
 
-Salieron a las doce y cuarenta y dos, con Ganna al frente exactamente como se había planeado, marcando un ritmo que en los primeros dos kilómetros pareció casi excesivo hasta que el resto del equipo entendió que era, precisamente, el ritmo correcto — lo suficientemente fuerte para no perder tiempo, lo suficientemente controlado para que los ocho pudieran sostenerlo sin desintegrarse antes del ecuador de la prueba.
+El equipo de Santi salió a media mañana, sin la presión mediática puesta todavía sobre ellos — Ganna al frente exactamente como se había planeado, marcando un ritmo que en los primeros dos kilómetros pareció casi excesivo hasta que el resto del equipo entendió que era, precisamente, el ritmo correcto — lo suficientemente fuerte para no perder tiempo, lo suficientemente controlado para que los ocho pudieran sostenerlo sin desintegrarse antes del ecuador de la prueba.
 
-— Buen ritmo, buen ritmo —dijo Rusconi por radio, siguiendo desde el coche a pocos metros del grupo—. Intermedio uno, quinto mejor tiempo. Perdemos cuatro segundos con Visma. Nada que no se pueda recuperar.
+*— Y aquí sale un equipo que todavía no tiene historial en esta disciplina como conjunto, aunque individualmente reúna a algunos de los mejores cronoescaladores del mundo —dijo el comentarista de RTVE—. Va a ser instructivo ver qué referencia dejan, tan temprano en la jornada, para medir después a los favoritos.*
+
+— Buen ritmo, buen ritmo —dijo Rusconi por radio, siguiendo desde el coche a pocos metros del grupo—. Intermedio uno, mejor tiempo del día hasta ahora, aunque todavía falten los equipos fuertes. Disfrutalo mientras dure.
 
 Kuss, en el segundo relevo, tomó el viento durante casi dos kilómetros completos sin ceder ni un vatio de la potencia que Rusconi le había pedido, con la misma solidez silenciosa que había definido toda su carrera como escalador convertido, para esta prueba específica, en máquina de tirar sobre terreno llano.
 
@@ -92,23 +78,39 @@ Santi, pasado el kilómetro quince, sintió algo que no esperaba sentir tan pron
 
 — Copiado —dijo Tiberi, entre jadeos, sin bajar el ritmo.
 
-— Segundo intermedio —anunció Rusconi, un momento después, revisando el crono en la pantalla del coche—. Cuarto mejor tiempo, siete segundos detrás de Visma. Recuperamos un poco. Sigan exactamente así.
+— Segundo intermedio —anunció Rusconi, un momento después, revisando el crono en la pantalla del coche—. Seguimos con el mejor tiempo del día, aunque todavía es temprano para sacar conclusiones. Sigan exactamente así.
 
 Santi, en la posición número seis de la formación, sintió las piernas quemando con una intensidad distinta a cualquier otro tipo de esfuerzo del año — no la quemazón larga y sostenida de un puerto de montaña, sino algo más agudo, más eléctrico, la sensación específica de un cuerpo entero exprimido al límite durante diecinueve minutos consecutivos sin ningún respiro posible.
 
 Las dos rotondas técnicas de la parte final, que Rusconi había marcado en rojo en el briefing de la mañana, las tomaron sin perder velocidad, con Ganna de nuevo al frente para la última recta, tirando del grupo hasta la línea con una potencia que parecía imposible después de haber abierto también la etapa.
 
-Cruzaron la meta los ocho juntos, en un bloque compacto que el reglamento validaba tomando el tiempo del quinto hombre — exactamente como lo habían entrenado, sin dejar a nadie atrás.
+Cruzaron la meta los ocho en fila apretada, con Ganna asomando primero según marcaba el reglamento de esa disciplina — el tiempo del primer corredor de cada equipo en cruzar la línea, no el del grupo completo—, exactamente como lo habían entrenado, sin dejar a nadie atrás.
 
 ---
 
 *Cabina de RTVE, línea de meta.*
 
-*— ¡Y el equipo de Reyes entra fortísimo! Están mirando el marcador con el resto del pelotón para saber si esto alcanza.*
+*— ¡Y el equipo de Reyes entra fortísimo! Toma el mejor tiempo provisional del día, superando incluso a Decathlon por un margen amplio.*
 
-*— El tiempo provisional los deja segundos, en principio, por detrás de Visma. Pero hay que decirlo: para ser la primera crono por equipos de esta formación completa, con Ganna liderando desde el frente casi toda la prueba, esto es un mensaje enorme de cara a las próximas tres semanas.*
+*— Un mensaje enorme, para ser la primera crono por equipos de esta formación completa, con Ganna liderando desde el frente casi toda la prueba. Ahora hay que ver cuánto de esto resiste cuando entren los equipos grandes, en la última hora de la tarde.*
 
-El resultado definitivo llegó unos minutos después, cuando ya no quedaban equipos importantes por completar el recorrido: Visma-Lease a Bike, primero, con el mejor tiempo del día. UAE Team Emirates XRG, segundo, a cuatro segundos, con Pogačar y del Toro liderando la formación italiana desde el frente en los tramos finales. Red Bull–Bora–Hansgrohe, tercero, a siete segundos, con Remco al mando. Y el equipo de Santi, cuarto, a nueve segundos de Vingegaard.
+Red Bull–Bora–Hansgrohe, con Remco Evenepoel al frente de una formación entrenada durante años específicamente para este tipo de prueba, salió pasado el mediodía, ya en el tramo final de la jornada reservado a los equipos de mayor ranking acumulado.
+
+*— Y ahí sale el equipo de Evenepoel, que no hay que olvidar en ningún momento de esta conversación, aunque la prensa de las últimas semanas se haya concentrado en los otros tres nombres —dijo el comentarista veterano de RTVE, con una media sonrisa cómplice hacia su compañero—. Contra el crono, específicamente, este belga sigue siendo de los más peligrosos del pelotón mundial.*
+
+Superaron el tiempo del equipo de Santi por dos segundos, tomando el mejor tiempo provisional del día y desplazándolos al segundo lugar, con UAE y Visma todavía en carretera.
+
+UAE Team Emirates XRG, con Pogačar y del Toro liderando la formación desde el frente en los tramos finales, salió doce minutos después de Red Bull, en la penúltima posición de la jornada.
+
+*— Y ahí va UAE, el penúltimo equipo del día, con solo Visma quedando por confirmar —dijo el comentarista, revisando el orden de salida en su propia planilla.*
+
+Superaron el tiempo de Red Bull por tres segundos, tomando a su vez el mejor tiempo provisional y desplazando a los de Remco al segundo lugar, con el equipo de Santi ya tercero y Visma todavía en carretera, el único que faltaba por completar el recorrido.
+
+Visma-Lease a Bike, el último equipo de la jornada en salir por ser el de mayor puntaje UCI acumulado del pelotón, tomó la rampa varios minutos después que UAE, con Vingegaard protegido en el centro de la formación por la disciplina quirúrgica que había convertido a ese conjunto, durante años, en el patrón de referencia de la disciplina.
+
+— Vienen volando —confirmó Rusconi por radio, siguiendo los intermedios de Visma en la tablet desde el bus, ya con todo el equipo de Santi duchado y expectante—. Mejor tiempo en cada intermedio hasta ahora, por margen cómodo.
+
+El resultado definitivo llegó minutos después, cuando Visma cruzó la línea con el mejor tiempo del día, cerrando la clasificación final: Visma-Lease a Bike, primero. UAE Team Emirates XRG, segundo, a cuatro segundos, con Pogačar y del Toro liderando la formación italiana desde el frente en los tramos finales. Red Bull–Bora–Hansgrohe, tercero, a siete segundos, con Remco al mando. Y el equipo de Santi, cuarto, a nueve segundos de Vingegaard — superado, uno por uno, por los tres grandes favoritos que salieron después, exactamente como Rusconi había anticipado.
 
 — Cuarto está bien —dijo Rusconi, revisando los números finales en la tablet, ya con el equipo entero recuperando el aliento apoyado contra el bus—. Nueve segundos sobre Vingegaard, cinco sobre Pogačar, dos sobre Remco. No es el peor escenario posible para el primer día. Es, de hecho, casi exactamente lo que proyectamos en enero.
 
@@ -140,17 +142,21 @@ Carmen, secándose las manos en el repasador de la cocina, se asomó un momento 
 
 ---
 
-La rueda de prensa oficial, esa misma tarde, reunió a los líderes de los tres equipos que habían dominado la clasificación provisional: Vingegaard, con el primer maillot amarillo de la temporada sobre los hombros; Pogačar, segundo a cuatro segundos; y Santi, tercero a nueve, sentados en la misma mesa por primera vez desde la conferencia conjunta del día anterior, pero ahora ya con números reales de por medio, no solo palabras.
+La rueda de prensa oficial, esa misma tarde, reunió a los líderes de los cuatro equipos que habían dominado la clasificación provisional: Vingegaard, con el primer maillot amarillo de la temporada sobre los hombros; Pogačar, segundo a cuatro segundos; Remco, tercero a siete; y Santi, cuarto a nueve, sentados en la misma mesa por primera vez desde la conferencia conjunta del día anterior, pero ahora ya con números reales de por medio, no solo palabras.
 
 — Se siente distinto tener esto puesto de verdad, no solo hablar de la posibilidad —dijo Vingegaard, tocando brevemente la tela amarilla sobre su pecho—. Pero sé mejor que nadie que un maillot ganado en una crono por equipos dura lo que dura. La verdadera pelea todavía no empezó.
 
 — Nueve segundos es una diferencia que se borra en cualquier repecho de las próximas dos semanas —dijo Pogačar, mirando de reojo a Santi—. Diría que estamos exactamente donde todos esperábamos estar hoy: todos cerca, nadie regalando nada.
 
+Remco, que llevaba semanas escuchando cómo la prensa reducía la pelea a solo tres nombres, no dejó pasar la oportunidad de recordar su propia posición.
+
+— Tercero, a siete segundos, con equipo completo —dijo Remco, sin ninguna ironía en la voz—. Por si alguien todavía necesita el recordatorio de que también estoy en esta mesa.
+
 Un periodista catalán, aprovechando el marco simbólico de la salida en Barcelona, dirigió la última pregunta directamente a Santi.
 
-— ¿Qué se siente empezar el Tour más esperado de tu carrera a nueve segundos del amarillo, en tu primer día de vuelta a esta distancia?
+— Cuarto a nueve segundos, en tu primer día de vuelta a esta distancia. ¿Qué se siente?
 
-— Se siente exactamente como debería sentirse el primer día de un Tour de tres semanas —dijo Santi, eligiendo las palabras con la misma calma que aplicaba a cada respuesta importante desde octubre—. Cerca, pero sin nada decidido. Con equipo completo, sin nadie perdido en el camino. Mañana hay otra etapa, y después otra, y otra, hasta que en algún momento de las próximas tres semanas alguno de los tres que estamos en esta mesa se va a quedar con la ventaja que de verdad importa. Hoy no fue ese momento. Hoy fue, simplemente, el primer paso de algo mucho más largo.
+— Se siente exactamente como debería sentirse el primer día de un Tour de tres semanas —dijo Santi, eligiendo las palabras con la misma calma que aplicaba a cada respuesta importante desde octubre—. Cerca, pero sin nada decidido. Con equipo completo, sin nadie perdido en el camino. Mañana hay otra etapa, y después otra, y otra, hasta que en algún momento de las próximas tres semanas alguno de los cuatro que estamos en esta mesa se va a quedar con la ventaja que de verdad importa. Hoy no fue ese momento. Hoy fue, simplemente, el primer paso de algo mucho más largo.
 
 Vingegaard, escuchando la respuesta, asintió una sola vez, sin agregar nada más, mientras la sala de prensa completa esperaba, con la misma ansiedad contenida que llevaba meses acumulándose en toda Europa, a que el resto de la carrera confirmara si esa calma era genuina o simplemente la primera capa de un nerviosismo que las tres semanas siguientes, tarde o temprano, iban a terminar de exponer.
 

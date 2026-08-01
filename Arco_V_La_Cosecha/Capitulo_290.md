@@ -8,7 +8,7 @@
 
 ---
 
-Con Pogačar todavía de amarillo tras el Tourmalet —Santi segundo a once segundos, Vingegaard tercero a treinta y nueve, Remco cuarto a cuarenta y dos—, la novena etapa cerraba la primera semana de carrera con un recorrido ondulado por la meseta de Corrèze, la última prueba antes del primer día de descanso y antes del examen del Macizo Central que esperaba justo al otro lado del descanso.
+Con Pogačar todavía de amarillo tras el Tourmalet —Santi segundo a once segundos, Vingegaard tercero a un minuto treinta y nueve, Remco cuarto a un minuto cuarenta y dos—, la novena etapa cerraba la primera semana de carrera con un recorrido ondulado por la meseta de Corrèze, la última prueba antes del primer día de descanso y antes del examen del Macizo Central que esperaba justo al otro lado del descanso.
 
 La reunión matutina tuvo un tono distinto a todas las anteriores: cansado, pero satisfecho, con los ocho corredores de la escuadra mostrando, por primera vez en varios días, el desgaste acumulado de nueve etapas consecutivas de un Tour que no había dado tregua ni un solo día.
 
@@ -142,7 +142,7 @@ Se sentaron un rato en la plaza principal del pueblo, viendo pasar la vida local
 
 *Fragmento de columna, L'Équipe, edición del día de descanso.*
 
-*"A nueve etapas del final, este Tour ya se perfila como uno de los más apretados de la historia reciente. Once segundos separan a Pogačar de Reyes, una diferencia que no se veía en la cima de la clasificación general desde hace más de una década, y que puede reducirse o ampliarse drásticamente ya el viernes, en el Macizo Central. Pero hay que mirar también más abajo: Vingegaard, a treinta y nueve segundos, todavía en la pelea; y Evenepoel, cuarto a cuarenta y dos, corriendo el Tour más consistente de su carrera reciente sin que nadie, salvo los números fríos, parezca notarlo. La guerra de las próximas dos semanas puede terminar teniendo más de tres protagonistas de los que la narrativa actual está dispuesta a admitir."*
+*"A nueve etapas del final, este Tour ya se perfila como uno de los más apretados de la historia reciente, al menos en su cima. Once segundos separan a Pogačar de Reyes, una diferencia que no se veía en la cima de la clasificación general desde hace más de una década, y que puede reducirse o ampliarse drásticamente ya el viernes, en el Macizo Central. Pero hay que mirar también más abajo: Vingegaard, a un minuto treinta y nueve, todavía con opciones de podio; y Evenepoel, cuarto a un minuto cuarenta y dos, corriendo el Tour más consistente de su carrera reciente sin que nadie, salvo los números fríos, parezca notarlo. La guerra de las próximas dos semanas puede terminar teniendo más de tres protagonistas de los que la narrativa actual está dispuesta a admitir."*
 
 Remco, leyendo la misma columna en su habitación de hotel esa tarde, se la reenvió a su director deportivo con un único comentario.
 

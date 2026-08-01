@@ -8,7 +8,7 @@
 
 ---
 
-Con Santi de amarillo tras el Macizo Central —Pogačar segundo a tres segundos, Vingegaard tercero a un minuto treinta y siete, Remco cuarto a un minuto cuarenta y uno—, la undécima etapa ofrecía un día llano de transición, con el pelotón completo todavía procesando la magnitud de lo ocurrido el día anterior en los diez repechos del Macizo Central.
+Con Santi de amarillo tras el Macizo Central —Pogačar segundo a tres segundos, Vingegaard tercero a tres minutos treinta y seis, Remco cuarto a cuatro minutos seis—, la undécima etapa ofrecía un día llano de transición, con el pelotón completo todavía procesando la magnitud de lo ocurrido el día anterior en los diez repechos del Macizo Central.
 
 La reunión matutina, más corta que de costumbre, tuvo un tono distinto: el equipo entero mostraba el cansancio físico de una etapa que había exigido un desgaste inusual incluso para los gregarios que no habían participado directamente en los ataques.
 

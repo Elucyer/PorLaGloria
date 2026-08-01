@@ -1,7 +1,11 @@
 {
   "permissions": {
     "allow": [
-      "Bash(python3 -c ' *)"
+      "Bash(python3 -c ' *)",
+      "Bash(python3)",
+      "WebSearch",
+      "WebFetch(domain:en.wikipedia.org)",
+      "Bash(PYTHONIOENCODING=utf-8 python3)"
     ]
   }
 }
