@@ -8,7 +8,7 @@
 
 ---
 
-Isaac del Toro voló a Abu Dabi al día siguiente de la victoria, no por descanso ni por vacaciones, sino porque el equipo había programado, meses atrás, una reunión con los patrocinadores principales que coincidía, casi por casualidad, con el mejor momento de su carrera hasta la fecha.
+Isaac del Toro voló a Abu Dabi al día siguiente de la etapa final en Plateau de Solaison-Brison, no por descanso ni por vacaciones, sino porque el equipo había programado, meses atrás, una reunión con los patrocinadores principales que coincidía, casi por casualidad, con el mejor momento de su carrera hasta la fecha.
 
 Se sentó en el vuelo con la medalla de la etapa todavía en la maleta de mano, sin haber tenido tiempo de guardarla en ningún lugar más permanente, y se quedó mirando por la ventanilla el Mediterráneo pasando abajo, pensando en la frase que Santi le había dicho en la línea de meta: *hacelo porque algún día vas a estar del otro lado.*
 
@@ -68,7 +68,11 @@ Su padre se quedó un momento en silencio, del otro lado de la línea, con el ti
 
 — Bueno, hijo, creo que llevás años haciendo lo mismo en el pelotón profesional, sin darte cuenta —dijo su padre—. Corriendo detrás de Pogačar, aprendiendo. Y esta semana, por primera vez, decidiste que ya aprendiste suficiente para correr adelante. Eso no se improvisa un día cualquiera. Se construye, año tras año, sin que uno mismo lo note del todo hasta que llega el momento.
 
-Del Toro sintió que se le cerraba la garganta, algo que no le pasaba seguido, escuchando a su padre resumir, con esa claridad simple que solo los padres parecían tener, algo que él mismo llevaba días tratando de entender sin conseguirlo del todo.
+Del Toro sintió que se le cerraba la garganta, algo que no le pasaba seguido, escuchando a su padre resumir, con esa claridad simple que solo los padres parecían tener, algo que él mismo llevaba días tratando de entender sin conseguirlo del todo. Pensó en todos los domingos de infancia en Ensenada, subido a una bicicleta prestada, mirando las espaldas de corredores mayores que nunca esperaban que los alcanzara, y en cómo esa misma sensación — la de perseguir algo apenas fuera de su alcance — había definido cada etapa importante de su carrera hasta ahora, incluida la del día anterior, cuando la espalda que persiguió fue la de Santi, cuesta arriba, hasta quedarse sin respuesta.
+
+— Todavía me cuesta creer que corrí así, contra él, sin guardarme nada —admitió, ya con la voz más firme—. Ni siquiera en las categorías juveniles me animaba a atacar tan temprano, tan lejos de la meta, sin garantía de nada.
+
+— Eso es lo que cambió, entonces —dijo su padre—. No el resultado. La forma de plantear la pelea. Los resultados van a llegar solos, si seguís plantéandola así.
 
 — Gracias, papá —dijo, finalmente—. Necesitaba escuchar eso.
 
@@ -80,11 +84,11 @@ Al día siguiente, ya de vuelta en su habitación después de los compromisos co
 
 Le escribió de nuevo, esta vez con algo más concreto para contar.
 
-*Del Toro: Gané en Auvergne-Rhône-Alpes. Como líder de verdad, no como escudero. Reyes me dejó pelear la etapa sin perseguirme cuando pudo haberlo hecho fácil.*
+*Del Toro: Ataqué en Auvergne-Rhône-Alpes, como líder de verdad, no como escudero. Reyes me cazó a ocho kilómetros de meta y me aplastó por dos minutos. Y aun así fue la mejor semana de mi carrera.*
 
-*Seixas: Vi el resultado. Enorme. ¿Por qué creés que hizo eso?*
+*Seixas: Vi el resultado. Se nota que atacaste en serio, no de adorno. ¿Por qué creés que te lo dijo así, tan claro, después?*
 
-*Del Toro: No sé del todo. Me dijo que era porque me lo merecía después de la semana que tuve. Pero también creo que hay algo más: creo que él ve en nosotros algo de lo que fue él mismo, hace años, antes de todo lo que le pasó.*
+*Del Toro: No sé del todo. Me dijo que corrí como un líder de verdad, con o sin la victoria. Pero también creo que hay algo más: creo que él ve en nosotros algo de lo que fue él mismo, hace años, antes de todo lo que le pasó.*
 
 *Seixas: A mí me dijo algo parecido, en Arrate. Que guardara la sensación de pelear sin miedo, no la de perder.*
 
@@ -126,7 +130,7 @@ Del Toro sintió que algo se aflojaba en su pecho, un nudo que llevaba días sin
 
 ---
 
-Esa noche, antes de dormir, del Toro abrió una carpeta en su teléfono donde guardaba, desde hacía meses, capturas de pantalla de números y resultados que le interesaba recordar. Agregó una nueva: la clasificación final del Tour Auvergne-Rhône-Alpes, con su nombre en primer lugar de la etapa ocho, y el de Santi en primer lugar de la clasificación general.
+Esa noche, antes de dormir, del Toro abrió una carpeta en su teléfono donde guardaba, desde hacía meses, capturas de pantalla de números y resultados que le interesaba recordar. Agregó una nueva: la clasificación de la etapa ocho del Tour Auvergne-Rhône-Alpes, con el nombre de Santi en primer lugar y el suyo propio en segundo, a dos minutos y cuatro segundos — la derrota que, sin saber bien por qué, quería guardar más que cualquier victoria anterior.
 
 Debajo, escribió una nota corta, la primera de lo que terminaría siendo, sin que él lo supiera todavía, una costumbre que mantendría el resto de su carrera.
 

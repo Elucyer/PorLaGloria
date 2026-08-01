@@ -1,16 +1,16 @@
 # POR LA GLORIA
 ## Arco V — La Cosecha
-### Capítulo 281 — La víspera (4 de julio de 2026)
+### Capítulo 281 — La víspera (2-4 de julio de 2026)
 
 ---
 
-*Barcelona, España. 4 de julio de dos mil veintiséis.*
+*Barcelona, España. 2-4 de julio de dos mil veintiséis.*
 
 ---
 
-El Tour de Francia 2026 arrancaba, por primera vez en su historia reciente, con una salida completa en territorio español — Barcelona entera convertida, durante tres días, en la capital temporal del ciclismo mundial, con la crono por equipos programada para esa misma tarde como primera prueba real de la carrera más larga y más esperada de la temporada.
+El Tour de Francia 2026 arrancaba, por primera vez en su historia reciente, con una salida completa en territorio español — Barcelona entera convertida, durante tres días, en la capital temporal del ciclismo mundial, con la crono por equipos recién programada para el sábado, todavía a dos días de distancia de la presentación oficial que abría, formalmente, la semana de fiesta previa a la carrera más larga y más esperada de la temporada.
 
-La presentación oficial de equipos se hizo al mediodía, en un escenario montado sobre el Passeig de Gràcia, con los veintidós equipos del pelotón desfilando uno por uno ante una multitud que Duarte calculó, sin exagerar demasiado, "la más grande que vi nunca para una presentación de Tour".
+La presentación oficial de equipos se hizo el jueves 2 de julio, a las seis y media de la tarde, sobre la avenida de Gaudí, entre el recinto modernista de Sant Pau y la Sagrada Família, con los veintidós equipos del pelotón desfilando uno por uno ante una multitud que Duarte calculó, sin exagerar demasiado, en más de ochenta mil personas — "la más grande que vi nunca para una presentación de Tour".
 
 Santi subió al escenario con el resto de la escuadra de ocho, y cuando el presentador leyó su nombre, el rugido del público —una mezcla de acentos españoles, colombianos, y de toda Europa reunida en una sola ciudad por una sola razón— se sostuvo más tiempo del protocolar, obligando al presentador a esperar antes de continuar.
 
@@ -24,11 +24,13 @@ Detrás del escenario, esperando su turno de bajar hacia la zona de firma de aut
 
 — Creelo —dijo Ferretti—. Porque a partir de mañana, esa multitud va a esperar que lo confirmes con la bicicleta, no con las palabras. Pero eso ya lo sabés mejor que nadie.
 
+Un poco antes, cuando le tocó el turno a UAE Team Emirates XRG, Santi había visto a del Toro subir al escenario junto a Pogačar, con la escuadra completa del equipo detrás — confirmación pública de que Isaac también correría este Tour, no como gregario de lujo, sino con ambición propia de podio, tal como lo había anticipado toda la primavera.
+
 La escuadra completa bajó del escenario media hora después, hacia una zona reservada donde el equipo entero, incluidos los que no viajaban en la escuadra de ocho pero habían acompañado la presentación desde Girona por videollamada grupal, celebró el momento con una copa de cava que Duarte había conseguido, según explicó, "por las buenas y por las malas, con la organización del Tour".
 
 ---
 
-Esa misma tarde, en la sala de prensa oficial del Tour, se organizó la única conferencia conjunta de toda la carrera: Pogačar, Vingegaard y Santi, sentados en la misma mesa por primera vez desde Como, con Remco Evenepoel un asiento más allá, completando el cuarteto que toda Europa llevaba meses esperando ver junto.
+Al día siguiente, viernes 3 de julio, con la ciudad todavía resonando de la fiesta de la presentación, se organizó en la sala de prensa oficial del Tour la única conferencia conjunta de toda la carrera: Pogačar, Vingegaard y Santi, sentados en la misma mesa por primera vez desde Como, con Remco Evenepoel un asiento más allá, completando el cuarteto que toda Europa llevaba meses esperando ver junto.
 
 Fue Pogačar quien rompió el hielo, antes de que ningún periodista hiciera la primera pregunta.
 
@@ -122,9 +124,9 @@ Se quedaron un rato más en la ventana, en silencio, mirando la ciudad, hasta qu
 
 ---
 
-Antes de dormir, Santi recibió un último mensaje, esta vez de Hernando, que llevaba todo el día siguiendo la presentación por streaming desde Laureles, con Carmen a su lado.
+Antes de dormir, Santi recibió un último mensaje, esta vez de Hernando, que llevaba los dos últimos días siguiendo todo por streaming desde Laureles, con Carmen a su lado.
 
-*Hernando: Vimos todo. La presentación, la rueda de prensa, todo. Tu mamá lloró cuando el presentador dijo lo del Tourmalet. Yo también, un poco, aunque no se lo diga a nadie más que a vos.*
+*Hernando: Vimos todo, estos dos días. La presentación del jueves, la rueda de prensa de hoy, todo. Tu mamá lloró cuando el presentador dijo lo del Tourmalet. Yo también, un poco, aunque no se lo diga a nadie más que a vos.*
 
 *Santi: Mañana empieza de verdad, papá.*
 
@@ -134,21 +136,21 @@ Antes de dormir, Santi recibió un último mensaje, esta vez de Hernando, que ll
 
 *Hernando: Ahí voy a estar, con el cuaderno abierto, como siempre.*
 
-En Lyon, esa misma noche, Seixas grabó una nota de voz que se guardó para sí mismo, sin enviarla a nadie, más como un ritual privado que como un mensaje.
+En su propio hotel, a pocas cuadras del de Santi, Seixas grabó una nota de voz que se guardó para sí mismo, sin enviarla a nadie, más como un ritual privado que como un mensaje.
 
-*"Mañana empieza el Tour. Yo no corro, todavía me falta para eso, pero voy a ver cada etapa como si corriera. Reyes contra Pogačar, contra Vingegaard, contra Remco. El nivel que tengo que alcanzar está ahí, en esa carretera, y quiero verlo de cerca, aunque sea por una pantalla, para saber exactamente cuánto me falta."*
+*"Mañana empieza mi primer Tour de Francia. Todavía no sé si estoy listo para pelear la general contra estos cuatro, pero voy a correr cada etapa como si lo estuviera. Reyes, Pogačar, Vingegaard, Remco. El nivel que tengo que alcanzar está ahí, en esa carretera, y esta vez lo voy a medir con mi propio cuerpo, no desde una pantalla."*
 
-En Andorra, del Toro hizo algo parecido, aunque con destinatario esta vez: le escribió a Santi un último mensaje antes de la salida, breve, sin necesitar más palabras.
+En su hotel del equipo UAE, del Toro hizo algo parecido, aunque con destinatario esta vez: le escribió a Santi un último mensaje antes de la salida, breve, sin necesitar más palabras.
 
-*Del Toro: Suerte mañana. La vas a necesitar contra esos tres, aunque no creo que te haga falta tanto como pensás.*
+*Del Toro: Suerte mañana. Nos vemos en la carretera, esta vez de verdad, no solo en los mensajes. Voy a estar cerca, aunque sea peleando por otra cosa.*
 
-*Santi: Gracias, Isaac. Nos vemos en la carretera, tarde o temprano.*
+*Santi: Gracias, Isaac. Que gane el mejor de los dos, cuando se crucen los caminos.*
 
 En Girona, Cano se quedó despierto hasta tarde, con la libreta azul abierta sobre las piernas, escribiendo la última entrada antes de la salida del Tour más esperado de la temporada.
 
 *3 de julio de 2026. Mañana empieza el Tour sin mí en la carretera, pero con todo lo que aprendí este año viajando con el equipo hasta Barcelona, en la cabeza. El año que viene, distinto. Esta noche, guardo esta espera también, como todo lo demás.*
 
-Santi guardó el teléfono, apagó la luz, y se quedó despierto un rato más, con Mariana ya dormida a su lado, pensando en Pogačar, en Vingegaard, en Remco, en del Toro y en Seixas esperando su propia oportunidad de julio, en Cano viendo la carrera desde Girona con la libreta azul lista, en Rusconi calculando números en algún hotel cercano, en su padre despierto en Laureles con el cuaderno de tapas gastadas abierto sobre las piernas.
+Santi guardó el teléfono, apagó la luz, y se quedó despierto un rato más, con Mariana ya dormida a su lado, pensando en Pogačar, en Vingegaard, en Remco, en del Toro y en Seixas corriendo su propio Tour a pocos kilómetros de distancia, en Cano viendo la carrera desde Girona con la libreta azul lista, en Rusconi calculando números en algún hotel cercano, en su padre despierto en Laureles con el cuaderno de tapas gastadas abierto sobre las piernas.
 
 Mañana empezaba el Tour de Francia más esperado en años. Y por primera vez desde el Tourmalet, Santi se durmió sin ningún miedo real adentro — solo la impaciencia tranquila de quien, después de un año entero construyendo, finalmente estaba listo para descubrir hasta dónde alcanzaba todo lo construido.
 

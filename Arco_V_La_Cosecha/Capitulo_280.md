@@ -1,10 +1,10 @@
 # POR LA GLORIA
 ## Arco V — La Cosecha
-### Capítulo 280 — La escuadra de ocho (22 de junio - 3 de julio de 2026)
+### Capítulo 280 — La escuadra de ocho (22 de junio - 1 de julio de 2026)
 
 ---
 
-*Girona, España. 22 de junio - 3 de julio de dos mil veintiséis.*
+*Girona, España. 22 de junio - 1 de julio de dos mil veintiséis.*
 
 ---
 
@@ -112,13 +112,13 @@ Santi pasó la mano por el cuadro de la bicicleta, sintiendo el peso simbólico 
 
 ---
 
-El tres de julio, la noche antes del vuelo a Barcelona, el equipo completo se reunió por última vez en la sede de Girona, con Duarte presentando el itinerario final de los próximos veintiún días y Rusconi repasando, una última vez, los números completos de la temporada.
+El primero de julio, la noche antes del vuelo a Barcelona — dos días antes de la presentación oficial de equipos, programada para la tarde del 2 de julio en la Sagrada Família — el equipo completo se reunió por última vez en la sede de Girona, con Duarte presentando el itinerario final de los próximos veintitrés días y Rusconi repasando, una última vez, los números completos de la temporada.
 
 — Cinco victorias de general en la primavera. Ningún resultado por debajo del podio en toda la temporada —dijo Rusconi, cerrando la presentación—. Llegamos al Tour en la mejor forma física de la carrera de Santiago, según cada número que medimos. Lo que pase a partir de mañana ya no depende de nosotros solamente. Depende también de la carretera, del clima, de la suerte, de tres rivales que llegan igual de preparados. Pero la preparación, la parte que sí controlamos, está completa.
 
 Santi, escuchando el resumen desde su lugar en la mesa, con Mariana a su lado y el resto del equipo alrededor, sintió la misma certeza tranquila que llevaba construyendo desde febrero, ahora finalmente lista para ser puesta a prueba.
 
-— Mañana empieza el Tour —dijo Santi, levantando su copa en un brindis breve, sin necesitar más palabras—. Por todo lo que construimos para llegar hasta acá.
+— Mañana empieza el camino hacia el Tour —dijo Santi, levantando su copa en un brindis breve, sin necesitar más palabras—. Por todo lo que construimos para llegar hasta acá.
 
 La sala entera levantó sus copas, y esa noche, por última vez antes de Barcelona, el equipo completo cenó junto, sin hablar de tácticas ni de rivales, solo de la temporada que habían construido juntos, un día a la vez, desde un enero que ya parecía, en la memoria de todos, pertenecer a otra vida completamente distinta.
 
@@ -142,6 +142,6 @@ Esa noche, ya en el apartamento, mientras terminaba de armar la maleta para el v
 
 — Eso también es un progreso, entonces —dijo Mariana, apoyando la cabeza en su hombro.
 
-— El último de la primavera —confirmó Santi—. Mañana empieza otro tipo de progreso completamente distinto.
+— El último de la primavera —confirmó Santi—. Mañana volamos a Barcelona. Ahí empieza otro tipo de progreso completamente distinto.
 
 ---

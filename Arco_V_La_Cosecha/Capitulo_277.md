@@ -108,7 +108,7 @@ En la rueda de prensa final de la general, con Santi confirmado como ganador del
 
 — ¿Es un mensaje pensado para julio?
 
-— No pienso en mensajes, pienso en piernas —dijo Santi—. Pero si alguien lo quiere leer así, que lo lea. Hoy tenía delante al ganador de Tirreno, atacando en su terreno, y decidí no dejarle esa ventaja. Eso es todo lo que pasó.
+— No pienso en mensajes, pienso en piernas —dijo Santi—. Pero si alguien lo quiere leer así, que lo lea. Hoy tenía delante a Isaac atacando en el día más fuerte que le vi en toda la primavera, y decidí no dejarle esa ventaja. Eso es todo lo que pasó.
 
 ---
 

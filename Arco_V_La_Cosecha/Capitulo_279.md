@@ -116,6 +116,18 @@ El tercer día, Cano llamó a Santi por videollamada desde Girona, donde se hab�
 
 — Aprendí de mirarte a vos, en realidad —dijo Cano, con una sonrisa tímida—. Todo lo que hacés con la Fundación, con tu papá, con Restrepo. Se pega, con el tiempo.
 
+— ¿Y qué hiciste el resto del día, entonces, si no viajaste a ningún lado? —preguntó Santi.
+
+— Salí a rodar sin GPS, sin potenciómetro, sin nada —dijo Cano—. Primera vez en meses que subí a la bicicleta sin que Rusconi supiera exactamente cuántos vatios iba a producir en cada kilómetro. Me sentí raro las primeras dos horas. Después, no sé, se sintió como cuando empecé, en Yarumal, antes de que todo esto fuera un trabajo.
+
+— Guardá esa sensación también —dijo Santi—. Vas a necesitar acordarte de ella, en algún momento de una carrera larga, cuando todo se vuelva números y cálculo. Ayuda recordar por qué empezaste.
+
+— ¿Vos todavía la sentís, esa sensación? —preguntó Cano.
+
+— A veces —admitió Santi—. Menos de lo que quisiera, la verdad. Pero cuando aparece, la reconozco de inmediato. Es la misma de cuando tenía tu edad, subiendo el mismo puerto todos los domingos con mi papá esperándome al final, con el cronómetro en la mano y una excusa distinta cada semana para no admitir que estaba orgulloso.
+
+Cano se rió, con una risa corta que aflojó un poco la seriedad de la conversación.
+
 — ¿Y qué encontraste, en la libreta?
 
 Cano se quedó un momento en silencio, procesando la pregunta con más seriedad de la que Santi esperaba para una charla casual de día libre.
@@ -161,5 +173,13 @@ Mariana apoyó la cámara en la mesa y lo miró, con la misma calma tranquila qu
 — Mañana empieza el bloque duro —dijo—. Y después, julio. Pero esto que decidimos hoy, lo del garaje, va a seguir ahí, esperando, pase lo que pase en la carretera.
 
 — Va a seguir ahí —confirmó Santi—. De eso estoy más seguro que de cualquier resultado de julio.
+
+Se quedaron un rato más en el balcón, sin hablar de tácticas ni de recorridos, viendo caer la tarde sobre los techos de Girona, hasta que el frío empezó a filtrarse y Mariana se levantó a buscar una manta, sin soltarle la mano en ningún momento del trayecto entre el sofá y el placard.
+
+— Una cosa más —dijo Santi, cuando ella volvió—. Cuando se lo contemos a mi papá, algún día, no ahora, quiero ser yo el que se lo diga. No un mensaje, no una llamada rápida entre entrenamientos. Quiero verle la cara.
+
+— Va a llorar —dijo Mariana, envolviéndolos a los dos con la manta—. Los dos sabemos que va a llorar.
+
+— Va a llorar —confirmó Santi, con una sonrisa que no intentó esconder—. Y por primera vez en mucho tiempo, va a ser de las buenas.
 
 ---
