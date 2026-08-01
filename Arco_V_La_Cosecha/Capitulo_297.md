@@ -12,7 +12,7 @@ Con Pogačar de amarillo —Santi segundo a nueve segundos, Remco tercero a un m
 
 La reunión matutina tuvo un tono distinto a cualquier otra del Tour: sin ninguna instrucción táctica sobre rivales ni sobre el pelotón, sino una conversación centrada exclusivamente en la gestión del propio cuerpo de Santi.
 
-— Sabemos lo que puede pasar, y no vamos a fingir que no lo sabemos —dijo Rusconi, con la honestidad directa que había definido cada conversación sobre este tema específico desde octubre—. A partir de los quince minutos, probablemente empecés a sentir el dolor. La instrucción es simple: aguantá lo máximo posible en la posición óptima, y cuando el dolor te obligue a compensar, hacelo de forma controlada, no de golpe.
+— Sabemos lo que puede pasar, y no vamos a fingir que no lo sabemos —dijo Rusconi, con la honestidad directa que había definido cada conversación sobre este tema específico desde octubre—. Venimos viendo el mismo patrón desde la crono por equipos de Barcelona: ahí ya apareció una caída mínima de potencia después del kilómetro quince, en apenas diecinueve kilómetros de prueba. Hoy, en solitario y con el doble de distancia, ese punto va a llegar más o menos a los quince minutos de esfuerzo. La instrucción es simple: aguantá lo máximo posible en la posición óptima, y cuando el dolor te obligue a compensar, hacelo de forma controlada, no de golpe.
 
 Ganna, que había trabajado con Santi durante semanas en el ajuste fino de la posición, agregó los últimos detalles técnicos.
 

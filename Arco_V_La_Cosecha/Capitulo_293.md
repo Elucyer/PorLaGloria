@@ -40,6 +40,8 @@ En el pelotón principal, Ganna aprovechó la tranquilidad del recorrido para re
 
 — La posición sigue siendo un problema real, sin solución mágica —confirmó Rusconi, en una conversación que Santi escuchó parcialmente desde su posición en el pelotón—. Vamos a minimizar el daño lo mejor posible, pero hay que ser honestos: esa etapa probablemente nos va a costar tiempo.
 
+— Lo venimos viendo desde el primer día, en realidad —agregó Rusconi, revisando en la tablet el archivo de potencia que llevaba guardando desde Barcelona—. En la crono por equipos ya hubo una caída mínima después del kilómetro quince, casi invisible en una prueba de solo diecinueve. En veintiséis kilómetros contra el crono individual, sostenido y en solitario, ese mismo patrón se va a notar mucho más.
+
 Ganna, con la autoridad de haber sido especialista de crono durante toda su carrera, ofreció una perspectiva que Rusconi valoró especialmente.
 
 — Puedo ayudar con la parte técnica, el equipo, la posición base —dijo Ganna—. Pero lo de la fractura es distinto, eso no lo arregla ningún ajuste de manillar. Ahí lo único que se puede hacer es minimizar el tiempo que Santi pasa en la posición más agresiva, aunque eso signifique perder algunos vatios en el resto del recorrido.

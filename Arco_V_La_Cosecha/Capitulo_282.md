@@ -84,6 +84,8 @@ Buitrago y Tiberi se turnaron en el tercer bloque, con Arroyave y Arnheim sosten
 
 Soler, el más veterano de los ocho, con tres Tours ya corridos antes de este, tomó el relevo más largo de todos en el tramo final, cuando las piernas del resto del grupo ya empezaban a acumular el ácido láctico específico de un esfuerzo que no perdonaba ni un segundo de distracción.
 
+Santi, pasado el kilómetro quince, sintió algo que no esperaba sentir tan pronto: una punzada breve en la parte alta de la espalda, justo en la posición más agresiva del manillar, que desapareció casi tan rápido como había aparecido. Lo achacó, sin darle mayor importancia, a la postura sostenida durante casi veinte minutos consecutivos — la primera crono real desde octubre, después de todo — y volvió a concentrarse en la rueda de Soler sin decir nada por radio.
+
 — Un kilómetro —dijo Rusconi, con la voz ahora más tensa—. Aguanten. Un kilómetro y esto se acaba.
 
 — Vatios estables, todo el mundo, nadie se pase de rosca todavía —dijo Rusconi por radio, a mitad del recorrido, con la voz tensa pero controlada—. Antonio, cuando termines tu relevo, no te vayas atrás del todo, quedate cerca por si hay que rotarte de nuevo antes de lo previsto.
@@ -115,6 +117,8 @@ Ganna, todavía con la respiración entrecortada, se dejó caer sentado en el es
 — Ocho meses entrenando esta coreografía específica —dijo—, para que se decida en nueve segundos contra el mejor equipo de crono del mundo. Así es este deporte, a veces.
 
 — Nueve segundos que se pueden recuperar en cualquier etapa de montaña de las próximas tres semanas —dijo Santi, todavía con las manos apoyadas en las rodillas, recuperando el aire—. Y cinco segundos sobre Pogačar es casi nada. Estamos exactamente donde queríamos estar hoy: cerca, sin haber gastado de más.
+
+Rusconi, ya de regreso en el coche, revisó una vez más los datos de potencia completos de Santi antes de cerrar la tablet por esa tarde, deteniéndose un instante en una caída mínima, casi insignificante, registrada justo después del kilómetro quince. No dijo nada todavía — podía ser cualquier cosa, un bache, una distracción de un segundo, el tipo de ruido estadístico que aparecía en cualquier archivo de potencia — pero guardó el dato en una carpeta aparte, la misma donde llevaba meses archivando cada número relacionado con la vieja fractura de T7, sin comentárselo a nadie por el momento.
 
 ---
 
