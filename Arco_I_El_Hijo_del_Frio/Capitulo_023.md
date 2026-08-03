@@ -20,11 +20,11 @@ Ospina le enseñó la segunda.
 
 Mejía tomó la palabra.
 
-—Los resultados de la Vuelta del Futuro de Venezuela están publicados. Arroyave ganó la clasificación de montaña. Sus tiempos en los puertos de categoría uno los podemos comparar con los vuestros en puertos similares. No es perfecto —la altitud de Venezuela es diferente, el pelotón es diferente— pero es datos.
+—Los resultados de la Vuelta del Futuro de Venezuela están publicados. Arroyave ganó la clasificación de montaña. Sus tiempos en los puertos de categoría uno los podemos comparar con los vuestros en puertos similares. No es perfecto —la altitud de Venezuela es diferente, el pelotón es diferente— pero son datos.
 
 —¿Y los videos?
 
-—Tres. La etapa reina de la Porvenir del año pasado, donde te ganó por cuatro segundos. La etapa cinco de la Juventud 2016, la que ganó él. Y un video de una clásica de Cundinamarca de este año que subió el equipo de Indeportes.
+—Tres. La etapa reina de la Vuelta del Futuro de Venezuela, la que te acabo de mencionar. La etapa cinco de la Juventud 2016, la que ganó él. Y un video de una clásica de Cundinamarca de este año que subió el equipo de Indeportes.
 
 Santi los conocía —los había buscado por su cuenta en los meses anteriores. Pero los había mirado como espectador, no como analista.
 
@@ -50,7 +50,7 @@ Eso lo hacía impredecible.
 
 Pero no completamente.
 
-—Hay un patrón —dijo Santi, después de la cuarta revisión de la etapa reina de la Porvenir del año anterior.
+—Hay un patrón —dijo Santi, después de la cuarta revisión de la etapa reina de la Vuelta del Futuro de Venezuela.
 
 Ospina estaba detrás de él, mirando la pantalla.
 
