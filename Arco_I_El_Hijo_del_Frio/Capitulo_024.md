@@ -106,7 +106,7 @@ Santi lo miró.
 
 —¿Por qué "cuando" y no "si"?
 
-—Porque con vos ya no hay ifs —dijo Julián, masticando despacio, como saboreando la frase antes de soltarla del todo—. Solo hay cuándos.
+—Porque con vos ya no hay si —dijo Julián, masticando despacio, como saboreando la frase antes de soltarla del todo—. Solo hay cuándos.
 
 ---
 

@@ -5,7 +5,7 @@
 ---
 
 *Aprender a Matar, episodio 16.*
-*Invitado: Wout van Aert. Ganador de dos etapas del Tour de France 2021 (E8, E21). Subcampeón del Mundial de Lovaina 2021 (2.º, +0:05 sobre Santiago Reyes).*
+*Invitado: Wout van Aert.*
 *Grabado el 17 de noviembre de 2021, en Lovaina. Duración: 52 minutos.*
 
 ---

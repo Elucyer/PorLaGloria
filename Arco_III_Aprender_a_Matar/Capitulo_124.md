@@ -6,7 +6,7 @@
 *Etapa 10 — Île d'Oléron → Île de Ré. 170 km, llano costero.*
 *Etapa 11 — Châtelaillon-Plage → Poitiers. 167 km. Fuga de Søren Kragh Andersen.*
 *Etapa 12 — Chauvigny → Sarran. 218 km, la etapa más larga del Tour 2020.*
-*Etapa 13 — Châtel-Guyon → Le Puy Mary (Pas de Peyrol). 191,5 km. Subida final: 5,4 km al 8,1%, últimos 2,4 km en doble dígito, alt. 1.589 m. Daniel Martínez gana.*
+*Etapa 13 — Châtel-Guyon → Le Puy Mary (Pas de Peyrol). 191,5 km. Subida final: 5,4 km al 8,1%, últimos 2,4 km en doble dígito, alt. 1.589 m.*
 *Etapa 14 — de transición.*
 
 ---

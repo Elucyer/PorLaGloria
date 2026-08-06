@@ -35,7 +35,13 @@
       "Bash(git checkout *)",
       "Bash(grep -n \"gan\\\\|líder\\\\|primer puesto\\\\|1\\\\\\\\.º\" Capitulo_271.md)",
       "Bash(grep -rn \"cuarto\\\\|4\\\\\\\\.º\\\\|podio\" Capitulo_27*.md Capitulo_26*.md)",
-      "Bash(grep -n \"4\\\\\\\\.º\\\\|cuarto\" MAPA_Capitulos_Arco_V.md)"
+      "Bash(grep -n \"4\\\\\\\\.º\\\\|cuarto\" MAPA_Capitulos_Arco_V.md)",
+      "Bash(git merge *)",
+      "Bash(git apply *)",
+      "Bash(cd \"c:\\\\Users\\\\Usuario\\\\Documents\\\\Proyectos\\\\PorLaGloria\\\\.claude\\\\worktrees\\\\agent-a28f3f4aa66889b80\" && git diff -- \"Arco_II_El_Año_que_Todo_Paso/Capitulo_043.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_044.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_048.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_050.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_052.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_053.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_062.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_078.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_079.md\" \"Arco_II_El_Año_que_Todo_Paso/Capitulo_082.md\" > \"C:\\\\Users\\\\Usuario\\\\AppData\\\\Local\\\\Temp\\\\claude\\\\spoiler_fix.patch\")"
+    ],
+    "additionalDirectories": [
+      "C:\\Users\\Usuario\\AppData\\Local\\Temp\\claude"
     ]
   }
 }

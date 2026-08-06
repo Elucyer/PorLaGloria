@@ -5,12 +5,12 @@
 ---
 
 *Etapas 12 a 16 del Tour de France 2021 y segundo día de descanso.*
-*Etapa 12 — Saint-Paul-Trois-Châteaux → Nîmes. 159,4 kilómetros. Desnivel acumulado: 1.035 metros. 8 de julio de dos mil veintiuno. Perfil: ondulado, llegada al esprint reducido. Ganador: Nils Politt (escapada solitaria).*
-*Etapa 13 — Nîmes → Carcassonne. 219,9 kilómetros. Desnivel acumulado: 1.700 metros. 9 de julio de dos mil veintiuno. Perfil: ondulado del Languedoc, etapa de esprint. Ganador: Mark Cavendish (35.ª victoria, récord histórico).*
-*Etapa 14 — Carcassonne → Quillan. 183,7 kilómetros. Desnivel acumulado: 3.426 metros. 10 de julio de dos mil veintiuno. Perfil: Pirineos orientales. Puertos: Col de Montségur (cat. 1, 9,6 km al 7,1%, 682m D+, alt. 1.082m) · Col de Marmare (cat. 2, 5,6 km al 5,5%, 308m D+, alt. 844m) · Col de Saint-Louis (cat. 2, 5,6 km al 4,8%, 269m D+, alt. 681m). Ganador: Bauke Mollema (escapada).*
+*Etapa 12 — Saint-Paul-Trois-Châteaux → Nîmes. 159,4 kilómetros. Desnivel acumulado: 1.035 metros. 8 de julio de dos mil veintiuno. Perfil: ondulado, llegada al esprint reducido.*
+*Etapa 13 — Nîmes → Carcassonne. 219,9 kilómetros. Desnivel acumulado: 1.700 metros. 9 de julio de dos mil veintiuno. Perfil: ondulado del Languedoc, etapa de esprint.*
+*Etapa 14 — Carcassonne → Quillan. 183,7 kilómetros. Desnivel acumulado: 3.426 metros. 10 de julio de dos mil veintiuno. Perfil: Pirineos orientales. Puertos: Col de Montségur (cat. 1, 9,6 km al 7,1%, 682m D+, alt. 1.082m) · Col de Marmare (cat. 2, 5,6 km al 5,5%, 308m D+, alt. 844m) · Col de Saint-Louis (cat. 2, 5,6 km al 4,8%, 269m D+, alt. 681m).*
 *Etapa 15 — Céret → Andorra la Vella. 191,3 kilómetros. Desnivel acumulado: 4.655 metros. 11 de julio de dos mil veintiuno.*
 *Puertos E15: Col de Palomère (cat. 1, 9,4 km al 6,5%, 611m D+, alt. 1.153m) · Col d'Ordino (cat. 1, 11,5 km al 7,2%, 828m D+, alt. 1.900m) · Coll de la Gallina (cat. HC, 10,5 km al 8,5%, 893m D+, alt. 1.802m — llegada en alto, Andorra la Vella).*
-*Etapa 16 — El Pas de la Casa → Saint-Gaudens. 169,0 kilómetros. Desnivel acumulado: 2.069 metros. 12 de julio de dos mil veintiuno. Perfil: descenso de Andorra a los Pirineos centrales. Ganador: Matej Mohorič (escapada).*
+*Etapa 16 — El Pas de la Casa → Saint-Gaudens. 169,0 kilómetros. Desnivel acumulado: 2.069 metros. 12 de julio de dos mil veintiuno. Perfil: descenso de Andorra a los Pirineos centrales.*
 *Descanso 2 del Tour de France 2021. 13 de julio de dos mil veintiuno. Saint-Gaudens.*
 
 ---

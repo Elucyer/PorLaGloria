@@ -3,7 +3,6 @@
 ### Capítulo 118 — Tour I: Grand Départ de Niza (Presentación de equipos + Etapa 1 CRI, 28–29 de agosto de 2020)
 
 *Tour de Francia 2020 — Etapa 1 (CRI). Niza. 8,5 km. Primeros 4 km llanos, últimos 4 km con la rampa de la Colline du Château al 4%.*
-*Roglič 1º: 11:29. Santi 8º: 11:43. Pogačar 10º: 11:47.*
 
 ---
 
